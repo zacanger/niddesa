@@ -13,7 +13,7 @@ the Pali printings.
 * [x] Get the A. P. de Zoysa Sinhala translation from Sutta Central html
 * [x] Convert that to Markdown for easier processing
 * [ ] Clean up the markdown (remove bad unicode characters and extraneous stuff)
-* [ ] Try automating a translation using Google Translate and possibly others
+* [ ] Try automating a translation using Google Translate and/or Amazon Translate (none of the other services have Sinhala).
 * [ ] Clean up the auto translation(s)
 
 Possibly in the future, try the same process but starting with the Pali. There
