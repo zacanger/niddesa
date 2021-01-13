@@ -26,20 +26,24 @@ def translate_text(text):
 
     tr = []
     for translation in response.translations:
-        tr.append(translation)
-    return "\n".join(tr)
+        print("chunk")
+        tr.append(translation.translated_text)
+    return "".join(tr)
 
 
 # Limit of 5k code points per request
 def chunk_file(text):
     n = 2000
-    return [text[i:i+n] for i in range(0, len(text), n)]
+    chunks = [text[i:i+n] for i in range(0, len(text), n)]
+    print(len(chunks))
+    return chunks
 
 
 def write_translated_file(text, path):
-    with open(path + "en.md", "w") as dst:
+    with open(path + ".en.md", "w") as dst:
         dst.write(text)
-        d.close()
+        dst.close()
+        return
 
 
 def translate_file(file_name):
@@ -49,12 +53,13 @@ def translate_file(file_name):
         splits = chunk_file(source)
         tr = []
         for s in splits:
-            tr = translate_text(s)
-        write_translated_file("\n".join(tr), full_path)
+            tr.append(translate_text(s))
+        return write_translated_file("".join(tr), full_path)
 
 
 def main():
     for file in files_to_translate:
+        print("translating " + file)
         translate_file(file)
 
 
