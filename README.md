@@ -18,13 +18,9 @@ needing to create an AWS account.
 
 See other READMEs in the repo for more notes.
 
-## TODO:
-
-* [x] Get the A. P. de Zoysa Sinhala translation from Sutta Central html
-* [x] Convert that to Markdown for easier processing
-* [x] Get automated translation with Google Translate
-* [ ] Do the same with Amazon?
-* [ ] Clean up the auto translation(s)
+See [the
+issues](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc)
+for open tasks.
 
 Possibly in the future, try the same process but starting with the Pali. There
 don't seem to be any good Pali->English APIs out there right now.
