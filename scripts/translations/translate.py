@@ -12,14 +12,20 @@ files_to_translate = os.listdir(dir_to_translate)
 
 def amazon_translate_text(text):
     import boto3
+    from botocore.config import Config
+
+    # this gets rate limited almost immediately,
+    # so add in a bunch of retry attempts
+    config = Config(retries=dict(max_attempts=10))
 
     # add your settings
-    region = "us-west-2"
+    region = "us-east-1"
 
     translate = boto3.client(
         service_name="translate",
         region_name=region,
-        use_ssl=True
+        use_ssl=True,
+        config=config,
     )
 
     result = translate.translate_text(
