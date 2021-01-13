@@ -8,11 +8,19 @@ I don't know Pali or Sinhala, so I'm attempting to do this semi-automated (see
 the code in the scripts directory). Learning Pali might be useful in the future
 to do a fresh full translation, but it's not a priority for me right now.
 
+Google, Yandex, IBM Watson, and Amazon all have Sinahala to English translation.
+Of those, Yandex and Watson's results are garbage. Google's seem to
+halfway-usable. I have yet to try Amazon's. Microsoft and the others don't have
+Sinhala. None of them have Pali.
+
+See other READMEs in the repo for more notes.
+
 ## TODO:
 
 * [x] Get the A. P. de Zoysa Sinhala translation from Sutta Central html
 * [x] Convert that to Markdown for easier processing
-* [ ] Try automating a translation using Google Translate and/or Amazon Translate (none of the other services have Sinhala).
+* [x] Get automated translation with Google Translate
+* [ ] Do the same with Amazon? (Amazon's may be better, may be worse...)
 * [ ] Clean up the auto translation(s)
 
 Possibly in the future, try the same process but starting with the Pali. There
