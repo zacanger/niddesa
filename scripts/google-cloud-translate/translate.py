@@ -4,8 +4,8 @@ import os
 import sys
 from google.cloud import translate
 
-# my project id, change this if you use your own
-project_id = "micro-autumn-301618"
+# fill in project id from google cloud console
+project_id = ""
 location = "global"
 dir_to_translate = sys.argv[1]
 files_to_translate = os.listdir(dir_to_translate)

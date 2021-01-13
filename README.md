@@ -10,8 +10,11 @@ to do a fresh full translation, but it's not a priority for me right now.
 
 Google, Yandex, IBM Watson, and Amazon all have Sinahala to English translation.
 Of those, Yandex and Watson's results are garbage. Google's seem to
-halfway-usable. I have yet to try Amazon's. Microsoft and the others don't have
-Sinhala. None of them have Pali.
+halfway-usable.  Microsoft and the others don't have
+Sinhala. None of them have Pali. Amazon's is worse than Google's, but might
+still be helpful for areas where Google's translation gets weird. Spot-checking
+can be done [here](https://ai-service-demos.go-aws.com/translate) without
+needing to create an AWS account.
 
 See other READMEs in the repo for more notes.
 
@@ -20,7 +23,7 @@ See other READMEs in the repo for more notes.
 * [x] Get the A. P. de Zoysa Sinhala translation from Sutta Central html
 * [x] Convert that to Markdown for easier processing
 * [x] Get automated translation with Google Translate
-* [ ] Do the same with Amazon? (Amazon's may be better, may be worse...)
+* [ ] Do the same with Amazon?
 * [ ] Clean up the auto translation(s)
 
 Possibly in the future, try the same process but starting with the Pali. There
