@@ -4,21 +4,19 @@ Attempting an English language translation.
 
 [![Support with PayPal](https://img.shields.io/badge/paypal-donate-yellow.png)](https://paypal.me/zacanger) [![Patreon](https://img.shields.io/badge/patreon-donate-yellow.svg)](https://www.patreon.com/zacanger) [![ko-fi](https://img.shields.io/badge/donate-KoFi-yellow.svg)](https://ko-fi.com/U7U2110VB)
 
-I don't know Pali or Sinhala, so I'm attempting to do this semi-automated.
-Learning Pali might be useful in the future to do a full translation from one of
-the Pali printings.
+I don't know Pali or Sinhala, so I'm attempting to do this semi-automated (see
+the code in the scripts directory). Learning Pali might be useful in the future
+to do a fresh full translation, but it's not a priority for me right now.
 
 ## TODO:
 
 * [x] Get the A. P. de Zoysa Sinhala translation from Sutta Central html
 * [x] Convert that to Markdown for easier processing
-* [ ] Clean up the markdown (remove bad unicode characters and extraneous stuff)
 * [ ] Try automating a translation using Google Translate and/or Amazon Translate (none of the other services have Sinhala).
 * [ ] Clean up the auto translation(s)
 
 Possibly in the future, try the same process but starting with the Pali. There
-don't seem to be any good Pali->English APIs out there right now, but there are
-some _okay_ ones. I could also just learn Pali.
+don't seem to be any good Pali->English APIs out there right now.
 
 ## Licensing
 
