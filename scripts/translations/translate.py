@@ -2,16 +2,42 @@
 
 import os
 import sys
-from google.cloud import translate
 
-# fill in project id from google cloud console
-project_id = ""
-location = "global"
+SERVICE_TO_USE = "google"  # or amazon
+LANGUAGE_FROM = "si"  # sinhala
+
 dir_to_translate = sys.argv[1]
 files_to_translate = os.listdir(dir_to_translate)
 
 
-def translate_text(text):
+def amazon_translate_text(text):
+    import boto3
+
+    # add your settings
+    region = "us-west-2"
+
+    translate = boto3.client(
+        service_name="translate",
+        region_name=region,
+        use_ssl=True
+    )
+
+    result = translate.translate_text(
+        Text=text,
+        SourceLanguageCode=LANGUAGE_FROM,
+        TargetLanguageCode="en"
+    )
+
+    return result.get("TranslatedText")
+
+
+def google_translate_text(text):
+    from google.cloud import translate
+
+    # fill in project id from google cloud console
+    project_id = ""
+    location = "global"
+
     client = translate.TranslationServiceClient()
     parent = f"projects/{project_id}/locations/{location}"
     response = client.translate_text(
@@ -19,7 +45,7 @@ def translate_text(text):
             "parent": parent,
             "contents": [text],
             "mime_type": "text/plain",
-            "source_language_code": "si",  # sinhala
+            "source_language_code": LANGUAGE_FROM,
             "target_language_code": "en-US",
         }
     )
@@ -53,7 +79,13 @@ def translate_file(file_name):
         splits = chunk_file(source)
         tr = []
         for s in splits:
-            tr.append(translate_text(s))
+            # TODO: amazon
+            if SERVICE_TO_USE is "google":
+                tr.append(google_translate_text(s))
+            elif SERVICE_TO_USE is "amazon":
+                tr.append(amazon_translate_text(s))
+            else:
+                raise ValueError("No valid service selected!")
         return write_translated_file("".join(tr), full_path)
 
 
