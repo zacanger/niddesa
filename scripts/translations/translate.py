@@ -57,7 +57,8 @@ def google_translate_text(text):
     return "".join(tr)
 
 
-# Limit of 5k code points per request
+# chunk files to avoid hitting limites. google says "5000 code points", amazon
+# says "5000 bytes", so this could maybe be higher, but it's fine.
 def chunk_file(text):
     n = 2000
     chunks = [text[i:i+n] for i in range(0, len(text), n)]
