@@ -3,7 +3,7 @@
 import os
 import sys
 
-SERVICE_TO_USE = "google"  # or amazon
+SERVICE_TO_USE = "amazon"  # or amazon
 LANGUAGE_FROM = "si"  # sinhala
 
 dir_to_translate = sys.argv[1]
@@ -58,9 +58,10 @@ def google_translate_text(text):
 
 
 # chunk files to avoid hitting limites. google says "5000 code points", amazon
-# says "5000 bytes", so this could maybe be higher, but it's fine.
+# says "5000 bytes". 1500 characters seems to be low enough to not freak amazon
+# out.
 def chunk_file(text):
-    n = 2000
+    n = 1500
     chunks = [text[i:i+n] for i in range(0, len(text), n)]
     print(len(chunks))
     return chunks
@@ -81,9 +82,9 @@ def translate_file(file_name):
         tr = []
         for s in splits:
             # TODO: amazon
-            if SERVICE_TO_USE is "google":
+            if SERVICE_TO_USE == "google":
                 tr.append(google_translate_text(s))
-            elif SERVICE_TO_USE is "amazon":
+            elif SERVICE_TO_USE == "amazon":
                 tr.append(amazon_translate_text(s))
             else:
                 raise ValueError("No valid service selected!")
