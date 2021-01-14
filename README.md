@@ -35,6 +35,10 @@ Files in text/ are named `nn-file-source.md`. Example:
 
 Etc.
 
+To try the translation code for yourself, see the notes in scripts/translate. To
+build assets, run scripts/build-assets.sh from the project root. See the notes
+in that file before trying to run it.
+
 ## Licensing
 
 For code in this repo, see LICENSE-code.md.

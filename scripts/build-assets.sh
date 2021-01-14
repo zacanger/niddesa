@@ -2,9 +2,10 @@
 set -e
 
 # TODO:
-# Once the text is usable, sort into one directory
 # Add a cover image
 # Clean up the formatting and table of contents
+# Get metadata to work
+# Get cover image to work
 
 # Notes:
 # Depends on pandoc and xelatex
