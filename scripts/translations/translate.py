@@ -3,7 +3,7 @@
 import os
 import sys
 
-SERVICE_TO_USE = "amazon"  # or amazon
+SERVICE_TO_USE = "google"  # or amazon
 LANGUAGE_FROM = "zh-TW"  # sinhala == si, zh-TW == traditional chinese
 
 dir_to_translate = sys.argv[1]
@@ -41,7 +41,7 @@ def google_translate_text(text):
     from google.cloud import translate
 
     # fill in project id from google cloud console
-    project_id = ""
+    project_id = "micro-autumn-301618"
     location = "global"
 
     client = translate.TranslationServiceClient()
@@ -73,7 +73,7 @@ def chunk_file(text):
 
 
 def write_translated_file(text, path):
-    with open(path + ".en.md", "w") as dst:
+    with open(path + SERVICE_TO_USE + ".md", "w") as dst:
         dst.write(text)
         dst.close()
         return

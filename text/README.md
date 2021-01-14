@@ -37,4 +37,5 @@ Pali text from the Mahāsaṅgīti Tipiṭaka Buddhavasse 2500: World Tipiṭaka
 Prepared for SuttaCentral by Blake Walshe and Bhikkhu Sujato.
 ```
 
-The sources in Chinese were found here: https://agama.buddhason.org/.
+The sources in Chinese were found here: https://agama.buddhason.org/ and were
+translated by one Zhuang Chunjiang.
