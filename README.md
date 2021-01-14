@@ -20,8 +20,11 @@ services. The Yandex and IBM Watson translations were terrible, not worth tryin
 to use.
 
 There are more READMEs in this repo that may be interesting to you if you poke
-around a bit. Open work is tracked in
-[the issues](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc).
+around a bit. If you find a problem or want to help, please feel free to [submit
+an
+issue](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc).
+The bulk of the open work now is in taking the two generated translations and
+trying to get one decent translation out of them.
 
 ## Licensing
 
