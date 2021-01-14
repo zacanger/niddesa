@@ -3,7 +3,7 @@
 import os
 import sys
 
-SERVICE_TO_USE = "google"  # or amazon
+SERVICE_TO_USE = "amazon"  # or amazon
 LANGUAGE_FROM = "zh-TW"  # sinhala == si, zh-TW == traditional chinese
 
 dir_to_translate = sys.argv[1]
@@ -16,7 +16,7 @@ def amazon_translate_text(text):
 
     # this gets rate limited almost immediately,
     # so add in a bunch of retry attempts
-    config = Config(retries=dict(max_attempts=10))
+    config = Config(retries=dict(max_attempts=20))
 
     # add your settings
     region = "us-east-1"

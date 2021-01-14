@@ -10,13 +10,16 @@ There has never been a complete English language translation of [the
 Niddesa](https://en.wikipedia.org/wiki/Niddesa). After asking on Stack Exchange,
 I got [an answer](https://buddhism.stackexchange.com/a/43712/19522) that pointed
 me to a Sinhala translation, which I figured I could use to automate an English
-translation. It will take work and time to clean up the generated translations
+translation. I then also found a complete Chinese translation and did the same
+thing with that.
+
+It will take work and time to clean up the generated translations
 and make them readable. In the future I may try to learn Pali and do a fresh
 translation from the source (see those files in this repo, or the Pali Text
 Society's Romanizations on the Internet Archive).
 
 The auto-generated translations were done using Google and Amazon's translation
-services. The Yandex and IBM Watson translations were terrible, not worth tryin
+services. The Yandex and IBM Watson translations were terrible, not worth trying
 to use.
 
 There are more READMEs in this repo that may be interesting to you if you poke
