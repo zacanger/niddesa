@@ -41,7 +41,7 @@ def google_translate_text(text):
     from google.cloud import translate
 
     # fill in project id from google cloud console
-    project_id = "micro-autumn-301618"
+    project_id = "translation-301721"
     location = "global"
 
     client = translate.TranslationServiceClient()
