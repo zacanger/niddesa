@@ -58,7 +58,6 @@ def google_translate_text(text):
 
     tr = []
     for translation in response.translations:
-        print("chunk")
         tr.append(translation.translated_text)
     return "".join(tr)
 
@@ -69,7 +68,7 @@ def google_translate_text(text):
 def chunk_file(text):
     n = 1500
     chunks = [text[i:i+n] for i in range(0, len(text), n)]
-    print(len(chunks))
+    print(len(chunks), "chunks to process")
     return chunks
 
 
