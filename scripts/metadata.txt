@@ -1,0 +1,12 @@
+---
+title: Niddesa
+creator:
+- role: author
+  text: Sariputta
+- role: translator
+  text: Zac Anger
+language: en-US
+rights: Creative Commons Attribution-NonCommercial 4.0 Unported
+description: First English translation of the Niddesa
+cover-image: ./path/to-cover.png
+---
