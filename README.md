@@ -10,11 +10,8 @@ to do a fresh full translation, but it's not a priority for me right now.
 
 Google, Yandex, IBM Watson, and Amazon all have Sinahala to English translation.
 Of those, Yandex and Watson's results are garbage. Google's seem to
-halfway-usable.  Microsoft and the others don't have
-Sinhala. None of them have Pali. Amazon's is worse than Google's, but might
-still be helpful for areas where Google's translation gets weird. Spot-checking
-can be done [here](https://ai-service-demos.go-aws.com/translate) without
-needing to create an AWS account.
+halfway-usable.  Amazon's is less useful, but I used it anyway in case it picks
+up on spots where the results from Google got strange.
 
 See other READMEs in the repo for more notes.
 
