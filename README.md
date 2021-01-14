@@ -35,9 +35,13 @@ Files in text/ are named `nn-file-source.md`. Example:
 
 Etc.
 
-To try the translation code for yourself, see the notes in scripts/translate. To
-build assets, run scripts/build-assets.sh from the project root. See the notes
-in that file before trying to run it.
+To try the translation code for yourself, see the notes in scripts/translate.
+
+To build assets, run `make`. The build is based on code from
+[this project](https://github.com/wikiti/pandoc-book-template)
+used under the MIT license. You will need various dependencies: make, pandoc, a
+LaTeX setup including xetex (mactex or texlive-xetex, depending on your
+platform), as well as Noto fonts (for the moment, this may change).
 
 ## Licensing
 

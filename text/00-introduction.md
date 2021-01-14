@@ -33,28 +33,30 @@ The Sinhala was sourced from
 and was originally translated by A. P. de Zoyza. The original notice is included
 here.
 
-```
-AP de Zoysa edition.
-
-Permission to publish was kindly granted by Kumari Jayawardhana.
-
-Digital files were kindly supplied by Sirisumana Godage of Godage International Publishing, who publish a print edition of this text.
-
-Conversion from PDF was by Janaka of http://pitaka.lk/.
-
-The assistance of Amaradasa Liyanagamage, Ven Mettavihari and Maithri Panagoda is gratefully acknowledged.
-
-Prepared for SuttaCentral by Ayya Kathrin Vimalañāṇī.
-```
+> AP de Zoysa edition.
+>
+> Permission to publish was kindly granted by Kumari Jayawardhana.
+>
+> Digital files were kindly supplied by Sirisumana Godage of Godage International
+> Publishing, who publish a print edition of this text.
+>
+> Conversion from PDF was by Janaka of http://pitaka.lk/.
+>
+> The assistance of Amaradasa Liyanagamage, Ven Mettavihari and Maithri Panagoda
+> is gratefully acknowledged.
+>
+> Prepared for SuttaCentral by Ayya Kathrin Vimalañāṇī.
 
 The Pali was also sourced from
 [Sutta Central](https://github.com/suttacentral/legacy-suttacentral-data/tree/384ab0b63a521946cddb343319ac6c325dd2fb27/text/pi/su/kn), and its notice is included here.
 
-```
-Pali text from the Mahāsaṅgīti Tipiṭaka Buddhavasse 2500: World Tipiṭaka Edition in Roman Script. Edited and published by The M.L. Maniratana Bunnag Dhamma Society Fund, 2005. Based on the digital edition of the Chaṭṭha Saṅgāyana published by the Vipassana Research Institute, with corrections and proofreading by the Dhamma Society.
-
-Prepared for SuttaCentral by Blake Walshe and Bhikkhu Sujato.
-```
+> Pali text from the Mahāsaṅgīti Tipiṭaka Buddhavasse 2500: World Tipiṭaka Edition
+> in Roman Script. Edited and published by The M.L. Maniratana Bunnag Dhamma
+> Society Fund, 2005. Based on the digital edition of the Chaṭṭha Saṅgāyana
+> published by the Vipassana Research Institute, with corrections and proofreading
+> by the Dhamma Society.
+>
+> Prepared for SuttaCentral by Blake Walshe and Bhikkhu Sujato.
 
 The Chinese was translated by [Zhuang Chunjiang](https://agama.buddhason.org/),
 and no copyright notice could be found.
