@@ -16,3 +16,9 @@ The assistance of Amaradasa Liyanagamage, Ven Mettavihari and Maithri Panagoda i
 
 Prepared for SuttaCentral by Ayya Kathrin Vimalañāṇī.
 ```
+
+Files are named `nn-file-source.md`. Example:
+
+* `01-sinhala.md` is the source from the above link converted to plain text
+* `01-google.md` is from Google Cloud Translate
+* `01-amazon.md` is from AWS Translate
