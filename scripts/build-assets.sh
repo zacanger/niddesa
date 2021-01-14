@@ -1,6 +1,12 @@
 #!/usr/bin/env bash
 set -e
 
+# TODO:
+# Once the text is usable, sort into one directory
+# Add a cover image
+# Clean up the formatting and table of contents
+
+# Notes:
 # Depends on pandoc and xelatex
 # To run on mac, first brew install mactext pandoc
 # Run from within a directory that only includes completed files,
