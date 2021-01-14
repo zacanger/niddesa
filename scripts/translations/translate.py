@@ -4,7 +4,7 @@ import os
 import sys
 
 SERVICE_TO_USE = "amazon"  # or amazon
-LANGUAGE_FROM = "si"  # sinhala
+LANGUAGE_FROM = "zh-TW"  # sinhala == si, zh-TW == traditional chinese
 
 dir_to_translate = sys.argv[1]
 files_to_translate = os.listdir(dir_to_translate)

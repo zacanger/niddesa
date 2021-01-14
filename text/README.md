@@ -2,8 +2,9 @@ Files are named `nn-file-source.md`. Example:
 
 * `01-sinhala.md` is the Sinhala source in plain text
 * `01-pali.md` is the Pali source in plain text
-* `01-google.md` is from Google Cloud Translate from Sinhala to English
-* `01-amazon.md` is from AWS Translate from Sinhala to English
+* `01-sinhala-google.md` is from Google Cloud Translate from Sinhala to English
+
+Etc.
 
 Sinhala HTML downloaded from Sutta Central's source (cnd and mnd subdirectories):
 https://github.com/suttacentral/sc-data/tree/5c060c479f4cb17a0891011d57d4933c81918ead/html_text/si/pli/sutta/kn
@@ -35,3 +36,5 @@ Pali text from the Mahāsaṅgīti Tipiṭaka Buddhavasse 2500: World Tipiṭaka
 
 Prepared for SuttaCentral by Blake Walshe and Bhikkhu Sujato.
 ```
+
+The sources in Chinese were found here: https://agama.buddhason.org/.
