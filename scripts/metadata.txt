@@ -8,5 +8,5 @@ creator:
 language: en-US
 rights: Creative Commons Attribution-NonCommercial 4.0 Unported
 description: First English translation of the Niddesa
-cover-image: ./cover.png
+cover-image: ./scripts/cover.jpg
 ---

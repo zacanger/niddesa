@@ -24,10 +24,10 @@ mkdir $output_dir
 for format in pdf epub html mobi; do
   pandoc \
     -o "$output_dir/$file_name.$format" \
-    title.txt \
+    scripts/metadata.txt \
     --toc --toc-depth=2 \
     --pdf-engine=xelatex \
     -f gfm \
     --standalone \
-    ./*.md
+    text/*.md text/mahaniddesa/*.md text/cullaniddesa/*.md
 done

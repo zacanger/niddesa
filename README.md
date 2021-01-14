@@ -22,14 +22,22 @@ The auto-generated translations were done using Google and Amazon's translation
 services. The Yandex and IBM Watson translations were terrible, not worth trying
 to use.
 
-There are more READMEs in this repo that may be interesting to you if you poke
-around a bit. If you find a problem or want to help, please feel free to [submit
-an
-issue](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc).
+If you find a problem or want to help, please feel free to
+[submit an issue](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc).
 The bulk of the open work now is in taking the two generated translations and
 trying to get one decent translation out of them.
+
+Files in text/ are named `nn-file-source.md`. Example:
+
+* `01-sinhala.md` is the Sinhala source in plain text
+* `01-pali.md` is the Pali source in plain text
+* `01-sinhala-google.md` is from Google Cloud Translate from Sinhala to English
+
+Etc.
 
 ## Licensing
 
 For code in this repo, see LICENSE-code.md.
 For the output text, see LICENSE-text.md.
+For credits and other licenses on the source material, see the notes in the
+introduction file.
