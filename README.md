@@ -29,14 +29,6 @@ If you find a problem or want to help, please feel free to
 The bulk of the open work now is in taking the two generated translations and
 trying to get one decent translation out of them.
 
-Files in text/ are named `nn-file-source.md`. Example:
-
-* `01-sinhala.md` is the Sinhala source in plain text
-* `01-pali.md` is the Pali source in plain text
-* `01-sinhala-google.md` is from Google Cloud Translate from Sinhala to English
-
-Etc.
-
 ### The Code
 
 To try the translation code for yourself, see the notes in code/translate.
