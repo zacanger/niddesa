@@ -29,9 +29,7 @@ def amazon_translate_text(text):
     )
 
     result = translate.translate_text(
-        Text=text,
-        SourceLanguageCode=LANGUAGE_FROM,
-        TargetLanguageCode="en"
+        Text=text, SourceLanguageCode=LANGUAGE_FROM, TargetLanguageCode="en"
     )
 
     return result.get("TranslatedText")
@@ -67,7 +65,7 @@ def google_translate_text(text):
 # out.
 def chunk_file(text):
     n = 1500
-    chunks = [text[i:i+n] for i in range(0, len(text), n)]
+    chunks = [text[i : i + n] for i in range(0, len(text), n)]
     print(len(chunks), "chunks to process")
     return chunks
 
