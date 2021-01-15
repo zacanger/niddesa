@@ -62,4 +62,10 @@ The Chinese was translated by [Zhuang Chunjiang](https://agama.buddhason.org/),
 and no copyright notice could be found.
 
 This translation is licensed under the
-[Creative Commons Attribution-NonCommercial 4.0 Unported](https://creativecommons.org/licenses/by-nc/4.0/) license.
+[Creative Commons Attribution-NonCommercial-ShareAlike 4.0
+International](https://creativecommons.org/licenses/by-nc-sa/4.0/) license. This
+means you are free to copy and redistribute this work, as well as make changes,
+as long as you provide attribution (give credit back to this work) and share
+your changes under the same license. Under this license you may not use this
+translation for commercial purposes (you can't sell it). See the link for the
+full version of the license.
