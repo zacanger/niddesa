@@ -35,7 +35,7 @@ Files in text/ are named `nn-file-source.md`. Example:
 
 Etc.
 
-To try the translation code for yourself, see the notes in scripts/translate.
+To try the translation code for yourself, see the notes in code/translate.
 
 To build assets, run `make`. The build is based on code from
 [this project](https://github.com/wikiti/pandoc-book-template)
