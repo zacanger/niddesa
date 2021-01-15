@@ -18,6 +18,8 @@ and make them readable. In the future I may try to learn Pali and do a fresh
 translation from the source (see those files in this repo, or the Pali Text
 Society's Romanizations on the Internet Archive).
 
+### The Text
+
 The auto-generated translations were done using Google and Amazon's translation
 services. The Yandex and IBM Watson translations were terrible, not worth trying
 to use.
@@ -34,6 +36,8 @@ Files in text/ are named `nn-file-source.md`. Example:
 * `01-sinhala-google.md` is from Google Cloud Translate from Sinhala to English
 
 Etc.
+
+### The Code
 
 To try the translation code for yourself, see the notes in code/translate.
 
