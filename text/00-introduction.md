@@ -1,10 +1,12 @@
 This is the start of a possible future preface/introduction type thing.
 Obviously the work is not done, I'm mostly just taking notes here.
 
+----
+
 The Niddesa is an ancient part of the Pāli Canon, the traditional texts of
 Theravada Buddhism, from the Khuddaka Nikāya in the Sutta Piṭaka. It is a
-commentary on parts of the Sutta Nipata, and is attributed to Sāriputta (Pali;
-Sanskrit Śāriputra). There are two sections:
+commentary on parts of the Sutta Nipāta, and is attributed to Ven. Sāriputta
+(Pali; Sanskrit Śāriputra). There are two parts:
 
 * The Maha Niddesa (Nd1), commentary on the Atthaka Vagga (Sn 4)
 * The Culla Niddesa (Nd2), commentary on on the Parayana Vagga (Sn 5) and the Khaggavisana Sutta (Rhinoceros Sutra, Sn 1.3)
@@ -46,17 +48,6 @@ here.
 > is gratefully acknowledged.
 >
 > Prepared for SuttaCentral by Ayya Kathrin Vimalañāṇī.
-
-The Pali was also sourced from
-[Sutta Central](https://github.com/suttacentral/legacy-suttacentral-data/tree/384ab0b63a521946cddb343319ac6c325dd2fb27/text/pi/su/kn), and its notice is included here.
-
-> Pali text from the Mahāsaṅgīti Tipiṭaka Buddhavasse 2500: World Tipiṭaka Edition
-> in Roman Script. Edited and published by The M.L. Maniratana Bunnag Dhamma
-> Society Fund, 2005. Based on the digital edition of the Chaṭṭha Saṅgāyana
-> published by the Vipassana Research Institute, with corrections and proofreading
-> by the Dhamma Society.
->
-> Prepared for SuttaCentral by Blake Walshe and Bhikkhu Sujato.
 
 The Chinese was translated by [Zhuang Chunjiang](https://agama.buddhason.org/),
 and no copyright notice could be found.
