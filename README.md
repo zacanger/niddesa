@@ -45,7 +45,7 @@ platform), as well as Noto fonts (for the moment, this may change).
 
 ## Licensing
 
-For code in this repo, see LICENSE-code.md.
-For the output text, see LICENSE-text.md.
+For code in this repo, see code/LICENSE.md.
+For the output text, see the license in the introduction file.
 For credits and other licenses on the source material, see the notes in the
 introduction file.
