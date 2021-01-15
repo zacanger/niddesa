@@ -1,1 +1,0 @@
-Culla Niddesa
