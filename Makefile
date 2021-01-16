@@ -4,10 +4,10 @@ MAKEFILE = Makefile
 OUTPUT_FILENAME = niddesa
 METADATA = code/metadata.yml
 CHAPTERS = text/*.md # text/mahaniddesa/*.md text/cullaniddesa/*.md
-TOC = --toc --toc-depth 2
+TOC = --toc --toc-depth 4
 METADATA_ARGS = --metadata-file $(METADATA)
 TEMPLATES = $(shell find code/templates/ -type f)
-COVER_IMAGE = code/cover.jpg
+# COVER_IMAGE = code/cover.jpg
 MATH_FORMULAS = --webtex
 
 # Chapters content
@@ -25,7 +25,7 @@ ARGS = $(TOC) $(MATH_FORMULAS) $(METADATA_ARGS) $(FILTER_ARGS) $(DEBUG_ARGS)
 PANDOC_COMMAND = pandoc
 
 # Per-format options
-EPUB_ARGS = --template code/templates/epub.html --epub-cover-image $(COVER_IMAGE)
+EPUB_ARGS = --template code/templates/epub.html # --epub-cover-image $(COVER_IMAGE)
 HTML_ARGS = --template code/templates/html.html --standalone --to html5
 PDF_ARGS = --template code/templates/pdf.latex --pdf-engine xelatex
 

@@ -33,15 +33,12 @@ trying to get one decent translation out of them.
 
 To try the translation code for yourself, see the notes in code/translate.
 
-To build assets, run `make`. The build is based on code from
-[this project](https://github.com/wikiti/pandoc-book-template)
-used under the MIT license. You will need various dependencies: make, pandoc, a
+To build assets, run `make`. You will need various dependencies: make, pandoc, a
 LaTeX setup including xetex (mactex or texlive-xetex, depending on your
 platform), as well as Noto fonts (for the moment, this may change).
 
 ## Licensing
 
 For code in this repo, see code/LICENSE.md.
-For the output text, see the license in the introduction file.
-For credits and other licenses on the source material, see the notes in the
-introduction file.
+For the output text, credits and other licenses on the source material, see the
+notes in the introduction file.

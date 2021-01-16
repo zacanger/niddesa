@@ -1,15 +1,18 @@
-This is the start of a possible future preface/introduction type thing.
-Obviously the work is not done, I'm mostly just taking notes here.
-
-----
+# Introduction
 
 The Niddesa is an ancient part of the Pāli Canon, the traditional texts of
-Theravada Buddhism, from the Khuddaka Nikāya in the Sutta Piṭaka. It is a
-commentary on parts of the Sutta Nipāta, and is attributed to Ven. Sāriputta
-(Pali; Sanskrit Śāriputra). There are two parts:
+Theravada Buddhism, from the Khuddaka Nikaya in the Sutta Piṭaka. It is a
+commentary on parts of the Sutta Nipata, and is attributed to Ven. Sariputta
+(Pali; Sanskrit Sariputra). There are two parts:
 
 * The Maha Niddesa (Nd1), commentary on the Atthaka Vagga (Sn 4)
 * The Culla Niddesa (Nd2), commentary on on the Parayana Vagga (Sn 5) and the Khaggavisana Sutta (Rhinoceros Sutra, Sn 1.3)
+
+It is assumed that the reader is already familiar with the Sutta Nipata; if not,
+put this book down, find a copy of that one, read it, and come back to this one
+later.
+
+## About This Translation
 
 There has never been a complete English language translation before.
 After asking around online,
@@ -19,16 +22,19 @@ would surely be valuable to learn Chinese, Sinhala, and Pali, that seemed like a
 larger project than I wanted to take on.
 
 So I automated translations from both the Sinhala and the Chinese using the
-wonders of modern technology — translation APIs from Google and Amazon and a
-little bit of glue code. I took these four ((Google + Amazon) * (Sinhala +
-Chinese)) translations and from them, built the first English translation. There
-will likely be many errors, inaccuracies, and inconsistencies in this early
-translation. I hope to be able to learn Pali and fix any mistakes in a future
-edition.
+wonders of modern technology and a bit of code, and took these four (two sources
+times two passes at translation), and wrangled them into the first English
+translation. There will likely be many errors, inaccuracies, and inconsistencies
+in this early translation. Several transliterations of the Pali are available,
+and may inform future corrections and revisions.
 
-The cover image is used under the [Creative Commons Attribution 2.0
-Generic](https://creativecommons.org/licenses/by/2.0/deed.en) license and was
-taken by [Anandajoti Bhikkhu](https://www.flickr.com/photos/64337707@N07/9224957409).
+This translation prefers Pali over Sanskrit terms (Dhamma vs. Dharma, kamma vs.
+karma, etc.), and chooses to forgo diacritics and accents, as those are both
+difficult to work with in English-language software, and difficult for most
+native English speakers to understand. To paraphrase Engels, changing the words
+we use a bit won't change the things themselves.
+
+### Credits and Licenses
 
 The Sinhala was sourced from
 [Sutta Central](https://github.com/suttacentral/sc-data/tree/5c060c479f4cb17a0891011d57d4933c81918ead/html_text/si/pli/sutta/kn)
@@ -51,6 +57,13 @@ here.
 
 The Chinese was translated by [Zhuang Chunjiang](https://agama.buddhason.org/),
 and no copyright notice could be found.
+
+This translation was edited in
+[Markdown](https://daringfireball.net/projects/markdown/) and built with
+[Pandoc](https://pandoc.org/) initially using
+[this project](https://github.com/wikiti/pandoc-book-template) as a template.
+They are licensed BSD, GPL2, and MIT, respectively. Original code used in this
+project is licensed LGPL-3.0.
 
 This translation is licensed under the
 [Creative Commons Attribution-NonCommercial-ShareAlike 4.0
