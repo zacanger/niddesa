@@ -399,174 +399,154 @@ here": "There is learning", for what reason are they said to be learning?
 (they learn to add to school???), they also learn to benefit the mind, and they
 also learn to increase wisdom.
 
----------
----------
----------
----------
----------
----------
----------
-
-What is to add to school? Here, the bhikkhu is a preceptor who lives and is
-protected by the self-control of the Polo Timucha. He has sufficient
+What is meant by "to add to school"? Here, the bhikkhu is a preceptor who lives
+in the protection of self-control of the Polo Timucha. He has sufficient
 righteousness and state of affairs. He sees the horror in minor sins and
 learns after being upheld in the school. Small precepts aggregate and large
 precept aggregates are the foundation of abstinence, the [self] inhibition
 of behavior, the entrance of self-control, the uppermost of good dhamma,
 etc., this is to increase precept learning.
 
-What is to learn more? Here, the bhikkhu starts from the desire to escape...
-(slightly) the first jhana... the second jhana... the third jhana... after
-entering, he lives in the fourth jhana [not suffering or not happy, from
-calm and chanting], this is increasing Go to school.
+What is meant by "to learn more"?
+Here, the bhikkhu starts from the desire to escape...
+(omittted) the first jhana... the second jhana... the third jhana... after
+entering, he lives in the fourth jhana [neither suffering or joyous, from calm
+and chanting], this is "to learn more".
 
-What is Zeng Shanghuilearn? Here, the bhikkhu is a wise person, possessing
-the wisdom that leads to the arising and passing away; the holy, insight,
+What is Zeng Shanghui learn (Sosamu Hui Learn)?
+Here, the bhikkhu is a wise person, possessing
+the wisdom of arising and passing away; the holy, insight,
 and the complete extinction of suffering is [the wisdom], he truthfully
-knows "This is suffering. 』…… (omitted) 『This is a hard work. "... "This
-is suffering. "Actually, I know "This is the path to misery. "... "These are
-troubles. "... "This is the trouble collection. "... "This is annoying. "To
-know the truth: "This is the path leading to troubles. 』This is to go to
-Hui School. These three learnings, they learn when they face (note); they
+knows "This is suffering. ...(omitted) This is a hard work. "...
+"This is the path that leads to suffering. "... "These are
+troubles. "... "This is the set of troubles. "... "This is annoyance. "To
+know the truth: "This is the path leading to troubles. This is the addition
+of wisdom. These three learnings, they learn when they face (note); they
 learn when they know; they learn when they see [; when they learn when
 introspection]; they learn when the mind is established (decision); they
-learn when faith prevails ; They learn when vigor and hard work; when
+learn when faith prevails; They learn with vigor and hard work; when
 mindfulness arises, they learn; when mind is set (focused) they learn; when
 wisdom is learned, they learn; when they are proved to be known, they learn;
-when omniscience They learn when they are omniscient; they learn when they
-are renounced; they learn when they are practised; when they are practised,
-they learn, they practice, they practice well, and sustain when they are
-testified. Then they turned around. For this reason they are called You Xue.
+They learn when they are omniscient; they learn through renunciation;
+they learn when they are practised;
+they practice well, and sustain when they are
+testified. Then they turned around. For this reason they are called learning.
 "Everyone" is many. These learned practitioners are Sudhavana, Sturhana,
 Anahama, and Arahat. "Here", in this view, in this liking, in this hobby,
-in this proposition, in this law, in this law, in this law, in this teaching
-language, in this Sanskrit , In the teachings of this master, in this
-individual, in this human world. "Well, everyone learns here.
+in this proposition, in this Dhamma, in this teaching,
+in this practice, In the teachings of the Master, in this
+individual, in this human world." Everyone learns here.
 
 "When the wise are asked about their behavior, my dear sir! Please tell me":
-"You are a wise, wise, wise, enlightened, wise [, separated], and wise. Those
-who are aware of the Dhamma and learned behavior, behavior, behavior, execution
-(turning up), practice, travel, residence, and path (path). "Inquired", being
-questioned; begging, being asked ; Make it clear. "Please tell", please tell,
+"You are the wise and enlightened. Those
+who know the Dhamma and learned the behavior, conduct,
+practice, travel, residing, and path. "Are asked", being
+questioned; begging, being inquired of; make it clear. "Please tell":
 please explain, please teach, please inform, please establish, please uncover,
-please analyze, please clarify, please explain. "Dear Sir", "This is love,
-honor, respect [language], and obedience." For my dear sir." When the wise are
+please analyze, please clarify. "Dear Sir", This is the language of love,
+honor, respect, and obedience. "For my dear sir." When the wise are
 asked about their behavior, dear sir! Please tell me.
 
-     Because of that, the brahmin said:
+Because of that, the Brahmin said:
+"All those who are aware of the Dhamma, and everyone who has learned here,
+When I ask the wise men their behavior, dear sir! Please tell me."
 
-     "All those who are aware of the Dhamma, and everyone who has learned here,
+8. You should not be greedy in desire, and your mind should not be muddy,
+this is a skillful person of all dhamma, and the bhikkhu should process
+mindfulness.
 
-       When I asked the wise men their behavior, dear sir! Please tell me. "
-
-     8. You should not be greedy in desire, and your mind should not be muddy,
-
-       is a skillful person of all dhamma, and the monk should march with
-       thought.
-
-     "Should not be greedy on desire": "Desire", there are two kinds of desires
-     from the eulogy: the desire for things and the desire for pollution. What
-     are the desires of things? Desirable color, desirable sound, desirable
-     smell, desirable taste, desirable touch, bedding, clothing, maidservants,
-     goats and sheep, chickens and pigs, elephants, cows, horses, mules, horses,
-     fields, houses, gold, gold coins, villages and towns Capitals, countries,
-     territories, treasuries, warehouses, everything that can be tainted by
-     greed is the desire of things.
+"Should not be greedy in desire": "Desire", there are two kinds of desires
+from the eulogy (from praise???): the desire for things and the desire for pollution. What
+are the desires for things? Desirable sight, sound,
+smell, taste, touch, bedding, clothing, maidservants,
+goats and sheep, chickens and pigs, elephants, cows, horses, mules, horses,
+fields, houses, gold, gold coins, villages and towns, capitals, countries,
+territories, treasuries, warehouses, everything that can be tainted by
+greed is the desire for things.
 
 In addition, there are past desires, future desires, present desires, internal
 desires, external desires, internal and external desires, inferior desires,
 medium desires, superior desires, desires in the suffering world, and human
-desires. Desire, heaven’s desire, existing desire, created desire [, uncreated
-desire], created desire by others, possessed desire, unoccupied desire,
-cherished desire, The desires that are not cherished, the desires of all the
+desires. Heaven’s desire, existing desire, created desire, uncreated
+desire, created desire by others, possessed desire, unoccupied desire,
+cherished desire, the desires that are not cherished, the desires of all the
 worlds of desire, the desires of all the worlds of physicality, all the desires
 of the world of non-material worlds, rely on thirst and desire for love, so that
-people want righteousness; Greed and righteousness; the desire to be intoxicated
+people want righteousness; greed and righteousness; the desire to be intoxicated
 by righteousness and happiness is called the desire for things.
 
-    What is the desire for pollution? The desire of desire, the desire of greed,
-    the desire of desire to greed, the desire of intention, the desire of greed,
-    the desire of intention greed, that is the desire of desire, the greed of
-    desire, the joy of desire, the desire of desire, Desire love, desire,
-    desire, desire, desire, obsession, desire, desire violent, desire yoke
-    (binding), desire attachment, desire cover.
+What is the desire for defilement? The desire for desire, the desire for greed,
+the desire of desire to greed, the desire of intention, the desire for lust, the
+desire for intention, the joy of desire, love obsession, desire, the binding
+yoke of desire, attachment, the desire for cover (protection?).
 
-     "Seeing those roots of desire, wanting you to be produced by thought
-     (intention),
+"Seeing those roots of desire, wanting to be produced by thought (intention),
+I will not think of them, so desire will not exist. "[Jat.8.421]
 
-       I will not think of you, so desire will not exist. "[Jat.8.421]
+These are called polluting desires.. Craving thirst, attachment, it is
+greed, lust... (abbreviated) unwholesome roots. "Should not
+be greedy in desire": "The desire to pollute should not be greedy or
+obstructed in the desire of things. It should be separated from the greedy,
+and those who have excluded greed, have been
+freed from greed, have renounced greed, have no greed, have eliminated
+greed, those who have attained the cessation of greed,
+have no hunger and thirst, those who have extinguished, have
+become cool, and feel joy,, should live as a brahman. "Because
+we should not be greedy in desire."
 
-     These are called the desire for pollution. Craving is called craving, it is
-     greed, greed... (abbreviated) greed, greed, unwholesome roots. "Should not
-     be greedy in desire": "The desire to pollute should not be greedy or
-     obstructed in the desire of things. It should be separated from the greedy,
-     the greedy, the greedy, and theThose who have excluded greed, have been
-     freed from greed, have renounced greed, have renounced greed, have
-     renounced greed, have no greed, have renounced greed, have eliminated
-     greed, have been freed from greed, have renounced greed Those who have
-     ceased greed, have no hunger and thirst, those who have extinguished, have
-     become cool, and those who feel happy, should live as a brahman. "Because
-     we should not be greedy in desire.
-
-"Mind should not be muddy": "Intention": all the heart, mind, mind, heart
-(dirty), white (clean), mind, mind, mind, consciousness, consciousness,
-corresponding to that consciousness . Acting evil with the body, the mind
-becomes turbid, agitated, moving, impacting, fluctuating, rotating, and
+"Mind should not be muddy": "meaing": all the heart, mind, heart (dirty),
+white (clean), meaning, intentions, consciousness, corresponding to that
+consciousness. With evil acts of the body, the mind
+becomes turbid, agitated, moving, impacting, volatile, fluctuating, rotating, and
 restless; acting evil with words... (omitted) acting evil with intention... with
-greed... Affliction...with ignorance...with anger...with resentment...with
+greed... Affliction...with ignorance...with anger...with resentment...to hide
 evil...with domineering...with jealousy...with stinginess...with
-hypocrisy...with cunning...with stubbornness...with passion...with Slow... With
-extremely slow... With slow... With letting go... With all pollution... With all
-evil... With all troubles... With all heat... With all the heat (suffering)...
-The mind with all unwholesomeness becomes turbid, agitated, dynamic, bumping,
+hypocrisy...with cunning...with stubbornness...with passion...with slowness... with
+extreme slowness... with letting go... with all pollution... with all
+evil deeds... with all troubles... with all heat... With all the heat (suffering)...
+The unwholesome mind turbid, agitated, volatile,
 fluctuating, rotating, and restless. "The mind should not be muddy": "The mind
-should not be muddy: not to be disturbed, not shaken, not moved, not rotated,
-calmed down, not to be muddy, and all pollution should be abandoned. It should
-be abandoned, it should be driven away, it should be ended, it should be made to
-cease to exist. It should (Cambodia version) have been separated from muddy and
-pollution, abstained, abstained, separated, left, liberated , He is free from
-the bondage, he should live with the heart of being free from being restricted."
-The mind should not be muddy.
+should not be cloudy: not disturbed, not shaken, not moved, not rotated,
+calmed down, and all pollution should be abandoned. It should
+be abandoned, it should be discarded, it should be driven away, it should be
+ended, it should be made to cease to exist. It should
+be separated from muddiness and pollution, quashed, abstained, separated, left,
+liberated. He is free from bondage, he should live with a heart free from
+restriction." The mind should not be muddy.
 
-"It is the skillful person of all Dhamma": ""All actions are impermanent" are
-the skillful persons of all Dhamma; "All actions are suffering" are the skillful
-ones of all Dhamma; "All actions are without self" are the goodness of all
-Dhamma The skillful person; the skillful person of all dhammas that "deeds with
-ignorance as the cause" is the skillful person of all dhammas...
+"This is a skillful person of all the Dhamma": "All actions are impermanent"
+knows the one skillful in all the Dhamma; "All actions are suffering"; ... "all
+actions are without self" is the goodness of the Dhamma. The person skillful in
+all dhammas knows that "ignorance is the cause of all deeds".
 
-Or, [see] as an impermanent skillful person for all laws; it is suffering...
-(slightly omitted) it is disease... it is tumor... it is arrow... it is curse...
-it is disease... it is On the other side...is corrupt...is catastrophic...is
-scourge...is terror...is disaster...is mobile...is perishable...is unstable...is
-no shelter... ...Is no refuge...is no refuge...is no refuge...is
-surrendered...is hypocritical...is empty...is selfless...is trouble...is the law
-of change... ...Is untrue...is the root of misfortune...is the murderer...is
-nothing...is troublesome...is promising...is magic food (bait)...is life...is
-The old method...the method of disease...the method of death...the method of
-sorrow, sorrow and despair...the method of pollution...the collection...the
-extinction...the pleasure...the trouble...the renunciation For the skillful of
-all laws, this is also the skill of all laws.
+Or [seen as] and impermanent skillful person for the good of all dhammas;
+it is suffering... (omitted) it is disease... it is the tumor... it is the arrow...
+the curse... the other side (??)... corruption... disaster... movable...
+perishable...unstable... it is no refuge... is miserable... the root of
+misfortune... hypocritical... empty... selfless... it is the law of
+impermancence... the murderer... promising... bait... is life... the old
+method (or lit. law??)...  the method of sorrow and despair, of pollution,
+the pleasure... the extinction... the trouble..., a good man who renounces
+for the skillfulness of all dhammas.
 
-Or, the clever person of the aggregate, the clever person of the realm, the
-clever person of the place, the clever person of dependent origin, the clever
-person of mindfulness, the clever person of righteousness, the clever person of
-the gods, the clever person of the root, the clever person of power, the clever
-person of consciousness The skillful person of support, the skillful person of
-Tao, the skillful person of fruit, and the skillful person of Nirvana, this is
-also the skillful person of all laws.
+Or, the person skillful with the aggregates, ...of the would, ...of the place,
+...with dependendent origination, of mindfulness, righteousness, the gods,
+...of the root, of power, of consciousness, of support, of the Path, of the
+Fruit, of Nibbana; this is also a person skillful in all the Dhamma.
 
 Or, all dhamma is called the twelve places: eyes and colors, ears and sounds,
 nose and smell, tongue and taste, body and touch, mind and dhamma, and because
-of desire and greed in the inner and outer parts of oneself Being cut off, the
+of desire and greed in the inner and outer parts of oneself being cut off, the
 roots have been cut off, just like a palm tree without roots, becoming a
-non-existent, immortal thing for the future. This situation is also a skillful
-person of all laws. "Being a skilful person in all laws.
+non-existent, non-living thing for the future. This situation is also a skillful
+person of all the Dhamma. "Being a skilful person in all laws."
 
-"Bhikkhus should process mindfully": "Conscientiously" in four ways: when
-practicing mindfulness on the body, be mindful, when practicing mindfulness on
-receiving It is mindful when it is mindful, when it is mindful when it is
-practiced in mind to mind mindfulness, and it is mindful when it is practiced in
-mindfulness.
+"Bhikkhus should process mindfully": "mindfully" in four ways: when
+practicing mindfulness on the body, when practicing mindfulness on
+receiving, when watching the mind in the heart, when the practice is in line
+with the teachings, it is mindful.
+
+___CHECKPOINT___
 
 The next one is conscientious in four ways: the state of avoiding non-mind is
 conscientious, the state of the Dhamma that should be done to the mind is
