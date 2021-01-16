@@ -35,7 +35,7 @@ To try the translation code for yourself, see the notes in code/translate.
 
 To build assets, run `make`. You will need various dependencies: make, pandoc, a
 LaTeX setup including xetex (mactex or texlive-xetex, depending on your
-platform), as well as Noto fonts (for the moment, this may change).
+platform), as well as the Cardo font.
 
 ## Licensing
 
