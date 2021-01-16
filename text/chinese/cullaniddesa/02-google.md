@@ -124,7 +124,7 @@ inquiring for profit,  illegal greed, improper
 greed, hope, envy, desire for desire, desire for
 some, desire for nothingness, desire for sex, colorless thirst, extinguished
 thirst, erotic thirst, sound thirst, smell thirst, taste thirst, touch thirst,
-dharma thirst, torrent, yoke (binding), binding, clinging, obstacles, covering,
+dhamma thirst, torrent, yoke (binding), binding, clinging, obstacles, covering,
 covering, defilements, potential trends of troubles, entanglement,
 vines, stinginess, suffering roots, causes of suffering, occurrence of
 suffering, magical nets, magical hooks, magical food, the realm of the devil,
@@ -258,7 +258,7 @@ contact"..."Extinction with thirst"..."Extinction with thirst and love"...
 with existence and decay"..."Birth and death to grow old and die." When known
 and seen, these flows are closed and cut off by wisdom, they do not flow,
 do not flow out; "This is suffering" is the
-rendezvous, after seeing the Dharma; "This is the aggregation of
+rendezvous, after seeing the Dhamma; "This is the aggregation of
 suffering"...  "This is the cessation of suffering"...
 "This is the path leading to the cessation suffering". When it is known and
 seen, these flows are closed and cut off by wisdom, they do not flow
@@ -296,7 +296,7 @@ learned virtuous wisdom, proficiency, cleverness, study, reflection, review,
 contemplation, examination, general comprehensive wisdom,
 Vipassana, Right Knowledge, Sting Rod, Wisdom Root, Wisdom
 Sword, Wisdom Palace, Wisdom Bright, Wisdom Light, Wisdom Light, No
-Deception, Choosing Dharma , Right view. "Mind", common mind, free mind...
+Deception, Choosing Dhamma , Right view. "Mind", common mind, free mind...
 (omitted) mindfulness." It is [Venerable A Yiduo like this:] Wisdom and Mind.
 
 "And name and form, dear sir": ""Name" is the four formless aggregates.
@@ -316,145 +316,136 @@ non-existence, ceased." For where this is destroyed.
 
 Because of that, the Brahmin said:
 "[Venerable A Yiduo like this:] Wise and Mind, and name and form, dear sir!
-When I asked this, please tell me, where is this destroyed? "
+When I asked this, please tell me, where is this destroyed?"
 
-
-----------------------
-MARKER pick up again tomorrow here
-----------------------
-
-
-6. Anyone asked this question, Aida! I tell you that,
-
-where the name and color are destroyed without any remaining:
-
-With the extinguishment of consciousness, this is destroyed here.
+6. Where to ask this question, Aida! I will tell you that,
+where name and form are destroyed without any remaining:
+With the extinguishing of consciousness, this is destroyed here.
 
 "Where the question is asked": ""Where this" is wisdom, mind, name and
-form."Ask", you ask; what you beg for; you ask; make you clear. "Wei Fan
-asked this question.
+form. "Ask", you ask; what you beg for; you ask; make you clear." Where to
+ask this question.
 
-"Ayiduo! I will tell you that": ""Ayiduo", the world deity calls himself that
-Brahman by his name. "That" is wisdom, mind, name and form. "I tell", I tell, I
-explain, I teach, I inform, I build, I uncover, I parse, I clarify, I explain."
-For Aiduo! I tell you that.
+"Ayiduo! I will tell you that": ""Ayiduo", the Buddha calls that
+Brahman by his name. "That" is wisdom, mind, name and form. "I tell", I explain,
+I teach, I inform, I build, I uncover, I parse, I clarify, I explain."
+Ayiudo! I'll yell you that.
 
-"There is no surplus of name and form being destroyed": ""Name" is the four
-colorless aggregates. "Rule" is the form created by the four great and four
-great things. "No surplus", all completely, each The aspect is completely,
-without surplus, and the whole earth. This is the word of "no surplus".
-"Destroyed", destroyed, calmed down, walked to non-existence, ceased." is the
-name of the place. And color, there is no left to be destroyed.
+"Where name and form are destroyed without remainder": ""Name" is the four
+colorless aggregates. "Form" is the form created by the four great and four
+great things. "Without remainder", completely, without surplus,
+and the whole earth. This is the meaning of "without remainder".
+"Destroyed", destroyed, calmed down, walked to non-existence, ceased."
+For name and form in the place, there is nothing left to be destroyed.
 
-"The destruction of consciousness is destroyed here": "The destruction of
-consciousness through the Taohuan Taoist wisdom, except for the seven beings,
+"The destruction of consciousness, here it is destroyed": "The destruction of
+consciousness through the wisdom of the, except for the seven beings,
 all names and forms that can arise in the endless cycle of rebirth are here
-These are all annihilated, calmed down, gone to non-existence, and ceased.
-Through the one-way wisdom, to create the annihilation of consciousness, except
+annihilated, calmed down, gone to non-existence, and ceased.
+Through the way of wisdom, to create the annihilation of consciousness, except
 for the two beings, all the names and forms that can arise in the five and five
-beings are here. All are destroyed, calmed down, come to non-existence, stop.
-Through the non-return of the Taoist wisdom, to create the destruction of
+beings are here are destroyed, calmed down, come to non-existence, ceased.
+Through the non-return of wisdom, to create the destruction of
 consciousness, except for one existence, all the names and forms that can arise
-in the physical and non-material realms are here These are all annihilated,
-calmed down, walked to non-existence, and ceased. The Arahant passes through the
-non-remaining Nirvana realm to extinguish the final consciousness at the time of
+in the physical and non-material realms are here annihilated,
+calmed down, walked to non-existence, and ceased. The Arahat passes through the
+non-remaining Nibbana realm to extinguish the final consciousness at the time of
 nibbana. Wisdom, mindfulness, name, and form are all destroyed and calmed here.
-Come down, go to non-existence, stop." This is the destruction of consciousness,
+Come down, go to non-existence, cease." This is the destruction of consciousness,
 where this is destroyed.
 
-     Because of that, the Lord said:
+Because of this, the Buddha said:
+"Whenever you ask this question, Ayiduo! I will tell you,
+where name and form are destroyed without any remaining:
+With the extinguishing of consciousness, they are destroyed."
 
-     "Whenever you ask this question, Aida! I will tell you that,
+7. Those who know the Dhamma, and everyone leraning here,
+When I ask the wise about their behavior, dear sir! Please tell me. [SN.12.31]
 
-       where the name and color are destroyed without any remaining:
+"Those know know the Dhamma": Those who perceive the Dhamma are called
+Arahats, those who have exhausted their troubles. For what reason is the
+enlightened person called an Arahat, a person who has exhausted his
+troubles? They are the perceivers of the Dhamma, the knowers of the Dhamma,
+the measurers of the Dhamma, the judges of the Dhamma, the clear ones.
+"All actions are impermanent", the perceiver of
+the Dhamma, the knower of the Dhamma, the weigher of the Dhamma, the judge
+of the Dhamma; the observation
+of the Dhamma "all actions are suffering" The enlightened person...
+(abbreviated) The enlightened person of the Dhamma of "all action is
+no-self"... the enlightened person of the Dhamma of "action based on
+ignorance"... the Dhamma of "all dhammas are extinguished" The one who
+perceives the Dhamma, the one who knows the Dhamma, the one who judges the
+Dhamma, the one who understands the Dhamma.
+Or, to them, it is the enlightened person of the
+aggregate, the enlightened person of the realm, the enlightened person of
+the place, the enlightened person of interest, the enlightened person of
+rebirth, the enlightened person of rebirth,
+the reincarnation of the perceiver, the reincarnation of the perceiver. Or,
+they are the inhabitants of the ultimate (boundary), the ultimate in the
+world, the ultimate in the place, the ultimate in the place of interest,
+the ultimate in the rebirth, the Those who live the ultimate, those who
+have the ultimate, those who are the ultimate in rebirth, those who are the
+ultimate in the cycle, the Arahat who holds the last body.
 
-       With the extinguishment of consciousness, this is destroyed here. "
+"[In the uncountable tribulations, they are the ones who gain the body,]
+This is their last, final body.
 
-    7. Everyone who is aware of the Dharma, and everyone who has learned here,
+The reincarnation of life and death, without them there will be (rebirth). "[Thag.202]
 
-       When I asked the wise men their behavior, dear sir! Please tell me.
-       [SN.12.31]
+For this reason, the enlightened person is called an Arahat, a person who
+has exhausted his troubles. "Those who knowthe Dhamma, and everyone learning
+here": "There is learning", for what reason are they said to be learning?
+"They learn", hence learning. And what do they learn? The learn to quit learning
+(they learn to add to school???), they also learn to benefit the mind, and they
+also learn to increase wisdom.
 
-     "Anyone who perceives the Dhamma": Those who perceive the Dhamma are called
-     Arahants, those who have exhausted their troubles. For what reason is the
-     enlightened person called an Arahant, a person who has exhausted his
-     troubles? They are the perceivers of the Dhamma, the knowers of the Dhamma,
-     the measurers of the Dhamma, the judges of the Dhamma, the clear ones, and
-     the knowers of the Dhamma. "All actions are impermanent", the perceiver of
-     the Dhamma, the knower of the Dhamma, the weigher of the Dhamma, the judge
-     of the Dhamma, the clearer, and the knower of the Dhamma; the observation
-     of the Dhamma "all actions are suffering" The enlightened person...
-     (abbreviated) The enlightened person of the law of "all action is
-     no-self"... the enlightened person of the law of "action based on
-     ignorance"... the law of "all dhammas are extinguished" The one who
-     perceives the law, the one who knows the law, the one who judges the law,
-     the one who judges the law, the one who knows the law, the one who
-     understands the law. Or, to them, it is the enlightened person of the
-     aggregate, the enlightened person of the realm, the enlightened person of
-     the place, the enlightened person of interest, the enlightened person of
-     rebirth, the enlightened person of rebirth, and some enlightened persons. ,
-     The reincarnation of the perceiver, the reincarnation of the perceiver. Or,
-     they are the inhabitants of the ultimate (boundary), the ultimate in the
-     world, the ultimate in the place, the ultimate in the place of interest,
-     the ultimate in the rebirth, the Those who live the ultimate, those who
-     have the ultimate, those who are the ultimate in rebirth, those who are the
-     ultimate in the cycle [, those who are in the ultimate], those who are in
-     the end, those who are The resident who gathers (the body) last, the
-     Arahant who holds the last body.
+---------
+---------
+---------
+---------
+---------
+---------
+---------
 
-     "[In the uncountable tribulations, they are the ones who gain the body,]
+What is to add to school? Here, the bhikkhu is a preceptor who lives and is
+protected by the self-control of the Polo Timucha. He has sufficient
+righteousness and state of affairs. He sees the horror in minor sins and
+learns after being upheld in the school. Small precepts aggregate and large
+precept aggregates are the foundation of abstinence, the [self] inhibition
+of behavior, the entrance of self-control, the uppermost of good dhamma,
+etc., this is to increase precept learning.
 
-       This is their last, last gathering (body),
+What is to learn more? Here, the bhikkhu starts from the desire to escape...
+(slightly) the first jhana... the second jhana... the third jhana... after
+entering, he lives in the fourth jhana [not suffering or not happy, from
+calm and chanting], this is increasing Go to school.
 
-       The reincarnation of life and death, without them there will be
-       (rebirth). "[Thag.202]
-
-    For this reason, the enlightened person is called an Arahant, a person who
-    has exhausted his troubles. "Anyone who is aware of the Dharma, and everyone
-    here has learned": ""There is learning", how do they call them learned?
-    "They learn" as learned. And what do they learn? They learn more Quit
-    learning, they also learn to increase mind learning, they also learn to
-    increase wisdom learning.
-
-    What is to add to school? Here, the bhikkhu is a preceptor who lives and is
-    protected by the self-control of the Polo Timucha. He has sufficient
-    righteousness and state of affairs. He sees the horror in minor sins and
-    learns after being upheld in the school. Small precepts aggregate and large
-    precept aggregates are the foundation of abstinence, the [self] inhibition
-    of behavior, the entrance of self-control, the uppermost of good dharma,
-    etc., this is to increase precept learning.
-
-    What is to learn more? Here, the bhikkhu starts from the desire to escape...
-    (slightly) the first jhana... the second jhana... the third jhana... after
-    entering, he lives in the fourth jhana [not suffering or not happy, from
-    calm and chanting], this is increasing Go to school.
-
-    What is Zeng Shanghuilearn? Here, the bhikkhu is a wise person, possessing
-    the wisdom that leads to the arising and passing away; the holy, insight,
-    and the complete extinction of suffering is [the wisdom], he truthfully
-    knows "This is suffering. 』…… (omitted) 『This is a hard work. "... "This
-    is suffering. "Actually, I know "This is the path to misery. "... "These are
-    troubles. "... "This is the trouble collection. "... "This is annoying. "To
-    know the truth: "This is the path leading to troubles. 』This is to go to
-    Hui School. These three learnings, they learn when they face (note); they
-    learn when they know; they learn when they see [; when they learn when
-    introspection]; they learn when the mind is established (decision); they
-    learn when faith prevails ; They learn when vigor and hard work; when
-    mindfulness arises, they learn; when mind is set (focused) they learn; when
-    wisdom is learned, they learn; when they are proved to be known, they learn;
-    when omniscience They learn when they are omniscient; they learn when they
-    are renounced; they learn when they are practised; when they are practised,
-    they learn, they practice, they practice well, and sustain when they are
-    testified. Then they turned around. For this reason they are called You Xue.
-    "Everyone" is many. These learned practitioners are Sudhavana, Sturhana,
-    Anahama, and Arahant. "Here", in this view, in this liking, in this hobby,
-    in this proposition, in this law, in this law, in this law, in this teaching
-    language, in this Sanskrit , In the teachings of this master, in this
-    individual, in this human world. "Well, everyone learns here.
+What is Zeng Shanghuilearn? Here, the bhikkhu is a wise person, possessing
+the wisdom that leads to the arising and passing away; the holy, insight,
+and the complete extinction of suffering is [the wisdom], he truthfully
+knows "This is suffering. 』…… (omitted) 『This is a hard work. "... "This
+is suffering. "Actually, I know "This is the path to misery. "... "These are
+troubles. "... "This is the trouble collection. "... "This is annoying. "To
+know the truth: "This is the path leading to troubles. 』This is to go to
+Hui School. These three learnings, they learn when they face (note); they
+learn when they know; they learn when they see [; when they learn when
+introspection]; they learn when the mind is established (decision); they
+learn when faith prevails ; They learn when vigor and hard work; when
+mindfulness arises, they learn; when mind is set (focused) they learn; when
+wisdom is learned, they learn; when they are proved to be known, they learn;
+when omniscience They learn when they are omniscient; they learn when they
+are renounced; they learn when they are practised; when they are practised,
+they learn, they practice, they practice well, and sustain when they are
+testified. Then they turned around. For this reason they are called You Xue.
+"Everyone" is many. These learned practitioners are Sudhavana, Sturhana,
+Anahama, and Arahat. "Here", in this view, in this liking, in this hobby,
+in this proposition, in this law, in this law, in this law, in this teaching
+language, in this Sanskrit , In the teachings of this master, in this
+individual, in this human world. "Well, everyone learns here.
 
 "When the wise are asked about their behavior, my dear sir! Please tell me":
 "You are a wise, wise, wise, enlightened, wise [, separated], and wise. Those
-who are aware of the Dharma and learned behavior, behavior, behavior, execution
+who are aware of the Dhamma and learned behavior, behavior, behavior, execution
 (turning up), practice, travel, residence, and path (path). "Inquired", being
 questioned; begging, being asked ; Make it clear. "Please tell", please tell,
 please explain, please teach, please inform, please establish, please uncover,
@@ -464,13 +455,13 @@ asked about their behavior, dear sir! Please tell me.
 
      Because of that, the brahmin said:
 
-     "All those who are aware of the Dharma, and everyone who has learned here,
+     "All those who are aware of the Dhamma, and everyone who has learned here,
 
        When I asked the wise men their behavior, dear sir! Please tell me. "
 
      8. You should not be greedy in desire, and your mind should not be muddy,
 
-       is a skillful person of all dharma, and the monk should march with
+       is a skillful person of all dhamma, and the monk should march with
        thought.
 
      "Should not be greedy on desire": "Desire", there are two kinds of desires
@@ -537,10 +528,10 @@ pollution, abstained, abstained, separated, left, liberated , He is free from
 the bondage, he should live with the heart of being free from being restricted."
 The mind should not be muddy.
 
-"It is the skillful person of all Dharma": ""All actions are impermanent" are
-the skillful persons of all Dharma; "All actions are suffering" are the skillful
-ones of all Dharma; "All actions are without self" are the goodness of all
-Dharma The skillful person; the skillful person of all dharmas that "deeds with
+"It is the skillful person of all Dhamma": ""All actions are impermanent" are
+the skillful persons of all Dhamma; "All actions are suffering" are the skillful
+ones of all Dhamma; "All actions are without self" are the goodness of all
+Dhamma The skillful person; the skillful person of all dhammas that "deeds with
 ignorance as the cause" is the skillful person of all dhammas...
 
 Or, [see] as an impermanent skillful person for all laws; it is suffering...
@@ -564,8 +555,8 @@ person of consciousness The skillful person of support, the skillful person of
 Tao, the skillful person of fruit, and the skillful person of Nirvana, this is
 also the skillful person of all laws.
 
-Or, all dharma is called the twelve places: eyes and colors, ears and sounds,
-nose and smell, tongue and taste, body and touch, mind and dharma, and because
+Or, all dhamma is called the twelve places: eyes and colors, ears and sounds,
+nose and smell, tongue and taste, body and touch, mind and dhamma, and because
 of desire and greed in the inner and outer parts of oneself Being cut off, the
 roots have been cut off, just like a palm tree without roots, becoming a
 non-existent, immortal thing for the future. This situation is also a skillful
@@ -589,7 +580,7 @@ state of mindfulness is not lowered. of.
 The next one is thoughtful in four ways: {take the state of being mindful as the
 mindful,}take the state of mindfulness as the mindful, the quiet state as the
 mindful, and the calm state as the mindful , ToThe state with the silent Dhamma
-is the mindful; the Buddha's mindfulness is the mindful, the Dharma mindfulness
+is the mindful; the Buddha's mindfulness is the mindful, the Dhamma mindfulness
 is the mindful, the Sangha's mindfulness is the mindful, the precepts and the
 mindfulness is the mindful, and the alms follow The mind is the mindful, the
 mind of the sky is the mind; the mind of the in and out breath is the mind, the
@@ -598,7 +589,7 @@ silence is the mind; all Mindfulness, free-mindfulness... (slightly omitted)
 Mindfulness, mindfulness, and the path without a fork are called mindfulness.
 Having, being fully possessed, reaching, fully reaching, possessing, being fully
 possessed, possessing this thought, he is called mindful. "Bhikkhu", the
-destroyed state of the Seven Dharma is Bhikkhu: seeing is destroyed, suspicion
+destroyed state of the Seven Dhamma is Bhikkhu: seeing is destroyed, suspicion
 is destroyed, prohibition is destroyed, greed is destroyed, anger is destroyed,
 delusion is destroyed, slow is destroyed, and those evil and unwholesome methods
 are destroyed. : Favor the pollution, the others, the fear, the bitter fruit,
@@ -624,14 +615,14 @@ march with thought.
 
      "You should not be greedy in desire, your mind should not be muddy,
 
-       is a skillful person of all dharma, and the monk should march with
+       is a skillful person of all dhamma, and the monk should march with
        thought. "
 
 At the same time as the verse ends, for those who live with the same intention,
 same endeavor, same intention, and same dwelling place as the Brahman, the
 distant dust and dhamma eyes of thousands of living things arise: "Any
 collection of dhammas is an extinction." The mind of a brahmin is free from all
-defilements by not clinging. Along with reaching the realm of Arahant, sheepskin
+defilements by not clinging. Along with reaching the realm of Arahat, sheepskin
 clothing, knotted hair, bark clothing, sticks, long-mouthed water bottles, hair
 and beards disappeared, becoming bald, robes, cloth clothes, overcoats, bowls,
 and clothes. Respect the Blessed One, sit down: "Dade! The Blessed One is my
