@@ -1,109 +1,301 @@
-Explanation of the other side goods
- 1. The statement asked by Brahmen, Ayddo student
- 1. [Like this, His Holiness Aydot:] What is enveloped in the world? Because of what does not shine?
- What do you say is its dyed? What is its big horror?
- “What is encroachment in the world”: “The world, the world of hell, the worlds of the animal, the worlds of evil worlds, the worlds of mankind, the world of heaven, the worlds of the worlds, the worlds of worlds, the world of The rest of the world, the world of the heaven, the world of heaven, this is called the world. What the world is covered, covered, obscured, closed, hidden, covered.” For what the world will be wrapped.
- “[Aydor, His Holiness like this]”: “Like this, the continuation of the sentence; the link of the sentence; the success of the sentence; the combination of words; the connection of words; this is the second sentence, “like this.” “His Holiness,” this is synonyms of love, respect, obedience. “His Holiness.” “Aryddo,” the name of the Brahman's name, name, name, Anli, common name, name, name, title, word, phrase, name. For [Aydas, His Holiness like this].
- “For what does not shine”: “For what does not shine, does not shine, not illuminate, not bright, not known, not known, not known.” Because of what does not shine?
- “What do you say is its dyeing”: “What is the adhesion, adhesion, bonding, and coloring in the world? Because of what the world is contaminated, strongly contaminated, tightly contaminated (polluted), polluted, polluted, contaminated, mixed, attached, entrenched, handicapped, you say, you explain, you teach, you tell , you build, you uncover, you parse, you clarify, you explain.” For what you say is its dyed.
- “What is its great horror”: “What is the horror of the world, the great horror, oppression, blow, evil, evil.” Why is its big horror?
- Because then, the Brahman said:
- “[His Holiness, like this, Aydto:] What is enveloped in the world? Because of what does not shine?
- What do you say is its dyed? What is its great horror?”
- 2. [Worldplace: “Ayddo!”] The world is covered by unclear, because of saving stingy, relaxation does not shine,
- I say that enthusiasm is [its] dyed, bitterness is its great terror
- “Unknown”: “Unknown”, ignorance in bitterness, ignorance in bitterness, ignorance in bitterness, ignorance on the trail leading to bitterness, ignorance in the past, ignorance in the future, in The ignorance of the past and the future, ignorance on certain conditions and origins of law, such as ignorance, invisible, unrealistic, unconscious, unconscious, unaccessible, unsolidified, ununderstood, incorrectly seen, not Provincial inspection, {do not know], inclement, ignorance, ignorance, obsession, obsession, unclear, unclear, unclear rim, unclear yoke, unclear troubles potential trend, unknown entanglement, unclear fence, obsession Good roots, which is called unclear.
- “Worlds,” the worlds of hell, the world of the beasts, the worlds of evil worlds, the worlds of mankind, the world of heaven, the worlds of the worlds, the worlds of worlds, the worlds of the world, the world of the world The world of heaven, which is called the world. This world is covered by this unknown, covered, obscured, closed, hidden, covered.” For the world was enveloped by no means.
- “Arydow: Worldman named the Brahman by name. “Worldworld”, synonyms of respect. In addition, the “corrupt” is worldly; “destroyed” is worldly; “spoilt the slower” is worldly; “destroyed the slower” is worldly; “destroyed” is worldly; “has destroyed the thorns” for Worldship; “Destroy the polluter” for worldship; “division, analysis, distinction” for worldship; “some end” for worldship; “have been practiced, the heart has been practiced, the heart has been practiced, Hui has been practiced” for worldship ; or “Worldmaster close to the forest, wilderness, edge dwelling (sitting place): less voice, quiet, away atmosphere, person alone, suitable for sitting alone”; or 'Worldship is clothes, feeding, dwellings, The patient's needs, medical necessities are worldly; or “Worldworld is the meaning, flavor, relief, increase the ring, increase the heart, increase the whims, add the heart, increase the whimsiness”; or “Worldzou is four kinds of Zen, four infinite amount 、Four colorless to score” for worldship; or “Worldship is eight relief, eight wins, nine times the first place to have points” for worldship; or “Worldworld is ten want to practice, [ten] everywhere to wait, into and out of mind, etc. To, not net to have points” for worldly; or “Worldest is four, four positive, four gods, five, five forces, seven senses, eight holy ways” for worldly; or “Worldly is ten as a force, four fearless 、Four unhindered solutions、Six“God and six senses” are worldly. Worldworld, this name is not given by the mother; not given by the father; given by a non-brother; given by a non-sister; given by a non-friend; not his relatives; not by Salmon and Brahmen; Unheavenly This is the relief of the Buddha, worldly, and under the linden tree, and the acquisition and testimony of all wisdom and wisdom, that is, Worldom. for [Worldhotel: “Ayddo!”].
- “Because of the stingy, ease does not shine”: saving stingy is called five kinds of saving: [right] of living, home saving, profit, praise of saving, saving stingy, all like this stingy, saving stingy State, greedy, stingy, stingy, heart clenched state, this is called stingy. In addition, stingy is also a stingy; the world is also stingy; being stingy is also a stingent [, this] is called stingy. In evil deeds, or in the words of evil, or in the wicked deeds, or in the five kinds of desire to relax can be turned, the abandonment of the heart is not born, or to the practice of good law, the state of irregularities, no The state of nonstop, the state of being adhered to habit, negligent state, negligent in the state of responsibility, no practice, no practice, no practice, no practice, relaxation. Where such a state of relaxation, permisence, and permisence, this is called relaxation. “Because of the stingy, ease does not shine”: “The world because of this stingy, this relaxation does not shine, does not shine, not illuminate, not bright, not known, not known.” Because of the stingy, relaxation does not shine.
- “I say that enthusiasm is [its] dyed”: “Enthusiasm is called thirsty love, it is greedy, lust (total greedy), with greed, comfortable, rejoice, greedy, greedy, greedy, greedy, greedy, greedy, greedy, dyed , Sludge, Disturbance, False, [Reincarnation] Roots, [bitter] fertility, Tailor (greedy), Net, River, Bondage, Rope, Persistent, Stacked, Companion, Wish, Pipeline, Forest (Forest), Love Forest (jungle), intimate interaction [santhavo?] , love, expectation, relationship, desire, desire, desire, state of desire, desire of color, desire of voice, desire for smell, desire of taste, desire to touch, desire to obtain, desire of wealth, the desire of the son, The desire to live, desire, hope, pray, greed, state of greed, greed, state of greed, state of greed, ask [profit], wings for good, illegal greed, wrong greed, desire, desire, Hope, envy, complete hope, desire thirst love, some thirst love, nothingness thirst love, color thirst love, colorless thirst love, quench thirst love, color thirst love, voice thirst love, taste thirst love, touch The thirst of love, the law of thirst love, riot, yoke (bondage), binding, execution, obstacle, cover, cover, binding, with contamination, troubles potential trend, entangling, gummy, stingy, bitterness, the occurrence of bitterness, the occurrence of the magic Net, magic hooks, magic food, magic realm, magic dwelling, magic land, magic bondage, thirsty love river, thirsty love network, thirsty love rope, thirsty love sea, greed, bad roots. This is called enthusiasm. Adhesion to the world, adhesion, bound, and colluded, because this enthusiasm the world is contaminated, strongly contaminated, polluted, polluted, polluted, contaminated, mixed, attached, entrenched, obstructed, I said, I explain, I teach, I tell, I build, I uncover, I interpret, I clarify, I explain.” For me the enthusiasm is [its] dyed.
- “Suffering is its great horror”: “bitterness, old suffering, sickness, death, sorrow, sorrow, sorrow, despair, the bitterness of the animal world, the bitterness of the evil world, the human suffering, rooted in the birth, The suffering of living in the womb, rooted in the bitterness of the birth, the suffering of the already born, the suffering of the living by others (placing), the suffering of his own actions, [bitterness,] suffering, becoming suffering, eye disease , Ear disease, nose, tongue disease, body disease, head disease, external ear disease, mouth disease, tooth disease, cough, wheezing, external nasal disease, fever, old, abdominal disease, coma, dysentery, abdominal pain, cholera, leprosy, tumor, ringworm, Ringsoriasis, scabies, wind, scratches (a kind of sickness), cracked skin, hemorrhoids, rash (boils blisters), hemorrhoids, hemorrhoids (ulcers), bile disease, sputum disease, wind etc. Diseases, [three] sets of diseases, diseases born from seasonal changes, diseases born from improper posture, sudden attack disease, disease of the industry's fruit, cold, heat, hunger, thirst, manure, urine, and fly The bitter of contact with mosquitoes, the bitterness of the dead mother, the death of the father, the bitterness of the dead brother, the bitterness of the dead sister, the death of the child, the loss of the family[, the loss of wealth], the loss of disease, the suffering of the loss of the ring, the suffering of the loss of the ring, see the suffering of For all the laws, from the beginning, was known; from extinction, extinction was known, the fruit newspaper is based on the industry; industry is based on the fruit newspaper, color is based on name; name is based on color. Being followed by life, being accompanied by life, followed by the old, conquered by illness, was hit by death, in bitterness to live, no shelter, no refuge, no return, no return, this is called bitter. This bitter is the world's horror, great terror, oppression, blow, evil, evil.” For bitter is its great horror.
- Because then, Worldman said:
- “[Worldest: 'Aydou! '] The world is covered by unclear, because of saving stingy, relaxation does not shine,
- I say that the desire is [its] dyed, bitterness is its great terror.”
- 3. [His Holiness Aydaud, like this:] What is the protection of the stream?
- Will you say that the excursions of homemade, what are the currents closed?
- “Flow everywhere”: ““The flow”, thirst for love flow, see flow, pollution flow, evil stream, unclear flow. “Everywhere” in everything. “Flow”, flow, flow direction, outflow, flow. From eye to color flow, flow, flow, flow; from ear to voice flow... (medium) flow from nose to smell... flow from tongue to taste... flowing from body to touch... flowing from intention 、Flow direction、Outflow、Flow。 The thirst from the eye to color flows, flows, flows, flows; thirst from ear to voice flows, flows, flows; thirst from the nose to the smell of love flows... from tongue to taste... from the tongue to the touch The thirst of love flows... from the intentional law of thirst love flows, flows, flows out, and flows.” Flowing everywhere for all flows.
- “[Ayidor, His Holiness like this]”: “Like this”, the continuation of the sentence... (middle) this is the second sentence, “like this... (medium)” is [The Lord Aydore like this].
- “What is the protection of the stream”: “What is the shielding of the stream, {cover} [protection?] , homemade, guarded, protected.” Why is the protection of all streams.
- “Please say the home-made of the flow”: “the cover of the stream, {cover} [protective?] , homemade, guardian, protection, please say, please explain, please teach you, please inform you, please build, please you uncover, please you explain, please explain, please explain. To ask you to say all the homemade.
- “What the flow is closed”: “What the flow is closed, cut off, they do not flow, do not flow, do not flow, do not flow.” For all streams is what is turned off.
- Because then, the Brahman said:
- “[His Holiness Aydaud, a man like this:] the flow flowing out everywhere, what is the protection of the streams?
- Please say that the excursions of homemade, what are the currents closed?”
- 4. [Worldplace: “Ayddo!”] All the exuperation in the world is their protection,
- I say the stream of homemade, these are turned off by Hui.
- “All the currents in the world”: “All those which I tell, to be explained, taught, taught, built, uncovered, resolved, articulated, illustrated, illustrated, that is, the flow of thirst, Pollution flow, evil stream, unclear flow. “In the world, in the world of bitter worlds, in the world of mankind, in the world of heaven, in the world of the world, in the world of worlds, in the world. For all the streams in the world. “Arydow”: Worldman named the Brahman by name.
- “Mindful is their protection”: ““read”, where the memory, the memory state, memory state, do not float state, do not forget the state, read the root, mindfulness, mindfulness, mindfulness, mindfulness, thought support, no road This is called read. “Protection”, Shielding, {Cover} [Protection?] , homemade, guarded, protected.” Mindfulness is their protection.
- “I say the home-made of the stream”: “shading of all streams, {cover} [protective?] 、Homemade、Guardian、Protect, I say、I explain... (medium) I clarify、I explain。” For me say all the homemade.
- “These are closed by Hui”: “Hui”, that is Hui, understanding... (medium), inobsession, choice, positive. “These are closed by Hui”: “These flows are closed, cut off, they do not flow, do not flow, do not flow, do not flow. “All lines are endless.” When they know and see, these flows are closed, cut off, they do not flow, do not flow, do not flow, do not flow; “All lines are bitter” when they are known and seen, these flows are Hui Close, cut, they do not flow, do not flow, do not flow, do not flow; “Everything line is no me” When you know and see, these flows are closed, cut off, they do not flow, do not flow, do not flow, do not flow, do not flow, do not flow ; 'Done by the reason of ignorance. 'When you know and see,These flows are closed, cut off, they do not flow, do not flow, do not flow, do not flow; “by behavior and knowledge”... (medium) “in recognition of the famous”... “There are six in the name of color”... ... 'Touch with six sides'... 'by touch'... 'by the reason of being thirsty and thirsty love'... 'by thirst for the sake of love '... 'by the fate of having a live'... 'by the fate of having a living.' ... 'Be old by life. 'When they know and see, these flows are closed and cut off, they do not flow, do not flow, do not flow, do not flow; 'Destroy with unknown extinction'... 'Known by destruction. ' ... “The name of extinction”... “Destroy by name and six”... “Destroy by six places”... “Destroy by extinction and thirst”... “Destroy with thirst and love”... “Destroy with thirst”... “Destroy and destroy”... 'Destroy by extinction '... 'Deadied by life and old.' When known and seen, these flows are closed and cut off, they do not flow, do not flow, do not flow, do not flow, do not flow, do not flow; This is bitter for the union, the reality law; “This is a bitter set”... “This is the path of bitterness”... “This is the path of bitterness.” When it is known and seen, these flows are closed and cut off, they do not flow, Do not flow, do not flow, do not flow; “These laws are troubles”... “These laws are troubles set”... “This is the annoyance”... “This is a guide to annoyance.” When you know and see, these flows They are closed, cut off, they do not flow, do not flow, do not flow, do not flow; “These laws should be known”... “These laws should be widely known”... “These laws should be cut off”... These laws should be practiced... “These laws should be testified.” When they are known and seen, these flows are closed, cut off, they do not flow, do not flow, do not flow, do not flow, do not flow; the six touchdowns are raised, extinguished, Music, oversuffering, out, when you know, see, these flows are closed, cut off, they do not flow, do not flow, do not flow, do not flow; five fetching collection, extinction, fun, too, out, when know When you see... four kinds of gathering, extinction, taste, excesses, departures, when know, see... “Any set method is extinguished” When you know, see, these streams are closed, cut off, they do not Flow, no flow, no outflow, do not flow. For these are turned off by Hui.
- Because then, Worldman said:
- “[Worldest: 'Aydou! '] All the exuperation in the world is their protection,
- I say the stream of homemade, these are turned off by Hui.”
- 5. [His Holiness Aydot like this:] HPE, and the name, dear sir!
- When I asked about this, please tell you, where was this destroyed?
- “HPE”: “Hui”, that is Hui, understanding, simplification, study, choice, identification, discernment, close inspection, wisdom, proficiency, smart, reflection, review, general (comprehensive), wisdom, Ying Chi, Bishana, Known, Spike, Hui, Wisen, Wisen, Wisdom, Wisdom, Huijian, Hui Hall, Hui Bright, Hui Bright, Hui Light, Hui Bao, Insane, Choice, Positive. “Read”, every reading, with the mind... (medium) mindfulness.” For [His Holiness like this:] HPE.
- “And the name, dear sir”: “Name” is four colorless. “Color” is made of four and four colors. “Dear Sir, “This is a word of love, respect, respect and obedience.” For dear sir.” As well as the name, dear sir.
- “Tell me when I ask about this”: “I... this, whosoever I ask; whosoever I beg; whosoever I ask; whosoever I ask; whosoever makes me clear. “When questioned”, when questioned; when begging; when requested; when it was made clear. “Please tell you,” please say, please explain, please teach, please build, please uncover, please explain, please explain, please explain, please explain. Please tell me when I ask about this.
- “Where this is destroyed”: “Where this is extinguished, calmed down, walked to absent, stopped.” For where this is destroyed.
- Because then, the Brahman said:
- “[His Holiness, like this:] HPE, and the name, dear sir!
- When I asked {such} [this], tell you, where was this destroyed?”
- 6. where to ask this question, Ayado! I told you that,
- At the place name with color, no remaining is destroyed:
- The destruction of the knowledge, here this is destroyed.
- “Where to ask this question”: “Whenever this is Hui, read, and fame. 『Ask, you inquire; you beg; thou plead; make thee clear.” For where to ask this question.
- “Ayddo! I tell you that, “Aydow,” the world calls the Brahman in its name. “It” is Hui, read, and name. “I tell,” I tell, I explain, I teach, I tell, I build, I unveil, I interpret, I clarify, I explain.” For Ayado! I'll tell you that.
- “Where the name and color are destroyed without remaining”: “Name” is four colorless. “Color” is made of four and four colors. “No leftover”, all completely, every aspect completely, without residual, the whole ground, this is the language of “no surplus.” “Destroy,” was destroyed, calmed down, walked to nonexistent, stop. For the name and color in the place, no remaining is destroyed.
- “The destruction of Iigen, here is destroyed”: “through the wisdom of the Sudoan, to create the destruction of knowledge, except seven, every name and color that can be born in the beginning of the reincarnation, where these are extinguished and calmed down 、Go to the absence、Stop interest。 By the way of wisdom, to create the destruction of knowledge, except for the two, the name and color that can be born in the five five, here are destroyed, calmed down, and gone to absent, and stopped. By not doing wisdom, in order to create the destruction of knowledge, in addition to one, where the name and color can be born in color, no color, here these are extinguished, calmed down, went to absent, stop. Allohan through no residual nirvana circles, like nirvana last known extinguished, Hui, read, name, color, here these are extinguished, calmed down, went to the absence, stop.” For the destruction of the knowledge, here this is destroyed.
- Because then, Worldman said:
- “Where to ask this question, Ayddo! I told you that,
- At the place name with color, no remaining is destroyed:
- The destruction of Ecognizant, here this is destroyed.”
- 7. those who are aware of the law, and every one here is learning,
- When the wise are asked by me about their behavior, dear sir! Please tell you. [SN.12.31]
- “The cogniter of the law”: the corer of the law is called Allohan, the troubles have been exhausted. For what reason the discorer of the law is called Arrohan, the troubles have been exhausted? They are the coderers of the law, the know of the law, the measure of the law, the judge of the law, the clear of the law, and the clear of the law. “All works are pervertible” The cogniter of the law, the know of the law, the measure of the law, the judge of the law, the clear of the law, the clear of the law, and the corer of the law, and the corer of the law of 'all deed is bitter'... All works are the cognizance of the law without me... the Aware of the law of “doings for the sake of ignorance”... the corer of the law of “any collection is the law of extinction”, the knowledge of the law, the measure of the law, the judge of the law The clear of the law, the clear of the law. Or to them they are the Aphesiers of the world, those of the world, the coverant of the intrigues, the ones of the past, the born ones, those who are born, the ones of revolving, the ones of rotation. Or, they are in the ultimate (border) of the dwellers, the ultimate dwellers in the boundary, the ultimate staker in the fun, the ultimate staker in the past, the ultimate staker in life, the ultimate staker in life, in There is the ultimate staker, a resident in the reincarnation ultimate, a resident in the turn ultimate [, the ultimate staker in line], a staker with the last, the staker in the last gathering (body), the last body Alohan.
- “[In the uncountable robbery, they are the ones who have a body,]
- This is their last, final gathering (body),
- Life and death reincarnation, without their re-there (regeneration).” [Thag.202]
- The coderer of the law on this ground is called Arrohan, the troubled man. “The discovers of the law, and those who learn here”: “Learn,” by what reason are they called learning? “They learn” for learning. And what do they learn? They learn to add to school, they also learn to add heart learning, they also learn to add Wisdom.
- What is Additions? Here, Bichu is a ring bearer who lives in the protection of the home-made porotty forks, is well on the way and the border, seeing horrible in micro-crime, learning after being held in the school. Small ring, big ring is the basis of stop, [self] suppression of behavior, homemade entrance, good law, etc. (reached) the top, which is added to the school.
- What is Addition Psychology? Here, Bichu from the desire... (middle) first Zen... Second Zen... Third Zen... after entering the [not bitter, by the calm and read all over the net] fourth Zen, which is added to the heart.
- What is Sosami Hui?Learn? Here, Bichu is a man of wisdom, with a guide to birth and extinction; holy, insight, and the direction of bitterness completely extinct [the Wisdom], he knows, 'This is bitter. ' ... (medium) 'This is a bitter set. ' ... 'This is bitterness. ' “This is the path that leads to bitterness.” ... 'These are troubles. ' ... 'This is a set of troubles. ... 'This is annoyance. ' To be honest: 'This is a guide to annoyance. ' This is the addition of Wisdom. These three studies, they learn when toward (notice); when they know; when they see them learn [; when they learn when inspecting]; they learn when they are established (determined); and when they win with faith They learn; they learn when energetic efforts; when they learn when they are remembered; they learn when they are determined (focused); when they know with Hui; they learn when they are testified; they learn when they are testified; when they are testified; when they are known; when they are known; when they are told. They learn when they are known; they learn when they are cut off; they learn when they are practiced; when they are practiced; when they testify that they are testified they learn, they practice, and they do their good Practice、Hold after they turn。 For this reason they are called learning. “One” for many. These are the Suda Huanwan, Stowanker, Anahan, Arrohan Stalker. “Here,” in this see, in this love, in this hobby, in this proposition, in this law, in this law, in this law, in this teaching, in this teaching, in this practice, in this In the teachings of the Master, in this individual, in this human world.” For as well as here all have to learn.
- “The wise ones are asked by me about their behavior, dear sir! Tell me: “You are the wise, wise, the wise, the wise, the feeling, the wise [, the difference], the wise. Those who are aware of those laws are with the behavior, conduct, act, execution (turn up), practice, border, dwelling, road (trajectory). “Be questioned,” be questioned; begged; requested; make it clear. “Please tell you,” please say, please explain, please teach, please build, please uncover, please explain, please explain, please explain, please explain. “Dear Sir, “This is a word of love, respect, respect and obedience.” For dear sir.” For the wise to be asked by me about their behavior, dear sir! Please tell you.
- Because then, the Brahman said:
- “The coderer of all the laws, and every one here that has learned,
- When the wise are asked by me about their behavior, dear sir! Please tell you.”
- 8. should not be in desire, the mind should not be cloudy,
- It is a good man of all the law, and Bichu should be mindfully marred.
- “There should be no desire in desire”: “Wills”, there are two kinds of desires from praise: the wills of things and the desire of pollution What are the desires of things? The color of the consensual, the sound of consensual, the smell of consensual, the sense of the touch, padding, clothing, maid servant, goat and sheep, chicken pigs, like cow mule, fields, homes, gold, gold coins, villages Town capital city, country, land, treasury, warehouse, any thing that will be corrupt is the desire of things.
- In addition, there are the desires of the past, the desires of the future, the desires of the present, the desires of themselves, the desires of the outside, the desires of the inner and the outside, the inferior desires, medium desires, the desire of the wills, the desire of the bitter, The desires that have been created [, uncreated desires], created by others, desires that have been occupied, unoccupied desires, cherished desires, uncherished desires, desires that are not cherished, the desires of all bounds, everything The desire of the law of color, all the desires of the law of color, based on thirst for love, thirst for righteousness, for righteousness, to be enchanted, to be enchanted righteousness, will be enchanted and joy for righteousness, these are called the desires of things.
- What are the intentions of pollution? Willed, Greedy, Willed, Willed, Intent, Greedy, Intent Greed Wills, Willed Wills, Desire of Lust, Desiring Love, Desire of Desire, Desire Enthusiasm, desire of greed, obsession of desire, take of desire, flow of desire, yoke of desire (bound), desired execution, desire to cover.
- “Seeing the roots of desire, that thou shalt be created by thought,
- I will not think only thee, so that the desire will not exist.” [Jat.8.421]
- These are known as polluting desires. Grave is called thirsty love, it is greed, lust... (medium) greed, greed, bad roots. “Should not seek on desire”: “To pollute the desires of things should not seek, should not be obstructed, should be removed from the seek, no greedy, the one who has abandoned it,Excluding, freed from, severed, deceased, deceased, away from greedy, no greedy, abandoned, excluded, liberated, discarded, discarded, deceased greedy, deceased greedy, no And those who are hungry, and that are extinguished, and those who have become cool, and feel joy, shall dwell themselves for those who have been born. For that should not be greedy on the desire.
- “The mind should be uncloudy”: “meaning”: all heart, mind, mind, heart (heart), white (universal net), meaning, intentions, roots, consciousness, consciousness, corresponding to that consciousness. To act evil and heart become cloudy, agitating, moving, impacting, volatile, rotating, uncalm; in words of evil deeds... Deed in bad faith... with greed... with anger... with resentment... in order to hide evil... to jealousy... to conserve falsehood... with hypocrisy... to cunning... stubborn... Passion... to slow... with extremely slow... to ease... with all pollution... with all evil deeds... annoyed with all... with all worsens... with all burning heat (torment)... with all bad The heart becomes cloudy, agitating, moving, impacting, volatile, rotating, uncalm. “The mind should not be cloudy”: “The heart should not be uncloudy: not stirred, not shaken, not moved, not rotated, calm down, should not be cloudy, the polluted he should abandon, should It should be disconnected, should be discarded, should be terminated, and it should be made to nonexistent. Should (Cambodia Edition) have been separated from the turbid and pollution, quashed, quashed, left, left, freed, unbound, he should live with the restrained heart.” For the mind should be uncloudy.
- “It is a good man of all the law”: “All works are impermanent” for the good of all law; 'All deeds are bitter; 'All deeds are miser' for the good of all law; “All works are without me” for the good of all law; For the deeds of all laws... (cms) “Any set is the law of extinction” is a good man of all law, so it is a good man of all law.
- Or, [seen as] is confinement for the good of all laws; is bitter... is sick... is the tumor... is the arrow... is the woe... is the disease... is the other side... is corrupt... It's a disaster... it's a scourge... it's a scourge... it's a scourge... it's a scourge... it's a movable... it's not solid... there is no refuge... there is no return... is no return. ... is hypocrisy... is empty... is not mine... is overkill... is miserable... is the root of the unfortunate... is the murderer... there is no trouble... There is something... is magic food (bait)... is the law... is the old law... is the law of disease... is the death method... is the law of sorrow and grief despair... is the law of pollution... is not... is extinct... is a taste... ... is a good man who departs from the law of all, and that is also a good man of all laws.
- Or the good of the mourners, the skilful of the world, the good of the place, the good of the edge, the mighty of the mindfulness of the mindfulness, the good man of the gods, the good of the root, the good of the force, the good of the sense of strength, The good of the way, the good of the fruit, and the nirvana, so is the good of all the law.
- Or all the laws are called twelve places: eyes and colors, ears and sounds, nose and smell, tongue and taste, body and touch, meaning and law, and because desire and greed in themselves have been cut off, and the roots have been cut off, Like a rooted palm tree, becoming a non-living thing for the future, this situation is also a good man of all laws.” To be a good man of all law.
- “Bichu should be mindful processions”: “mindful (of)”, in four ways: when the practice is mindful in the body, when the practice is mindful, when the practice is to be seen, when the practice is mindful, when practicing It is a mindful when you watch the mind in the heart, when the practice follows the law in the law is mindful.
- NextIn four ways for mindfulness: to avoid the state of mindfulness, to avoid the state of mindfulness, the state of the law of the obstruction is broken, and the law of the nothfulness factor (phase) is not forgotten The state is mindful.
- The next in four ways for the mindfulness: to the state of mind, to mind the state of mind, to the state of mind, to read the state of proficiency as mindful, to the state of mind is not falling.
- NextIn four ways for the mindfulness: {with the state of mind,} to the mindful state of mind, to the state of silence as mindful, to the state of calm for the mindfulness, toWith the state of silence as a mindful; to the Buddhist remembrance, to the French remembrance, to the monk remembrance, to the remembrance of the memorial, to the memorial of the alms, to the day of mind; To the mind of the mind, to the death of the mind, to the mind of the mind, to the mind of silence as the mind; all the words, with the memorial... (medium) mindfulness, thought of the branch, no fork road, this is known as reading. With, fully having, arriving, fully arriving, full, fully sufficient, with this concept, he is called mindful. “Bichu”, seven methods of destruction state for Bichu: has been destroyed, suspected to be destroyed, forbidden to be destroyed, corrupt, destroyed, sabotage, sabotage, slow to be destroyed, those evil bad law is destroyed: Shun The polluted, again, the fear, the bitter, the future will live and die.
- [Worldworld: “Color Forced Asia!”] [Sn.3.6, 519]
- “By the way of his own practice, to the nirvana, beyond the skeptics,
- And after having left nothing and nothing, he is Pichu who is done, and he who is extinct.
- “Bichu should march mindfully”: “Bichu should march mindfully, should walk mindfully, should be mindfully standing, should sit mindfully, should lie down, should be mindfully forward, should be mindfully Back, should mindfully foresight, should be mindfully observed, should be mindfully bended, should be mindfully straightened, should be mindfully holding coats, bowls, clothes, should be mindfully line, live, act, turn, guardian, make Survive, make survival.” For the Picchu should be mindfully parade.
- Because then, Worldman said:
- “Should not be greedy in desire, the mind should not be cloudy,
- It is a good man of all the law, and Bichu should marshal.”
- At the end of the Ode, those who live with the same will, the same effort, the same intent, the same dwelling as Brahmen, the eyes of thousands of biological dusts and fouling are born: “Any collection is the law of extinction.” The heart of Brahmen freed from the troubles by not being acted upon. Along with reaching the realm of Alrohan, sheepskin, knot, bark coats, sticks, long salites, hair and beard are disappeared, become bald heads, cassock clothes, coats, bowls, clothes, as their meaning behavior Gassho salute worldship, sit down: “Daedeu Worldson is my teacher, I am a disciple.”
- The instructions asked by Ayddo student Brahmen first [Completed].
+6. where to ask this question, Ayado! I told you that,
+
+At the place name with color, no remaining is destroyed:
+
+The destruction of the knowledge, here this is destroyed.
+
+“Where to ask this question”: “Whenever this is Hui, read, and fame. 『Ask, you
+inquire; you beg; thou plead; make thee clear.” For where to ask this question.
+
+“Ayddo! I tell you that, “Aydow,” the world calls the Brahman in its name. “It”
+is Hui, read, and name. “I tell,” I tell, I explain, I teach, I tell, I build,
+I unveil, I interpret, I clarify, I explain.” For Ayado! I'll tell you that.
+
+“Where the name and color are destroyed without remaining”: “Name” is four
+colorless. “Color” is made of four and four colors. “No leftover”, all
+completely, every aspect completely, without residual, the whole ground, this
+is the language of “no surplus.” “Destroy,” was destroyed, calmed down, walked
+to nonexistent, stop. For the name and color in the place, no remaining is
+destroyed.
+
+“The destruction of Iigen, here is destroyed”: “through the wisdom of the
+Sudoan, to create the destruction of knowledge, except seven, every name and
+color that can be born in the beginning of the reincarnation, where these are
+extinguished and calmed down 、Go to the absence、Stop interest。 By the way of
+wisdom, to create the destruction of knowledge, except for the two, the name
+and color that can be born in the five five, here are destroyed, calmed down,
+and gone to absent, and stopped. By not doing wisdom, in order to create the
+destruction of knowledge, in addition to one, where the name and color can be
+born in color, no color, here these are extinguished, calmed down, went to
+absent, stop. Allohan through no residual nirvana circles, like nirvana last
+known extinguished, Hui, read, name, color, here these are extinguished, calmed
+down, went to the absence, stop.” For the destruction of the knowledge, here
+this is destroyed.
+
+Because then, Worldman said:
+
+“Where to ask this question, Ayddo! I told you that,
+
+At the place name with color, no remaining is destroyed:
+
+The destruction of Ecognizant, here this is destroyed.”
+
+7. those who are aware of the law, and every one here is learning,
+
+When the wise are asked by me about their behavior, dear sir! Please tell you.
+[SN.12.31]
+
+“The cogniter of the law”: the corer of the law is called Allohan, the troubles
+have been exhausted. For what reason the discorer of the law is called Arrohan,
+the troubles have been exhausted? They are the coderers of the law, the know of
+the law, the measure of the law, the judge of the law, the clear of the law,
+and the clear of the law. “All works are pervertible” The cogniter of the law,
+the know of the law, the measure of the law, the judge of the law, the clear of
+the law, the clear of the law, and the corer of the law, and the corer of the
+law of 'all deed is bitter'... All works are the cognizance of the law without
+me... the Aware of the law of “doings for the sake of ignorance”... the corer
+of the law of “any collection is the law of extinction”, the knowledge of the
+law, the measure of the law, the judge of the law The clear of the law, the
+clear of the law. Or to them they are the Aphesiers of the world, those of the
+world, the coverant of the intrigues, the ones of the past, the born ones,
+those who are born, the ones of revolving, the ones of rotation. Or, they are
+in the ultimate (border) of the dwellers, the ultimate dwellers in the
+boundary, the ultimate staker in the fun, the ultimate staker in the past, the
+ultimate staker in life, the ultimate staker in life, in There is the ultimate
+staker, a resident in the reincarnation ultimate, a resident in the turn
+ultimate [, the ultimate staker in line], a staker with the last, the staker in
+the last gathering (body), the last body Alohan.
+
+“[In the uncountable robbery, they are the ones who have a body,]
+
+This is their last, final gathering (body),
+
+Life and death reincarnation, without their re-there (regeneration).”
+[Thag.202]
+
+The coderer of the law on this ground is called Arrohan, the troubled man. “The
+discovers of the law, and those who learn here”: “Learn,” by what reason are
+they called learning? “They learn” for learning. And what do they learn? They
+learn to add to school, they also learn to add heart learning, they also learn
+to add Wisdom.
+
+What is Additions? Here, Bichu is a ring bearer who lives in the protection of
+the home-made porotty forks, is well on the way and the border, seeing horrible
+in micro-crime, learning after being held in the school. Small ring, big ring
+is the basis of stop, [self] suppression of behavior, homemade entrance, good
+law, etc. (reached) the top, which is added to the school.
+
+What is Addition Psychology? Here, Bichu from the desire... (middle) first
+Zen... Second Zen... Third Zen... after entering the [not bitter, by the calm
+and read all over the net] fourth Zen, which is added to the heart.
+
+What is Sosami Hui?Learn? Here, Bichu is a man of wisdom, with a guide to birth
+and extinction; holy, insight, and the direction of bitterness completely
+extinct [the Wisdom], he knows, 'This is bitter. ' ... (medium) 'This is a
+bitter set. ' ... 'This is bitterness. ' “This is the path that leads to
+bitterness.” ... 'These are troubles. ' ... 'This is a set of troubles. ...
+'This is annoyance. ' To be honest: 'This is a guide to annoyance. ' This is
+the addition of Wisdom. These three studies, they learn when toward (notice);
+when they know; when they see them learn [; when they learn when inspecting];
+they learn when they are established (determined); and when they win with faith
+They learn; they learn when energetic efforts; when they learn when they are
+remembered; they learn when they are determined (focused); when they know with
+Hui; they learn when they are testified; they learn when they are testified;
+when they are testified; when they are known; when they are known; when they
+are told. They learn when they are known; they learn when they are cut off;
+they learn when they are practiced; when they are practiced; when they testify
+that they are testified they learn, they practice, and they do their good
+Practice、Hold after they turn。 For this reason they are called learning.
+“One” for many. These are the Suda Huanwan, Stowanker, Anahan, Arrohan Stalker.
+“Here,” in this see, in this love, in this hobby, in this proposition, in this
+law, in this law, in this law, in this teaching, in this teaching, in this
+practice, in this In the teachings of the Master, in this individual, in this
+human world.” For as well as here all have to learn.
+
+“The wise ones are asked by me about their behavior, dear sir! Tell me: “You
+are the wise, wise, the wise, the wise, the feeling, the wise [, the
+difference], the wise. Those who are aware of those laws are with the behavior,
+conduct, act, execution (turn up), practice, border, dwelling, road
+(trajectory). “Be questioned,” be questioned; begged; requested; make it clear.
+“Please tell you,” please say, please explain, please teach, please build,
+please uncover, please explain, please explain, please explain, please explain.
+“Dear Sir, “This is a word of love, respect, respect and obedience.” For dear
+sir.” For the wise to be asked by me about their behavior, dear sir! Please
+tell you.
+
+Because then, the Brahman said:
+
+“The coderer of all the laws, and every one here that has learned,
+
+When the wise are asked by me about their behavior, dear sir! Please tell you.”
+
+8. should not be in desire, the mind should not be cloudy,
+
+It is a good man of all the law, and Bichu should be mindfully marred.
+
+“There should be no desire in desire”: “Wills”, there are two kinds of desires
+from praise: the wills of things and the desire of pollution What are the
+desires of things? The color of the consensual, the sound of consensual, the
+smell of consensual, the sense of the touch, padding, clothing, maid servant,
+goat and sheep, chicken pigs, like cow mule, fields, homes, gold, gold coins,
+villages Town capital city, country, land, treasury, warehouse, any thing that
+will be corrupt is the desire of things.
+
+In addition, there are the desires of the past, the desires of the future, the
+desires of the present, the desires of themselves, the desires of the outside,
+the desires of the inner and the outside, the inferior desires, medium desires,
+the desire of the wills, the desire of the bitter, The desires that have been
+created [, uncreated desires], created by others, desires that have been
+occupied, unoccupied desires, cherished desires, uncherished desires, desires
+that are not cherished, the desires of all bounds, everything The desire of the
+law of color, all the desires of the law of color, based on thirst for love,
+thirst for righteousness, for righteousness, to be enchanted, to be enchanted
+righteousness, will be enchanted and joy for righteousness, these are called
+the desires of things.
+
+What are the intentions of pollution? Willed, Greedy, Willed, Willed, Intent,
+Greedy, Intent Greed Wills, Willed Wills, Desire of Lust, Desiring Love, Desire
+of Desire, Desire Enthusiasm, desire of greed, obsession of desire, take of
+desire, flow of desire, yoke of desire (bound), desired execution, desire to
+cover.
+
+“Seeing the roots of desire, that thou shalt be created by thought,
+
+I will not think only thee, so that the desire will not exist.” [Jat.8.421]
+
+These are known as polluting desires. Grave is called thirsty love, it is
+greed, lust... (medium) greed, greed, bad roots. “Should not seek on desire”:
+“To pollute the desires of things should not seek, should not be obstructed,
+should be removed from the seek, no greedy, the one who has abandoned
+it,Excluding, freed from, severed, deceased, deceased, away from greedy, no
+greedy, abandoned, excluded, liberated, discarded, discarded, deceased greedy,
+deceased greedy, no And those who are hungry, and that are extinguished, and
+those who have become cool, and feel joy, shall dwell themselves for those who
+have been born. For that should not be greedy on the desire.
+
+“The mind should be uncloudy”: “meaning”: all heart, mind, mind, heart (heart),
+white (universal net), meaning, intentions, roots, consciousness,
+consciousness, corresponding to that consciousness. To act evil and heart
+become cloudy, agitating, moving, impacting, volatile, rotating, uncalm; in
+words of evil deeds... Deed in bad faith... with greed... with anger... with
+resentment... in order to hide evil... to jealousy... to conserve falsehood...
+with hypocrisy... to cunning... stubborn... Passion... to slow... with
+extremely slow... to ease... with all pollution... with all evil deeds...
+annoyed with all... with all worsens... with all burning heat (torment)... with
+all bad The heart becomes cloudy, agitating, moving, impacting, volatile,
+rotating, uncalm. “The mind should not be cloudy”: “The heart should not be
+uncloudy: not stirred, not shaken, not moved, not rotated, calm down, should
+not be cloudy, the polluted he should abandon, should It should be
+disconnected, should be discarded, should be terminated, and it should be made
+to nonexistent. Should (Cambodia Edition) have been separated from the turbid
+and pollution, quashed, quashed, left, left, freed, unbound, he should live
+with the restrained heart.” For the mind should be uncloudy.
+
+“It is a good man of all the law”: “All works are impermanent” for the good of
+all law; 'All deeds are bitter; 'All deeds are miser' for the good of all law;
+“All works are without me” for the good of all law; For the deeds of all
+laws... (cms) “Any set is the law of extinction” is a good man of all law, so
+it is a good man of all law.
+
+Or, [seen as] is confinement for the good of all laws; is bitter... is sick...
+is the tumor... is the arrow... is the woe... is the disease... is the other
+side... is corrupt... It's a disaster... it's a scourge... it's a scourge...
+it's a scourge... it's a scourge... it's a movable... it's not solid... there
+is no refuge... there is no return... is no return. ... is hypocrisy... is
+empty... is not mine... is overkill... is miserable... is the root of the
+unfortunate... is the murderer... there is no trouble... There is something...
+is magic food (bait)... is the law... is the old law... is the law of
+disease... is the death method... is the law of sorrow and grief despair... is
+the law of pollution... is not... is extinct... is a taste... ... is a good man
+who departs from the law of all, and that is also a good man of all laws.
+
+Or the good of the mourners, the skilful of the world, the good of the place,
+the good of the edge, the mighty of the mindfulness of the mindfulness, the
+good man of the gods, the good of the root, the good of the force, the good of
+the sense of strength, The good of the way, the good of the fruit, and the
+nirvana, so is the good of all the law.
+
+Or all the laws are called twelve places: eyes and colors, ears and sounds,
+nose and smell, tongue and taste, body and touch, meaning and law, and because
+desire and greed in themselves have been cut off, and the roots have been cut
+off, Like a rooted palm tree, becoming a non-living thing for the future, this
+situation is also a good man of all laws.” To be a good man of all law.
+
+“Bichu should be mindful processions”: “mindful (of)”, in four ways: when the
+practice is mindful in the body, when the practice is mindful, when the
+practice is to be seen, when the practice is mindful, when practicing It is a
+mindful when you watch the mind in the heart, when the practice follows the law
+in the law is mindful.
+
+NextIn four ways for mindfulness: to avoid the state of mindfulness, to avoid
+the state of mindfulness, the state of the law of the obstruction is broken,
+and the law of the nothfulness factor (phase) is not forgotten The state is
+mindful.
+
+The next in four ways for the mindfulness: to the state of mind, to mind the
+state of mind, to the state of mind, to read the state of proficiency as
+mindful, to the state of mind is not falling.
+
+NextIn four ways for the mindfulness: {with the state of mind,} to the mindful
+state of mind, to the state of silence as mindful, to the state of calm for the
+mindfulness, toWith the state of silence as a mindful; to the Buddhist
+remembrance, to the French remembrance, to the monk remembrance, to the
+remembrance of the memorial, to the memorial of the alms, to the day of mind;
+To the mind of the mind, to the death of the mind, to the mind of the mind, to
+the mind of silence as the mind; all the words, with the memorial... (medium)
+mindfulness, thought of the branch, no fork road, this is known as reading.
+With, fully having, arriving, fully arriving, full, fully sufficient, with this
+concept, he is called mindful. “Bichu”, seven methods of destruction state for
+Bichu: has been destroyed, suspected to be destroyed, forbidden to be
+destroyed, corrupt, destroyed, sabotage, sabotage, slow to be destroyed, those
+evil bad law is destroyed: Shun The polluted, again, the fear, the bitter, the
+future will live and die.
+
+[Worldworld: “Color Forced Asia!”] [Sn.3.6, 519]
+
+“By the way of his own practice, to the nirvana, beyond the skeptics,
+
+And after having left nothing and nothing, he is Pichu who is done, and he who
+is extinct.
+
+“Bichu should march mindfully”: “Bichu should march mindfully, should walk
+mindfully, should be mindfully standing, should sit mindfully, should lie down,
+should be mindfully forward, should be mindfully Back, should mindfully
+foresight, should be mindfully observed, should be mindfully bended, should be
+mindfully straightened, should be mindfully holding coats, bowls, clothes,
+should be mindfully line, live, act, turn, guardian, make Survive, make
+survival.” For the Picchu should be mindfully parade.
+
+Because then, Worldman said:
+
+“Should not be greedy in desire, the mind should not be cloudy,
+
+It is a good man of all the law, and Bichu should marshal.”
+
+At the end of the Ode, those who live with the same will, the same effort, the
+same intent, the same dwelling as Brahmen, the eyes of thousands of biological
+dusts and fouling are born: “Any collection is the law of extinction.” The
+heart of Brahmen freed from the troubles by not being acted upon. Along with
+reaching the realm of Alrohan, sheepskin, knot, bark coats, sticks, long
+salites, hair and beard are disappeared, become bald heads, cassock clothes,
+coats, bowls, clothes, as their meaning behavior Gassho salute worldship, sit
+down: “Daedeu Worldson is my teacher, I am a disciple.”
+
+The instructions asked by Ayddo student Brahmen first [Completed].
+
+
+
 
 
 Excerpt:
- 1. to read protection, to Hui (see the endless bitterness from me) close all the current.
- 2. knowledge (Ni.21,30) (four colorless) color was destroyed.
- 3. the law of the cognitive in the desire is not greedy, mind, not cloudy (Tibetan saving and deceit...).
- 10/17/2020 14:50
+
+1. to read protection, to Hui (see the endless bitterness from me) close all
+the current.
+
+2. knowledge (Ni.21,30) (four colorless) color was destroyed.
+
+3. the law of the cognitive in the desire is not greedy, mind, not cloudy
+(Tibetan saving and deceit...).
+
+10/17/2020 14:50
+
