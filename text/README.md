@@ -6,3 +6,6 @@ are currently in progress.
 I'm going about this by first working with the translations from the Chinese,
 since those are more readable, and then by checking that result with the
 translations from Sinhala.
+
+Unclear lines and words are marked with `??`. Unclear verses and sections are
+marked with a `TODO:`.
