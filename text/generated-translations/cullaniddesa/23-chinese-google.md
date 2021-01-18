@@ -106,7 +106,7 @@ Or, the first jhana has been born, other practice, practice, and more practice, 
       The impure people have the wisdom of their own interests and should walk alone like a rhino horn. "
      Fourth product [Completed].
     The description of the rhino horn sutra has been completed.
-     "Ayiduo, Dishe Maitreya, Fulou Nage and Maitreya,
+     "Ajita, Dishe Maitreya, Fulou Nage and Maitreya,
        as well as Dudag, Ubosi, Nanda and Black Margaret.
        Dudiya and Ge Bo, and the virtuous Ruo Du Gengni,
        as well as Bodo Uda, Udha, and Psala Brahmin.

@@ -17,7 +17,7 @@
      Because of that, it was said:
      "If you are dealing with one by one problem, after knowing the principle and knowing the law, he can follow the law and practice it, he can go to the other side of old age
        "These laws can go to the other shore", so the synonym of the teachings of these laws is "the other shore road". "
-    95. Ayiduo, Low Shemaitreya, Fuluna Ge and Mai Legu,
+    95. Ajita, Low Shemaitreya, Fuluna Ge and Mai Legu,
        as well as Dudag, Ubosi, Nanda and Black Margaret.
     96. Du Di Ya and Ge Bo, and the virtuous Ruo Du Geng Ni,
        as well as Bodo Uda, Udha, and the Brahmin of Persala,
