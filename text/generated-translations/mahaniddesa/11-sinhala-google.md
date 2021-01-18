@@ -636,8 +636,8 @@ Bhikkhus do not quarrel with anyone. No one gets into a debate. Something
 What is said in the world is that it is practiced and not consulted.
 
 [APZ 112.4] (# apz112.4) # apz112.4 .ref .apz} "The wise go from strength to strength
-Does not come "means from karma to rebirth, from lust to karma, from lust
-Rebirth, from image to karma, from image to rebirth, from form to karma
+Does not come "means from kamma to rebirth, from lust to kamma, from lust
+Rebirth, from image to kamma, from image to rebirth, from form to kamma
 From being to being, from being to being, from being to being, from being to being, from being to being, from being to being
 To rebirth, to rebirth, to rebirth, to rebirth, to rebirth, to rebirth, to rebirth.
 Does not come, does not take, does not consult. Not included is "wisdom"

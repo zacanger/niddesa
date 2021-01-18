@@ -88,7 +88,7 @@ How do you do that?
 Aren't the other pujas like this? What? How? That is where the suffering comes from
 Is racial grief, filthy grief, disease grief (1-4) 3 should be used from the place of grief.)
 It seems to have originated in some dharma. Quarantine seems to go to waste. Karma
-And the combined reward is the reward and the combined karma is the name and the combined image is the image
+And the combined reward is the reward and the combined kamma is the name and the combined image is the image
 Madanala also died of a disease caused by shit that went by the name race
 Fell, was in grief. There is no security. There is no help. these
 Suffering, but where did this suffering come from? Where did it come from? Where
@@ -125,13 +125,13 @@ Not at all. Not through vision. To himself who realized himself
 Pratyaksha Dhamma.
 
 [APZ 19.3] (# apz19.3) # apz19.3 .ref .apz} "Graduation Suffering,"
-There are ten degrees. Degrees of lust, degrees of defilement, degrees of karma, depravity
+There are ten degrees. Degrees of lust, degrees of defilement, degrees of kamma, depravity
 Degrees, Food Degrees, Four Graduate Relics Degrees, Six Degrees in Spiritual Institutions,
 The physiology of the six senses, the degree of all suffering,
 Although these ten degrees, 'suffering' means racism, depravity, disease, death, grief.
 Parideva (mourning) Physical grief, grief, intense fatigue grief, visual impairment grief
 That is to say, the origin of certain Dhammas seems to be prevented from going astray
-Apparently, this is misery, a mixed result of karma. This is the degree of suffering
+Apparently, this is misery, a mixed result of kamma. This is the degree of suffering
 Those who are asleepAre. Degrees (defilements). Degree
 Have been substantiated. Even if the degree is due. Occurs, arises, descends
 Is. Suffering descends at bedtime.
@@ -353,8 +353,8 @@ Consciousness is also far removed, calmed down and brought to complete annihilat
 Consciousness does not exist. ”There are two kinds of beings. Karma is also a crisis.
 Bhavya also means. Rebirth or is.
 
-[APZ 24.3] (# apz24.3) # apz24.3 .ref .apz කුමක්ද What is karma, charity
-Edit? The Apunyabhi edition, the Ananjabi edition, is this karma.
+[APZ 24.3] (# apz24.3) # apz24.3 .ref .apz කුමක්ද What is kamma, charity
+Edit? The Apunyabhi edition, the Ananjabi edition, is this kamma.
 What is recurrent recurrence? Recurrent image pain signals, Sankara
 These are the consciousnesses. Will not be in this recurring rebirth. Consciousness
 Except it does not exist. That is why the Blessed One said.
@@ -363,7 +363,7 @@ Except it does not exist. That is why the Blessed One said.
 
 [APZ 25.1] (# apz25.1) # apz25.1 .ref .apz} "
 Nandiya and Nivasana means "one who dwells thus" in "the one who does not delay".
-Abhishekara removes consciousness, karma and recurring regression
+Abhishekara removes consciousness, kamma and recurring regression
 The pacifiers are also completely extinct. 'Consciousness is' facts
 If four are conscious. The formation of body-to-body mindfulness grows (1-8) 4
 (ii) The paragraph should be applied.) He says he is conscious. 'Immediate' means
@@ -514,8 +514,8 @@ Says. (Great Niddasa (4-5) 3 (ii) should be applied.)
 [APZ 29.2] (# apz29.2) # apz29.2 .ref .apz} "male" is human,
 The person is life. Here it is, in this human world, in this view.
 
-[APZ 29.3] (# apz29.3) {# apz29.3 .ref .apz} "In nature" means in nature, karma
-In nature, in rebirth, in lust, in rebirth, in form, in karma, in images
+[APZ 29.3] (# apz29.3) {# apz29.3 .ref .apz} "In nature" means in nature, kamma
+In nature, in rebirth, in lust, in rebirth, in form, in kamma, in images
 In Bhava, in rebirth, in Arupabhava, in Karma Bhava, in Arupabhava, in rebirth,
 In rebirth, in rebirth, in rebirth, in rebirth.
 Again and again in the soul, that is. Associations are sleep associations. (ii) Raga Sangha

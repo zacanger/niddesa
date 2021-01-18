@@ -192,7 +192,7 @@ Do you have a bonded mind that puts the other down? '' I'm too much for Yushmath
 I helped. Thepi took refuge in the Buddha because of me. Took refuge in the Dhamma, Sangha
 Took refuge, killed animals, stole, committed adultery,
 They separated from the Rahamera drink by lying. I read the text. Problems solved
-I give, I say poya. I remember the new karma. But then to others beyond me
+I give, I say poya. I remember the new kamma. But then to others beyond me
 Are you respectful, hospitable or multifaceted? This is the highest place
 The one who puts the other low is the one who has a united mind Thus the meaning is removed
 Does.
@@ -1280,7 +1280,7 @@ Does.
 Received "means whether there is a neglect in a fourth meditation, whether there is an agreement of the mind,
 Whether there is a single purpose, whether there is a distraction in the mind, whether there is concentration,
 The power of samadhi is whether there is a samadhi samadhi. Ignorance of the Fourth Meditation and
-Consensus is purified, shining, defiled, softened to karma
+Consensus is purified, shining, defiled, softened to kamma
 Those who are fit are those who are free from lust and those who are pure. Clean
 Neglect and Reconciliation means Neglect and Reconciliation in the Four Noble Truths
 So the Buddha then declared.

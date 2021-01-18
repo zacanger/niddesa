@@ -282,7 +282,7 @@ Disease, mucus, urticaria, dysentery, colera, rash, fussy, white sputa
 Rashes called beeesmores, eczema, vithachjica, meddlesia, neoplasm, cancer
 The disease, called bhaganadhara, is a disease that arises in the epidermis. Slowly inflicted disease,
 airborne disease, conjunctivitis, disease caused by chronic transformation,
-Diseases caused by vicious constipation, trick-caused disease, karma
+Diseases caused by vicious constipation, trick-caused disease, kamma
 Diseases that arisen from the rectum. Constipation, constipation, stomach burning, thirst feces
 Dahle drink masks mosquito sunburners crawlersCausation from these
 These are diseases that are susceptible to pathology.

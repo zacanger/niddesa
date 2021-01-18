@@ -113,7 +113,7 @@ That's a memory.
 [APZ 76.2] (# apz76.2) # apz76.2 .ref .apz} "From Ignorance and Memory
 Purified "means neglect and memory, purified. Purified.
 Purified, purified, shining, courtyardless, filthy
-That is, they were softened and fit for karma.
+That is, they were softened and fit for kamma.
 
 [APZ 76.3] (# apz76.3) ෙහි # apz76.3 .ref .apz ෙහි "Dharma argument goes forward"
 Dharma logic refers to the concept of samyak. It's like that. Will be ahead.

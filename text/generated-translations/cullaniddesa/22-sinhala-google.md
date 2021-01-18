@@ -166,7 +166,7 @@ Gone. He has a rainy day, a habitual journey
 There is no reincarnation. Bhavya means transcendence. Karma
 It is also the rebirth of the crisis.
 
-[APZ 104.5] (# apz104.5) # apz104.5 .ref .apz} "What is karma? Charity
+[APZ 104.5] (# apz104.5) # apz104.5 .ref .apz} "What is kamma? Charity
 The edition is the Ananjabi edition. What is recurrent recurrence?
 Reconstructed Images Pain, Signs Editors Consciousness, This Reconciliation
 Reincarnation, 'surpassed' means separated.

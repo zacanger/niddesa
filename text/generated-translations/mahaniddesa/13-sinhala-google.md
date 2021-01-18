@@ -47,7 +47,7 @@ Is the vision of the ideology of the ideological conflict of the ideological con
 Disputes have two consequences. Victory is defeat. Will be profitable. Reputation disrepute
 Will be. Shame is praise. Feels good, happy, sad.
 Will be desired. There is consistency and anger. There will be collisions. Resistance and
-Is opposed. Again or that karma causes bad grief. Causes of animal vaginal distress
+Is opposed. Again or that kamma causes bad grief. Causes of animal vaginal distress
 Will be. I say ghosts cause grief. I preach and I live. I will open. Divide.
 I will publish. I declare.
 
@@ -146,11 +146,11 @@ Separates from virtuous because it is not possible, from vrat because it is not 
 Separates, separates from the two virtues because the two virtues cannot be preserved.
 It is possible to separate because it is not possible.
 
-[APZ 134.2] (# apz134.2) # apz134.2 .ref .apz} "He is shocked by the mistake of karma"
+[APZ 134.2] (# apz134.2) # apz134.2 .ref .apz} "He is shocked by the mistake of kamma"
 He is shocked at whether it is virtuous or virtuous or both virtuous and virtuousRs
 Was erroneous. I was corrupted. I made the slip.
 Unknowingly I make the mistake of being shocked, trembling, especially shocked
-Vei means karma erroneous is the punyabhi edification or apunyabhi edification
+Vei means kamma erroneous is the punyabhi edification or apunyabhi edification
 Wrong version of Anajabhi or Mavis. Dropped by Mavis. me
 Corrupted by. I was unknowingly mistaken and shocked.
 
@@ -176,9 +176,9 @@ He made all the vrats clean, removed and appeased
 Made immaterial, all virtues were removed, removed, and appeased.
 That is, to make it unproductive
 
-[APZ 135.2] (# apz135.2) # apz135.2 .ref .apz යනු "Is this karma wrong?"
-Wrong karma says that there is a reward for lust. Flawless karma
-White says there are white rewards. Wrong karma and wrong wrong karma
+[APZ 135.2] (# apz135.2) # apz135.2 .ref .apz යනු "Is this kamma wrong?"
+Wrong kamma says that there is a reward for lust. Flawless kamma
+White says there are white rewards. Wrong kamma and wrong wrong kamma
 It means to remove, to exclude, to appease, to make unproductive. Purity
 Impurity is impurity in that one does not desire impurity
 Wishing. Even if you wish for akushala dhammas. Purity is purity
@@ -225,8 +225,8 @@ It also means practice.
 
 [APZ 136.3] (# apz136.3) # apz136.3 .ref .apz} "Unquenchable lust in nature
 The desires that are there are the desires of images, the desires of sound, the desires of smell, the desires of taste,
-Tactile desires are Dhamma desires. Bhavya Bhavya is the karma of Bhavya Bhavya
-In the rebirth of the bhava, in the rebirth of the kama bhava, in the image of the karma bhava
+Tactile desires are Dhamma desires. Bhavya Bhavya is the kamma of Bhavya Bhavya
+In the rebirth of the bhava, in the rebirth of the kama bhava, in the image of the kamma bhava
 Repeat in rebirth, in rebirth, in rebirth, in rebirth
 In the recurrence of recurring spirits in the crisis, there is unquenchable lust
 There are unquenchable desires, there are unquenchable desires, there are unquenchable desires

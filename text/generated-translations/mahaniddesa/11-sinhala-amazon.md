@@ -635,7 +635,7 @@ Bhikkhu never bore anyone and dandruff. Nobody is and does not debate. Something
 It also implies, does not paralyze.
 
 [APZ 112.4] (#apz112 .4) {#apz112 .4 .ref .apz} "Discreet
-absent” is from the karma, from the room to the karma, from the room to the karma
+absent” is from the kamma, from the room to the kamma, from the room to the kamma
 Re-Jewelery, Image Karma, Image Re-Jewelery, Image Jewelery Karma
 Jewelery Repeat, Repeated Jewelery, Repeat Brew, Repeat
 Repeated to Genesis to Brew again and again to Spirit,

@@ -355,8 +355,8 @@ For order or for shallow meaning or for deep meaning or for hidden meaning
 or for the meaning of the shower or for the meaning to come, or the meaning of which came
 Neither in order or in order of wrong meaning or in order not to mean without straighter
 Meaning order or for purpose or for purpose. It's all Buddha's wisdom
-Inclusione. All the bodies' karma of the Buddhist Buddhist are in the wisdom
-Inclusione. All phrases in consciousness include all manas karma in consciousness
+Inclusione. All the bodies' kamma of the Buddhist Buddhist are in the wisdom
+Inclusione. All phrases in consciousness include all manas kamma in consciousness
 Including. The wisdom of the past of the Buddhist Buddhist was unfolded.
 The wisdom of the future is in Nomadinee. The consciousness of the existing time is unfolded. What to do
 Only the wisdom and that is the same, the wisdom of which is to be toothed. What to do with consciousness

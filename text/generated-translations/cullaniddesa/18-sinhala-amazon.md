@@ -203,7 +203,7 @@ Nezajjikanga, by reality, by secondary medium,
 From the tertiary center, from the turnal center, the longitudinal society,
 From Conscious Societies, from Conscious Societies,
 Nevadanasagathas are getting rid of society. Emancipation It Dependencies
-Segmented is the genitourinary name, it is deplorable, and it is segmented (iv) by deplorating karma
+Segmented is the genitourinary name, it is deplorable, and it is segmented (iv) by deplorating kamma
 Segmented, Reward RangeSegmented. Karma is esteem. Replicates
 Segmented. Bad, he knows the spheres. Depend the image of this person
 Segmented. (Applicable here (iv)) Nevassannagna was a society dependant
@@ -219,7 +219,7 @@ Knowing and knowing the bonding, knowing the shield, and deciding with the decis
 Propare
 
 [APZ 84.2] (#apz84 .2) {#apz84 .2 .ref .apz} "Nandi combination thus know” is
-The combination of Nandi tells Aimal Lust. Images are elbowed in that karma. Images
+The combination of Nandi tells Aimal Lust. Images are elbowed in that kamma. Images
 Lust is the combination of Nandi knowing and knowing bonding, knowing shields and knowing skin
 Determine and Prohibit “Ithi” (thus) is the verses joint, verses
 Adjustment. Filling the verses is to complete the letters. Words are siling. Verses

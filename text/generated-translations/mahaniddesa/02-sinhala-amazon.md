@@ -306,7 +306,7 @@ Feeling is applied to the face, thus the good of the Buddha's Buddhist Buddhist
 The way does not consper, but it is worth the risk of Nui.
 
 [APZ 9.4] (#apz9 .4) {#apz9 .4 .ref .apz} "They get into misconduct” here
-Heterogeneous is the anomalous anomalous anomalies of the anomalous bodika karma
+Heterogeneous is the anomalous anomalous anomalies of the anomalous bodika kamma
 Heterogeneous in the anomalous community of fantasy, heterogeneous in the anomalous community
 The anomalies of the heterogeneous lies of the heterogeneous lies in the aromatology
 Alloy of the heterogeneous medium of the heterogeneous norm of the word'
@@ -377,8 +377,8 @@ Know” All things are omnidirectional without shying everything from all things
 It is this word that is besieged without.
 
 [APZ 10.4] (#apz10 .4) {#apz10 .4 .ref .apz} "knows poignant”,
-Heterogeneous bodies know the karma is heterogeneous. Heterogeneous vachi karma is heterogeneous
-ManaH knows karma is heterogeneous. It is known that the heterogeneous primis is heterogeneous. heterogeneous
+Heterogeneous bodies know the kamma is heterogeneous. Heterogeneous vachi kamma is heterogeneous
+ManaH knows kamma is heterogeneous. It is known that the heterogeneous primis is heterogeneous. heterogeneous
 Pulinaha is vicious, and heterogeneous Kama knows myth is heterogeneous.
 Heterogeneous mucosa is heterogeneous, and heterogeneous is known to be vicious. Heterogeneous Pharogeneous
 Know the word is heterogeneous. Heterogeneous blank words are known to be heterogeneous. heterogeneous
@@ -391,7 +391,7 @@ Know” The description is finished.
 
 [APZ 10.5] (#apz10 .5) {#apz10 .5 .ref .apz} "Due to its vicious
 Do not behave.” is a heterogeneous boditis that does not behave due to heterogeneous boditis. heterogeneous
-Vachi does not behave malignant due to karma. Heterogeneous due to heterogeneous chetana
+Vachi does not behave malignant due to kamma. Heterogeneous due to heterogeneous chetana
 Do not behave. Heterogeneous PriisDo not behave malignant due to ingestion. Samaden
 Not “the discreet, but life is little,” life is life,
 Existence of dependence, presence, life life is the rule of life, and the facts
@@ -519,8 +519,8 @@ The voice, and come into the dream, (
 [APZ 11.14] (#apz11 .14) {#apz11 .14 .ref .apz} "The Five Undeniable Cravings of Bhawabavan
 “antho” means “cravings” image cravings sound cravings odor cravings
 Cravings touch cravings cravings () Bhavabawawana is in Karmabawawawawaya
-The image of the revival, the image of the revival of the karma, the image of the revival,
-Repeat the rejuvenation of the karma, repeating the rejuvenation
+The image of the revival, the image of the revival of the kamma, the image of the revival,
+Repeat the rejuvenation of the kamma, repeating the rejuvenation
 Repeated in the Spirit is the repeated in the recentality of Genesis.
 
 [APZ 11.15] (#apz11 .15) {#apz11 .15 .ref .apz} "Bhawa” is in the room

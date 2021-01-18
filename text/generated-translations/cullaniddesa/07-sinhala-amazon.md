@@ -24,11 +24,11 @@ Minor.
 
 [APZ 12.2] (#apz12 .2) {#apz12 .2 .ref .apz} 'Akushalamuyo' is the LOBY Akushala
 root. Malice is a root of the intestine. This is the Trusts
-by. Mahani, three notions for the presence of karma. -Lobby
-The presence of karma is a sleep. Malice is a sleep in the presence of karma. brains
-The presence of karma is a sleep. Karma or malice that arises from the Mahani world
-From a karma which aroused, or from a whimsled karma, or God does not appear. Intestinal
-Even if Sugathihe is not received. Karma, but born out of the lottery-born karmaKarma is born with hypnosis, the bad is the foaming. The bestial vagina lungs.
+by. Mahani, three notions for the presence of kamma. -Lobby
+The presence of kamma is a sleep. Malice is a sleep in the presence of kamma. brains
+The presence of kamma is a sleep. Karma or malice that arises from the Mahani world
+From a kamma which aroused, or from a whimsled kamma, or God does not appear. Intestinal
+Even if Sugathihe is not received. Karma, but born out of the lottery-born kammaKarma is born with hypnosis, the bad is the foaming. The bestial vagina lungs.
 Prethecular lungs. Some of that other is in the lungs. Beasts of the bad
 Yaniya, and also in the subject of premeditation, is a spirit. This is the original epileptic
 He knows the people. sees.
@@ -293,7 +293,7 @@ Must.) The decision will be made with the acquaintance of the exodus.
 [APZ 17.2] (#apz17 .2) {#apz17.2 .ref .apz} "Nowhere does anyone get to
 To one, no shock,” is to the earthy alesnas.
 Ready. 'A shock' is a craving shock, vision shock, dimensional, vibration clesias
-There are no these shocks that the shock is karma. Unabetted, Unborn, Continction
+There are no these shocks that the shock is kamma. Unabetted, Unborn, Continction
 Initially, there was a comparison. Efology to be born. Consciousness was burned by a bending fire
 Ready. 'Nowhere 'means any place in education or external or academic
 external or inordinate. 'Lokaya' is used in Hell Location (1-1) 1 (i)

@@ -38,7 +38,7 @@ There is such purity in the prototypical eye. That is why Masasin also has eyes.
 
 [APZ 85.4] (# apz85.4) # apz85.4 .ref .apz} "How Blessed
 Does the prophet have eyes? Blessed is He who is pure beyond man
-The prophet sees the animals coming as karma. The Blessed One likes
+The prophet sees the animals coming as kamma. The Blessed One likes
 Seknam sees one world, two world relics. The world sees three relics.
 The world sees five, ten, twenty, relics. Thirty world relics are seen, world relics
 Sees forty. Fifty sees, a thousand sees, two thousand medieval world relics
@@ -188,7 +188,7 @@ In a way, the world looks at nothing. "
 
 [APZ 88.8] (# apz88.8) # apz88.8 .ref .apz} This is by Blessed
 Was spoken. "Sir, this body is not mine, it is not mine, it does not belong to anyone else.
-This is an ancient karma of intentional pain.
+This is an ancient kamma of intentional pain.
 Mahanai, by its very noble Aryan disciple, the antiquity is well established.
 Wisdom remembers. This is when this happens. This is what happens at birth.
 This is not the case without it. This is suppressed by the suppression of this. Ignorance

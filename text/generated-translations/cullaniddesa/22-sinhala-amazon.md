@@ -166,7 +166,7 @@ Gone. He has finished the rain, has the habitual travel
 There is no revival. Bhavavea is called Bhatiya, which exceeds the Bhatiya. Karmabhaya too
 Replace resuscitation is also the resuscitation.
 
-[APZ 104.5] (#apz104 .5) {#apz104 .5 .ref .apz} "What is the karma? Bearing
+[APZ 104.5] (#apz104 .5) {#apz104 .5 .ref .apz} "What is the kamma? Bearing
 Edit is the Annejabi edition. Revival of Reconcitation?
 Conscious images are the editors of the signal, the editors of the signal, the reconnects
 Revival, 'exceeded' is the separation.

@@ -170,7 +170,7 @@ You should use 'any allusion in the generation') Central, Lophiya, Akshala
 The root is the same. Bhavabhaya is for the rejuvenation of Karmabhaya for Bhawaya
 Karmabhaya for Karmabhaya for Karma Bhaya for Karma Bhaya for Karma Bhaya
 In order to revitalise the room for rejuvenation, for the revival of the pictogram for revival
-Repeat in order for unimaginable troops to karmababhaya for unimaginable bile
+Repeat in order for unimaginable troops to kammababhaya for unimaginable bile
 Repeated Spirit to be born againRebirth in order to have
 Repeat Repeat in order
 

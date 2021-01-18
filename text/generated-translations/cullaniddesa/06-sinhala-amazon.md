@@ -18,7 +18,7 @@ The name of Brahman is the imposition. The essence is the Nirukthi verse. Armant
 This is the victim of that Brahman. The imposition is the law.
 
 [APZ 9.3] (#apz9 .3) {#apz9 .3.ref .apz} "Who has no shock?” Cravings,
-This is the shock, the vision shock, the dimensional shock, the clesy shock, the karma shock
+This is the shock, the vision shock, the dimensional shock, the clesy shock, the kamma shock
 Whoever does not receive, and not academic, or not, first of all
 Is it possible to be born, and to constipation, and to burn with a fire called wisdom
 Ready. “Whoever knows the two extremes”

@@ -282,7 +282,7 @@ Disease, Stomach Disease, Fainting, Diarrhea, Cholera, Leprosy, Stomach, White G
 Mumps, eczema, vitiligo, leprosy, paralysis, cancer
 The disease, called Bhagandhara, is a disease caused by bile. Slow-onset diseases,
 Airborne diseases, syphilis, seasonal diseases,
-Diseases caused by heterogeneous existences, diseases caused by tricks, karma
+Diseases caused by heterogeneous existences, diseases caused by tricks, kamma
 Consequences are diseases. Cold, heat, heartburn, thirst urination
 Flies, mosquitoes, reptiles, reptiles, etc.
 These are known to be pathological.

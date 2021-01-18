@@ -151,7 +151,7 @@ The person takes the wrong way like a breakage plane.
 It takes a heresy. A myth, a word industry
 A divination effort takes a sense of myth. Gamseh relevant
 The plane of the unscrupulous crusher will climb in a heterogeneous virtue or stone or the epidermis itself.
-The person of the robes climbs the same heterogeneous bodiya karma.
+The person of the robes climbs the same heterogeneous bodiya kamma.
 The heterogeneous manuskery rises. Heterogeneous communities get up to the killings. heterogeneous
 Rise to Adinnadana. Heterogeneous kama climbs into mythology. heterogeneous
 Rise into bliss. Rise to the heterogeneous pusunawakshin. heterogeneous
@@ -322,11 +322,11 @@ makes. One makes the house break, the infestation remains. Karma Karma, Liar
 Say, this becomes Kilty. And he will not catch kings, but make them caprish.
 Duct with garments. Fruit from rattan. Half shawl with a rod. Hand cutter foot
 Cutes are both limbs. The ear will scrub both the nose and the canal. Karma if bilanganthalic
-Karate. Karma karma for lifting from a rough thing to a head suction
+Karate. Karma kamma for lifting from a rough thing to a head suction
 Karate. Karma if Rahu Oral, which will shoot a groin in Katte. Jothimal Names Karma
 Karate. Karma Karth named Haththapajotik. Karma Karma if Erakathtika. Chinese resident
-If karma. Karma in the research. Karma karma if balisaman.
-Karma karma if kahapanic. Karma karma if korative. postedPrecious Procuitous Names
+If kamma. Karma in the research. Karma kamma if balisaman.
+Karma kamma if kahapanic. Karma kamma if korative. postedPrecious Procuitous Names
 Karma Karat. Carry out the epidermis, which is wrapped with fillings and burns.
 Insulated with ruthed oil. Dogs. Sit at the same time in the worm.
 Head with sword. This comes into diminishing. Madanalawa from Yalidu Kama Cravings

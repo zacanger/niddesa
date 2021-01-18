@@ -204,7 +204,7 @@ From the nasal passages, from the rectum, from the first meditation, from the se
 From the Tertiary Meditation, from the Fourth Meditation, from the conclusion of the Akashananchayatana,
 From the conclusion of the Vinyananchayatana, from the conclusion of the Akinchanchayatana,
 Means to be freed from the neophyte. Liberation recited it
-That which exists is transcendental (iv) that which transcends karma
+That which exists is transcendental (iv) that which transcends kamma
 Yes, the rewards are goneHas been written. Karma is respected. Respecting the crisis
 There is. Again the Blessed One knows. When this person recites the image itself
 There is. (Apply (iv) here.) The neoconservative endings were read.
@@ -220,7 +220,7 @@ Knowing the cause, knowing the attachment, knowing the bond and knowing the pest
 Short is known as short.
 
 [APZ 84.2] (# apz84.2) # apz84.2 .ref .apz} "Thanksgiving is a combination of knowing"
-Nandi combination is what Arupa Raga says. Idolatry clung to that karma. Arupa
+Nandi combination is what Arupa Raga says. Idolatry clung to that kamma. Arupa
 Knowing that lust is a combination of Nandi, knowing that it is attachment, knowing that it is bondage and knowing that it is a pest
 It is short-sighted and decisive. "Ithi" (thus) is the junction of words, verses
 Matching. Fill in the blanks and complete the letters. The words are silly. Terms

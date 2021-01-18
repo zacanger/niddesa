@@ -321,13 +321,13 @@ Comes to dream. Killing animals, stealing, breaking into houses, and looting
 Does. One house breaks down and is in danger. He also commits adultery and lies
 Says, thus getting dirty. He captured kings and tortured them.
 Whipped cream. Pierced with canes. Pierced with a half-broken stick. Hands cut off feet
-Cut off both limbs. The ear cuts both the nose and the earlobes. Bilangathalika is karma
-And. Sankamundika karma, the act of pulling something rough until the head is white
-And. Rahu, who puts a thorn in his mouth, also does karma. Jotimalika is karma
-And. Hatthapajjothika also does karma. Erakavatthika does karma. Cherakavasi
-Even if karma is done. Even if karma is done. Balisamansika does karma.
-Kahapanika also does karma. Kharapatachchika also does karma. If the shield is convertible
-Doing karma. He also performs the ritual of burning wrapped in straw.
+Cut off both limbs. The ear cuts both the nose and the earlobes. Bilangathalika is kamma
+And. Sankamundika kamma, the act of pulling something rough until the head is white
+And. Rahu, who puts a thorn in his mouth, also does kamma. Jotimalika is kamma
+And. Hatthapajjothika also does kamma. Erakavatthika does kamma. Cherakavasi
+Even if kamma is done. Even if kamma is done. Balisamansika does kamma.
+Kahapanika also does kamma. Kharapatachchika also does kamma. If the shield is convertible
+Doing kamma. He also performs the ritual of burning wrapped in straw.
 Sprinkle with heated oil. Never get dogs. Even if the spike is still alive.
 The head is cut off by the sword. This is how it becomes a dream. Again crushed by lust
 All that was taken was the ship going to the ocean in search of crops. Winter or

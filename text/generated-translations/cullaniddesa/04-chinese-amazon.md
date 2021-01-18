@@ -1,40 +1,29 @@
-3. Description of Brahman, the Phurunagar student
 
-12. [Like this, His Holiness the Rich House:] Those who do not disturb, and the
-    Seekers of the Root, have the need come in question,
 
-And what immortal people, people, the Cartilis, and the Brahmen to the angels,
 
-There are many sacrifices here in the world? Worldworld, I ask you, please tell
-me this.
 
-“Undisturbed, the Seeker of the Root”: “'Disturbation is called thirsty love,
-that is greed, lust (total greed)... (medium) greed, greed, bad root. The
-disturbance has been cut off for Buddha and Worldom, the root has been cut off,
-like a rooted palm tree, becomes a non-living thing for the future, so Buddha is
-not disturbed. The disconnected state of disturbance is not disturbed, Worldhm
-does not shake when it gets; does not shake when it does not get; does not shake
-when [has] reputation; does not shake when there is no reputation (bad
-criticism); nor does it when praise Shake; do not shake when rebuked; not shake
-during music; do not shake, do not move, do not shake, no tremble, no tremble
-(strong trembling) [, less trembling (strong trembling)]. For those who do not
-disturb “Seeker of the Root”, Worldworld is the viewer of the root, the viewer
-of the cause, the seeker of the origin, the seeker of the origin, the viewer of
-the origin, the viewer of the origin, the viewer of the food, the sight of the
-origin The Seeker of the Edge, the Seeker of the Set.
 
-There are three bad roots: bad root, bad root, bad root.
 
-This is said by the Worldmen, “The There are the causes of these three sets,
-which three? Greedy is the cause of industry set, is the cause of industry set,
-obsession is the cause of the industry set. Bichu! Not by greed, obsession,
-obsession, obsession, people are known, or any good interests have been known,
-the Bichu! But by greed, obsession, obsession hell is known, the animal world is
-known, the hungry ghost world is known, or any evil [AN.6.39]: in hell, animal,
-hungry ghosts are born known. These three unrighteous roots the world knew and
-saw, so that worldly was the sight of the root... The Seeker of the (middle)
-set. There are three good roots: no greedy root, no good root, no idiot good
-root.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 This is said by the Worldmen, “The There are three... (in the middle) Picchu! No
 greed, no business, no obsession hell was known, the animal world was known, the

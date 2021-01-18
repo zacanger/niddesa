@@ -135,7 +135,7 @@ did not. Ready.
 [APZ 74.7] (#apz74 .7) {#apz74 .7 .ref .apz} "Seeing, Hearing, Discreetly,
 It is not without the answer of the eczema,” it is not without the answer, seeing is what to do
 The object objectiveview should be preferred. There is a fruit in what was given. Regrated
-There are rewards in the thing. There are rewards of what is done and rewards of good ungood karma
+There are rewards in the thing. There are rewards of what is done and rewards of good ungood kamma
 There are. There is this world. There are parotists. There is the mother. There is a father. There are opaetic animals. Someone
 This world, paraloquence, and better to know and make good
 Siri Brahmins who adhere to the good who take the resource
@@ -532,8 +532,8 @@ Does the dimension also become prefabricated, like a palm tree that was original
 The demise is also taken from the mumps. It's not great
 It is not located.
 
-[APZ 81.5] (#apz81 .5) {#apz81 .5 .ref .apz} "karma or from what is heard or
-The discipline is not an epoch” is not a karma in the Pundity Edition
+[APZ 81.5] (#apz81 .5) {#apz81 .5 .ref .apz} "kamma or from what is heard or
+The discipline is not an epoch” is not a kamma in the Pundity Edition
 or from the Inspicial Edition or the Anneal Edition or not, not available
 The presence of pus should not accumulate.
 

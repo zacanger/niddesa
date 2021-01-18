@@ -167,10 +167,10 @@ The image is the second extreme. The spiritual institutions of love are one extr
 External institutions are the second extreme. Self-perception is one extreme. Having self-perception
 The other end. Panidhi is called lust. 'Is there any lust' (1-3) 4
 'Should there be any attachment in the paragraph' should be used) Ignorance, greed, incompetence
-The root is. Bhavabhavaya is the rebirth of karma for the sake of bhava
-For the sake of lust, for the sake of karma, for the sake of lust, for the sake of form, for the sake of karma
+The root is. Bhavabhavaya is the rebirth of kamma for the sake of bhava
+For the sake of lust, for the sake of kamma, for the sake of lust, for the sake of form, for the sake of kamma
 To reincarnate to reincarnate to reincarnate to reincarnate to reincarnate
-Repeat for the sake of karma, for the sake of karma, for the sake of abstraction
+Repeat for the sake of kamma, for the sake of kamma, for the sake of abstraction
 To be born again is to be born again in order to be born again
 In order to repeat the crisis
 

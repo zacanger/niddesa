@@ -307,7 +307,7 @@ Even if the face is used emotionally in this way, it is good for the disciples o
 The path does not follow the discourse but is called Nui Attention.
 
 [APZ 9.4] (# apz9.4) මෙහි # apz9.4 .ref .apz} "They entered into immorality" here
-Heterogeneous is the heterogeneous body attached to the heterogeneous vachi karma
+Heterogeneous is the heterogeneous body attached to the heterogeneous vachi kamma
 Heterogeneous clinging to fantasy, Heterogeneous suicide, Heterogeneous update
 Heterogeneous in adultery, heterogeneous in falsehood, heterogeneous in falsehood
 Sticking to the heterogeneous allure of the word harsh, clinging to the heterogeneous adjective
@@ -378,8 +378,8 @@ Know "of all, omnipresent, omnipresent, omnipresent
 This is the word that is not surrounded.
 
 [APZ 10.4] (# apz10.4) {# apz10.4 .ref .apz} in "heterogeneous",
-The heterogeneous body is known to be heterogeneous. The heterogeneous vachi karma is known to be heterogeneous
-The mind knows that karma is heterogeneous. Heterogeneous suicide is known to be heterogeneous. Heterogeneous
+The heterogeneous body is known to be heterogeneous. The heterogeneous vachi kamma is known to be heterogeneous
+The mind knows that kamma is heterogeneous. Heterogeneous suicide is known to be heterogeneous. Heterogeneous
 Adinnadana is known to be heterogeneous Heterogeneous heresy is known to be heterogeneous.
 Heterogeneous lies are known to be heterogeneous Heterogeneous slander is known to be heterogeneous. Heterogeneous rushes
 Knows the word heterogeneous. He knows that heterogeneous empty words are heterogeneous. Heterogeneous
@@ -392,7 +392,7 @@ In the world, in the world of relics, in the world of institutions, it means tha
 
 [APZ 10.5] (# apz10.5) # apz10.5 .ref .apz} "Due to anomaly
 Does not behave. "Does not behave abnormally due to heterogeneous bodies
-Vachi does not behave erratically due to karma. Heterogeneous due to heterogeneous motives
+Vachi does not behave erratically due to kamma. Heterogeneous due to heterogeneous motives
 Does not behave. Does not behave heterogeneously due to heterogeneous desires. Congratulations
 Life is life in "the wise say life is short"
 Existence is dependence, existence, life is the control of the senses, again facts
@@ -520,7 +520,7 @@ The voice becomes conscious, (means)
 [APZ 11.14] (# apz11.14) # apz11.14 .ref .apz} "Unquenchable lust in nature
 The "lust" of "the real" is the lust of images, the lusts of sounds, the lusts of smells, the lusts of taste.
 Desire Touch Desire Dharma Desire (means) In Bhavabhavans means in Karmabhav
-In the form of reincarnation, in the form of karma, in the form of rebirth, in the formless,
+In the form of reincarnation, in the form of kamma, in the form of rebirth, in the formless,
 Repeat, repeat, repeat, repeat, repeat, repeat, repeat, repeat, repeat, repeat, repeat
 Genesis means recurrence, recurrence, recurrence, recurrence.
 

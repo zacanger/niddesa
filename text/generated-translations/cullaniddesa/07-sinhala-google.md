@@ -24,12 +24,12 @@ A little.
 
 [APZ 12.2] (# apz12.2) # apz12.2 .ref .apz} 'Bad roots' means greed is bad
 A root. Hatred is a bad root and delusion is a bad root. This is the Blessed One
-By. Mahanai, there are three causes for the occurrence of karma. That is, greed
-A treasure trove of karma. Hate is the cause of karma. Moha
-A treasure trove of karma. Mahaneni by karma or hatred caused by greed
-God does not appear by karma or delusion. Others
+By. Mahanai, there are three causes for the occurrence of kamma. That is, greed
+A treasure trove of kamma. Hate is the cause of kamma. Moha
+A treasure trove of kamma. Mahaneni by kamma or hatred caused by greed
+God does not appear by kamma or delusion. Others
 Sugathies are not available. Mahanai, yet born of greed, born of hatred
-Karma born of delusion seems evil from karma. The beast's vagina appears.
+Karma born of delusion seems evil from kamma. The beast's vagina appears.
 The antecedent appears. There are other disadvantages as well. Beasts in Hell
 It is also the attainment of selfhood in the vagina and the foreskin. These are the first three inaccuracies
 The Blessed One knows. Sees.
@@ -38,7 +38,7 @@ The Blessed One knows. Sees.
 See. He also sees the occurrence. Alophaya is one of the three merit roots. Adversity
 Good luck. Amoha is a source of skill. The Blessed One preaches this
 Was. These are the three skillful sources. MahaNeni, arrogant
-God of karma, of hatred, of karma, of delusion, of karma
+God of kamma, of hatred, of kamma, of delusion, of kamma
 Peneth. People seem to. Some kind of alien and Sugathihu God among men
 Selfishness also seems to be gaining ground. The Blessed One knows that these are the three sources of skill.
 Sees. This is how the Blessed One sees the beginning. Occurrence is noticeable.

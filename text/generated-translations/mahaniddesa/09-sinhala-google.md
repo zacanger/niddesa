@@ -532,8 +532,8 @@ Did the dimension also fade away, like a palm tree that was originally cut down 
 What was destroyed will not be taken for granted. It is not exalted
 It is not established.
 
-[APZ 81.5] (# apz81.5) # apz81.5 .ref .apz} "by karma or by hearing
-Not one who is disciplined "is not by karma, but by the charitable edition
+[APZ 81.5] (# apz81.5) # apz81.5 .ref .apz} "by kamma or by hearing
+Not one who is disciplined "is not by kamma, but by the charitable edition
 Or neither the Apunyabhi edition nor the Ananjabi edition
 Panovai should come without collecting.
 

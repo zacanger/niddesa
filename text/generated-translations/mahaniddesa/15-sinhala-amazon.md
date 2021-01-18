@@ -45,15 +45,15 @@ On the unevenness, the bones are screwed back, and the body is crushed like a ha
 The body is sprinkled with red oil. Dogs are liking. Inflatable while alive
 Sit. Kadder also trim the head.
 
-[APZ 170.2] (#apz170 .2) {#apz170 .2 .ref .apz} for reasons of bath karma
+[APZ 170.2] (#apz170 .2) {#apz170 .2 .ref .apz} for reasons of bath kamma
 Foe comes to the domin. Where is this fear suffering Domnus from him? Soul Penalty
 came as. arises, fell down. The government itself overrides these four penalties.
-Breaking its own karmaReflectable has evil traits
+Breaking its own kammaReflectable has evil traits
 The birth of the evil rashes. He is a torment, if he is bound by the treads
 also. The stone in the hands of a cast iron hulle. The stone of the second hand of the cast iron hull.
 The tree of the cast iron hulle. The stone of the second iron hull. Rinted Iron
 Hulak palm in the chest. It suffered the cruel stethoses, which were plagued by the plight.
-That sin karma is not destroyed as long as he does not blacken. Hell Pal He Ground
+That sin kamma is not destroyed as long as he does not blacken. Hell Pal He Ground
 Gales from the foreground ketterie. Nyamapalayo used him in the car and glow in the fire
 Even if the fire fire that has been burned out on the site. Passing
 Karling. The fire that the Nyamapaleans had ignited him with fire, which he had burned with fire
@@ -74,19 +74,19 @@ The fire is spreading with a sip from the back.
 “Fear of the plight of the flame, not to be able to scare the most
 Bearing Lomar
 
-“(There) spread the flame in the oriental wall. Burning sin karma
+“(There) spread the flame in the oriental wall. Burning sin kamma
 The person will feel on the abusive wall.
 
 “Spread the flame in the western wallwas there. The person who burns out of sin
 On the oriental wall there is a pedestal.
 
-“In the northern wall, the flame spread. The one who burns in sin karma
+“In the northern wall, the flame spread. The one who burns in sin kamma
 The right length of the wall is in the wall.
 
-“In the southern wall, the flame spread. The one who burns in sin karma
+“In the southern wall, the flame spread. The one who burns in sin kamma
 Hanging on the northern wall.
 
-“From underneath there is a dangerous flame. He who burns in sin karma
+“From underneath there is a dangerous flame. He who burns in sin kamma
 Hapes.
 
 “Starting from the lid there is a dangerous flame. Sin Karma Burning Person (Under) Ground
@@ -98,7 +98,7 @@ will cause alarming.
 “It is the most sinful of it, the fierce doer with the voice of the bandage.
 No.
 
-“That hell is the body of the vaunted is like fire. Behold of the hardness of the karma, its ash or mesh
+“That hell is the body of the vaunted is like fire. Behold of the hardness of the kamma, its ash or mesh
 No.
 
 “Run to the east, then run to Aparandim, run north, and then south
@@ -107,7 +107,7 @@ Run at length.
 “Those creatures who seek redemption which desire exodus run to a certain length, and that length
 The door is clogged.
 
-“Because of the sins that have given their most rewarding, they are due to karma
+“Because of the sins that have given their most rewarding, they are due to kamma
 Not to be excreted from it.
 
 [APZ 170.4] (#apz170 .4) {#apz170 .4 .ref .apz} "He suffered this fear of Domnus
@@ -344,7 +344,7 @@ A filter, a lomudahana, a suspicion of this,
 Runs in all directions.” is a raghulin touch with a raghulin
 The person visualizes the Kines. The word visualizes. visualness of the heart
 makes. Animals kill. Makes trumps. The houses are also broken. It also makes looting.
-There is also a hazard. It also goes for paranormal karma. Liar says Mezsila Ragahulin
+There is also a hazard. It also goes for paranormal kamma. Liar says Mezsila Ragahulin
 The one who has been taken away, the one who has been in touch, runs. behave. Rehidu or
 The one who touched the hulling of lust, looking for a crop
 The ship descends into the General Assembly. Binking the dacha at the forefront of the cold
@@ -372,7 +372,7 @@ behave.
 Hulin, the name of the Hulin was caught in touch when he was taken away.
 The kaion behaves in the visualized manner. Behave in the visis by the word, in the heart
 behave. Animals kill. Makes trumps. The houses are also broken. The loob makes food. Same
-Surround a house is a hazard. There is also a hazard. It also goes for paranormal karma. Liars
+Surround a house is a hazard. There is also a hazard. It also goes for paranormal kamma. Liars
 says. Thus the dimensions were taken away from the sore, and the touch was run,
 behave.
 
@@ -1003,7 +1003,7 @@ Ready.
 The jealousy, the craving, the skin of all thou, the jealousy, the craving.
 Which? Here some individual profitability and multidimensional outlines
 The jealousy of the pills is true. Jealousy is bandaged. Any of those
-A jealous karma is jealous as jealous as jealousy is jealous
+A jealous kamma is jealous as jealous as jealousy is jealous
 Will. This says jealousy. Is this jealousy of someone's first
 Whether he was born and completely died away, and the wisdom was called
 And the fire says not the jealous. “Giju Naivhari

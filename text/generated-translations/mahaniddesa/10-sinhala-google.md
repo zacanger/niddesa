@@ -943,7 +943,7 @@ If the disease is self-limiting, epilepsy, itching, itching, nail disease
 From leprosy to blood, to bile, to honey, to paralysis to cancer
 Bhagandara was born with a birth defect, a slow birth defect, was born with air
 Heterogeneous from the disease caused by the change of seasons from the disorder, to the synaptic disorder
-From the disease that arises from existence to the disorder that arises from strategy and from the consequence of karma
+From the disease that arises from existence to the disorder that arises from strategy and from the consequence of kamma
 Illness caused by cold, heat, hunger, thirst
 Flies, mosquitoes, air, sun, and long species were at their convenience.
 Does not grieve. Not fainting but mourning. Do not touch the chest. Sleepy

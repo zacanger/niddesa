@@ -188,7 +188,7 @@ In a way the world looks zero.”
 
 [APZ 88.8] (#apz88 .8) {#apz88 .8 .ref .apz} This is by the Trusts
 Wadarana. “O O, this body is not mine, not the cradle, not someone else's,
-This is an ancient karma, which is accompanied by pain in the chetanah.
+This is an ancient kamma, which is accompanied by pain in the chetanah.
 Mahaniya, its grades, Aryan and the Samurdha
 Discreet remembrance. This will be the case when there is this. This is due to birth.
 This will not be the case when it is gone. This becomes undeniable by constipation. Science

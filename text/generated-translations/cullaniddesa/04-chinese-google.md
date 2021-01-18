@@ -1,44 +1,45 @@
-3. Explanations asked by the Brahmin of Fulunaga student
+# 4
 
-12. [Venerable Fulou Nage like this:] Those who do not disturb, the seer of the
-    roots, come with questions in need,
+3. Explanations asked by the Brahmin by student Fulunaga student
 
+12. [Venerable Fulounaga like this:] Those who are undisturbed, the seer
+of the roots, come with questions in need,
 The immortals, people, Kshatriyas, Brahmins,
-
 Are there many sacrifices in the world here? Lord, I ask you, please tell me
 this.
 
-"The one who does not disturb, the one who sees the root": ""Disturbance is
-called craving, that is greed, greed (complete greed)... (abbreviated) greed,
-greed, and unwholesome roots. That disturbance is for the Buddha and the Blessed
-One Being cut off, the root has been cut off, just like a palm tree without
-roots, becoming non-existent, for the future immortal, so the Buddha is the
-undisturbed. In the disturbed state of discontinued as the undisturbed, the
-Blessed One is getting Don’t shake when you don’t get it; don’t shake when you
+"The one who is not disturbed, the one who sees the root": ""Disturbance is
+called craving, that is greed, ... and unwholesome roots. For the Buddhas and
+the Blessed One that disturbance is cut off, the root has been cut off, just
+like a palm tree without roots, becoming non-existent, a non-living thing for
+the future, so the Buddha is the undisturbed. In the disturbed state of
+disconnection, the Blessed One does not waver; (???????) don’t shake when you
 don’t get it; don’t shake when [have] reputation; don’t shake when you have no
 reputation (bad reviews); don’t shake when you praise; don’t shake when you
-reprimand; Do not shake at times; do not shake, do not move, do not tremble, do
-not tremble (strong trembling) [, do not tremble (strongly tremble)]. "It is the
-one who does not disturb. "The one who sees the root", the Blessed One is Seer
-of the root, seer of the cause, seer of the cause, seer of the origin, seer of
-the root, seer of the waiting (origin), seer of the food, seer of the object,
-seer of the condition, Set of viewers.
+reprimand; do not shake at times; do not shake, do not move, do not tremble, do
+(?????). "The one who is not disturbed". "The one who sees the root", the
+Blessed One sees the roots, is the seer of the cause, seer of the origin seer of
+the waiting (origin), seer of the food (???), seer of the object, seer of the
+condition, seer of the set of views.
 
-There are three unwholesome roots: the root of greed and unwholesomeness, the
-root of aversion and unwholeness, and the root of ignorance and unwholesomeness.
+There are three unwholesome roots: the unwholesome root of greed, of aversion,
+and of ignorance.
 
 This was said by the Lord: Bhikkhus! There are causes and conditions for these
-three karma gatherings, which three are there? Greed is the cause and condition
-of karma, hatred is the cause and condition of karma, and delusion is the cause
-and condition of karma. Bhikkhus! It's not because of greed, hatred, or delusion
+three kamma gatherings, which three are there? Greed is the cause and condition
+of kamma, hatred is the cause and condition of kamma, and delusion is the cause
+and condition of kamma. Bhikkhus! It's not because of greed, hatred, or delusion
 that the heavens are known, people are known, or any good interests are known,
-monks! Rather than being known by greed, hatred, and delusion in the hell, the
+monks! But because of greed, hatred, and delusion, the hell world is known, the
 animal world is known, the hungry ghost world is known, or any evil interest
-[AN.6.39]: Individuals in the hell, animal world, and hungry ghost world are
-Know. These three unwholesome roots, the Blessed One knows and sees, so that the
+[AN.6.39] Individuals in hell, the animal world, and the hungry ghost world are
+known. These three unwholesome roots, the Blessed One knows and sees, and so so
 Blessed One is the seer of the root... (Omitted) the seer. There are three good
-roots: no good roots of greed, no good roots of hatred, and no good roots of
-delusion.
+roots: the good root of no greed, of no hatred, and of no delusion.
+
+------
+CHECKPOINT
+-------
 
 This was said by the Lord: Bhikkhus! There are these three... (omitted) monks!
 It's not that the hell of no greed, no hatred, no delusion is known, the animal

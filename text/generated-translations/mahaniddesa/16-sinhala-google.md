@@ -478,7 +478,7 @@ Criticizes superficial discipline. Nipaka or Panditha is the critique of super-w
 Mindfulness is the critique of purity. That is.
 
 [APZ 197.3] (# apz197.3) # apz197.3 .ref .apz} "Blacksmith blows silver
-Like Harinnak, "karmara" means goldsmith. Silver means silver
+Like Harinnak, "kammara" means goldsmith. Silver means silver
 Says the goldsmith Yamse, whether the silver is an olfactory bulb or a mediocre rust;
 The monk blows his own olfactory impurities, just as the delicate flower blows.
 Moderate Defilement Cleanses Subtle Defilement Removes, Removes, Infertility
@@ -587,8 +587,8 @@ The end of doing. Dahlia drinking flies and other flies and reptiles
 The swarm of flies. By no means do I want to convey that I recommend for the mother to be inactive
 Says. They fly away and come back and eat. Closing before the aqueduct
 They say flies. "Sirinsapa" means serpents. 'The touch of men
-Human touch is the so-called karma of whether it is about or about animals
-Or there are thieves or other people who have not done karma, they are from a monk
+Human touch is the so-called kamma of whether it is about or about animals
+Or there are thieves or other people who have not done kamma, they are from a monk
 Questions or inquiries, debates or quarrels, insults, insults
 They say, they are angry, they persecute, they kill, of certain people.
 Whether it is a bump or a death, it is human touch.
@@ -832,7 +832,7 @@ Whether or not the ambulance was medicated and pest-infested, as follows
 [APZ 205.4] (# apz205.4) {# apz205.4 .ref .apz} "Went to Magadha, to Kosol
 Gone. Some went to a foreign country. Like deer that do not stick to one place
 The monks live without pests, but the behavior is good. It is good to do good.
-Pest-free behavior is always a good thing, pradakshinakarma
+Pest-free behavior is always a good thing, pradakshinakamma
 These are the Shramana Dhammas of the Immaculate. The most ignorant of the learned
 Is, is.
 
@@ -976,7 +976,7 @@ The best friend in the world is the one who is good to the bad
 Disgusting. "
 
 [APZ 208.3] (# apz208.3) {# apz208.3 .ref .apz} "Strictness on subconscious
-Will drive away. The subrahmachari of means to do sangha karma together
+Will drive away. The subrahmachari of means to do sangha kamma together
 It means that there is a discipline similar to that of Pratimokshadhi. Subrahmanya
 Removes congestion on. Is a thorn in the side of the savages
 Removes such a hard heart. Removes the thorns of the heart. Called Raga

@@ -29,7 +29,7 @@ in this early translation. Several transliterations of the Pali are available,
 and may inform future corrections and revisions.
 
 This translation prefers Pali over Sanskrit terms (Dhamma vs. Dharma, kamma vs.
-karma, etc.), and chooses to forgo diacritics and accents, as those are both
+kamma, etc.), and chooses to forgo diacritics and accents, as those are both
 difficult to work with in English-language software, and difficult for most
 native English speakers to understand. To paraphrase Engels, changing the words
 we use a bit won't change the things themselves.

@@ -192,7 +192,7 @@ The link is placed in the lower positionWill there be minds?” 'I am most of th
 help. Tepy took the Buddha because of me. Doctrine was taken up, Sanghaya
 clothed, killed animals, by trumping, misbehaving in the room,
 Rahamera separated himself from the drink by lying. I read the text in the text. Solve the problems
-I say, poo. Reminery of new karma. But Thepy is beyond me and unto the
+I say, poo. Reminery of new kamma. But Thepy is beyond me and unto the
 Respect, care and multidimensional? Where Himself Higher
 The bond is placed in the lower position, which is the binding mind. Thus dispel the meaning
 makes.
@@ -390,7 +390,7 @@ It says that the agre was located in the Aryan clan.
 [APZ 128.4] (#apz128 .4) {#apz128 .4 .ref .apz} "Alarming to Dispel Hazards
 The hazards of “do not take” are two hazards. Dispute the Propeller
 The hazard is also the same. Trash Hazards, Lion, Breakable Survival, Bear, Cattle
-Solutions that have or do not have karma, ivory, ash, scorpio, spatula etc. (Great
+Solutions that have or do not have kamma, ivory, ash, scorpio, spatula etc. (Great
 (1-4) 4 (ii) hazards should be used from where they go.) They are in the apartheid
 Hazards are called.
 
@@ -671,7 +671,7 @@ Arrives. Mahaniyi, this should be used here (18-16) 8 (ii))
 
 [APZ 136.10] (#apz136 .10) {#apz136 .10 .ref .apz} "Mahana, Ship
 Bind household joints to mark the kama from the bed. Rigging. houses
-Except a few take away wealth breaking a house. Infestations. Permanent karma. A
+Except a few take away wealth breaking a house. Infestations. Permanent kamma. A
 He shall not catch kings, neither shall he be caught, and in decoction, and in wevels
 Stirling, half shabby, hand and scrub (Great Sleepness (7-7) (2)
 Kapi' should be used from where it goes.) Trim the head with the sword, and they go to death
@@ -753,7 +753,7 @@ Do not name Naga? The Buddha on that soil will not be prejudiced by the vote
 Not to be 'prejudiced by malice. ' Not Ragasyas
 It does not go as, does not go manically, does not go optically.
 Inflatly does not go. Do not go vertically, do not go as successively.
-Not from the typeted karma. Does not move. Thus is not the Buddha on that soil
+Not from the typeted kamma. Does not move. Thus is not the Buddha on that soil
 Naga.
 
 [APZ 139.3] (#apz139 .3) {#apz139 .3 .ref .apz} "How to Buddha on that soil
@@ -909,7 +909,7 @@ It is a companion of the vicious thing that is, in decimal mythology
 Justification (Should be applied here (ii).) The proofs also indicate this danger.
 
 [APZ 143.3] (#apz143 .3) {#apz143 .3.ref .apz} "The Alloy of the Vicious Thing” is a heterogeneous
-The alley of the boardman, the alley of the heterogeneous, the alley of the heterogeneous manaH karma
+The alley of the boardman, the alley of the heterogeneous, the alley of the heterogeneous manaH kamma
 Alloy of heterogeneous community, Alloy of heterogeneous Adaddana, Heterogeneous Kama
 Alloy of mythology, anomalous lying, the aluminious clam of the anomalous clam
 Alloy, heterogeneous hollow words of heterogeneous Pharous Word, heterogeneous stiff
@@ -1547,7 +1547,7 @@ Yutthaha.
 [APZ 161.3] (#apz161 .3) {#apz161 .3.ref .apz} "Dirty People” is
 “Self” is the sign. The self-interest signal is its own use
 In order, to do, to service, to behave, to pill, to question
-Ready. 'Dirty men' is dirty boys-karma people,
+Ready. 'Dirty men' is dirty boys-kamma people,
 People with dirty vocabulary, dirty fantasy
 People are. From Dirty Fatty, Dirty Rooms
 From dirty blasphemism, from dirty capillaries, from the unmistakableEvil

@@ -320,7 +320,7 @@ Will be. Thus the Blessed One had eyes wide open
 [APZ 156.3] (# apz156.3) # apz156.3 .ref .apz} "How Blessed
 Although the Prophet had open eyes, the Blessed One transcended human nature
 Pure (ii) whether the prophet was born, degenerate, or ancient;
-According to karma, those who go to happiness or those who go to misery
+According to kamma, those who go to happiness or those who go to misery
 Animals see these benevolent creatures who are definitely physically immoral
 Those with verbal depravity and those with mental depravity belong to the Aryans
 Idolatry, paganism, paganism, they
@@ -331,7 +331,7 @@ The Aryans are no exception. Those who have a vision have a vision
 Are the celebrants. They are heavens with good qualities after the breaking of the body and death
 Are born in the world '(ii) Thus pure beyond human nature
 Prophesied, Born, Dreamed, Ancient, Beautiful
-Animals that are ugly and go to good or bad according to karma
+Animals that are ugly and go to good or bad according to kamma
 If the Blessed One knows, he will see the same world relic. World
 He sees two relics, three world relics, four world relics, five world relics
 He sees. He sees ten world relics. He sees twenty world relics. world
@@ -421,7 +421,7 @@ Epilepsy, rash, itching, small blisters, nausea, vomiting
 Itching, hemorrhoids, diabetes, paralysis, cancer, diarrhea, diarrhea
 Disease, Slow Disease, Airborne Disease, Third Disease Seasons
 Mutant disease, heterogeneous disease, congenital disease,
-Whether the disease is the result of karma, cold, heat, hunger, thirst or defecation?
+Whether the disease is the result of kamma, cold, heat, hunger, thirst or defecation?
 These diseases are also caused by flies, mosquitoes, air, sun and long-lived species.
 Whether this is a hazard or a hazard, who are the hazards covered by the hazard?
 Physical immorality, verbal immorality, mental immorality, libido inhibition, movement
@@ -558,7 +558,7 @@ Was.
 [APZ 158.3] (# apz158.3) # apz158.3 .ref .apz} "Is this really scary?
 Came "said Bahiddharammana. Lions, tigers, leopards,
 Bears, black bears, wolves, horses, horses, elephants, snakes,
-Scorpion thieves who have karma done or karma not done
+Scorpion thieves who have kamma done or kamma not done
 He is also a human being. Fear again in another way. Spiritual
 Fear of the terrible things that arise in the mind The rise of the hairs The fear of the mind
 Fear of race, fear of disease, fear of death, fear of kings, fear of thieves, fear of fire, fear of water

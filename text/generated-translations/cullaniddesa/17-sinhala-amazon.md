@@ -113,7 +113,7 @@ Whether an award is a satire.
 [APZ 76.2] (#apz76 .2) {#apz76 .2 .ref .apz} "Inquisitely & Spiced
 Purified” is the instructor and the purified. Sanctified
 Pure and clean, babalannahu yard rahithawahu
-Aththahu was used to karma.
+Aththahu was used to kamma.
 
 [APZ 76.3] (#apz76 .3) {#apz76 .3.ref .apz} "Dhamma argument goes before”
 The Dhamma argument is what the concept tells. It will be in the same way. Previouses.

@@ -90,7 +90,7 @@ Woes of the General Recommendation (General Recommendation (15-2) is 'shocked by
 Sadness should be changed and used to the point of view distress. (Out of 1889)
 
 [APZ 2.5] (#apz2 .5) {#apz2 .5 .ref .apz} as a result of certain doctrines
-Do they see, and see reproach by going into the heart, and karma and reward are mixing
+Do they see, and see reproach by going into the heart, and kamma and reward are mixing
 Reward and Karma Migration Name Figure and Migration Image Name and Migration Nation
 Did he go according to Jarrawen, and was madana by business, and was beaten by death,
 Is it not a place of protection, and not a place to be located, and not a place to be located

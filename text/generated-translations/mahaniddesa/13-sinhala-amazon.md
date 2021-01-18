@@ -47,7 +47,7 @@ is the optics of the opticality of the optics of the opticality of the optics of
 There are two fruit fruits. Win is defeated. Dividend profits. Reputation Scandals
 Wei. Reproach reproach. Well-being Wei Somnus Domnus Wei.
 Ishtanishi. Compliance and irritation passes. Cuttings are collisions. Anurodor and
-Viroda passes. Really or that karma causes bad foe. Causes of bestial vaginal foul
+Viroda passes. Really or that kamma causes bad foe. Causes of bestial vaginal foul
 Wei. Say the cause of predissive foul. Deshana I am worm. I open. Divide.
 I will prod. I will be promulating.
 
@@ -177,8 +177,8 @@ And they were dismantled and compressed, except for all the unborn.
 Brought into Nouveradah
 
 [APZ 135.2] (#apz135 .2) {#apz135 .2 .ref .apz} "Wrong Correct Is This Karma”
-Wrong karma says the craving reward is true. Wrong Karma
-Suduu says there are white rewards. Wrong karma and wrong karma
+Wrong kamma says the craving reward is true. Wrong Karma
+Suduu says there are white rewards. Wrong kamma and wrong kamma
 The impoverished and, except, bring the constipation into the nostra. Good
 The impurity is the impurity that does not seek the impurity
 Favorable. Adopting Akushala doctrines. Ecstant is a good
@@ -626,7 +626,7 @@ I will not take the Lady's Ashtankan road, which will not be the Bothangian.
 I am not well aware of the grieving fact, I am suffering
 The cause of the occurrence was not made, I did not go the way, Nirvana
 I reproach himself because he is thus disgraced
-Because the undone is a tree unto himself, so do not these karmas that reproach him.
+Because the undone is a tree unto himself, so do not these kammas that reproach him.
 Nooi does not reproach himself, because it does not cause the cause.
 
 [Msdiv 149] (#msdiv149) {#msdiv149 .ref .msdiv} (13 - 20)

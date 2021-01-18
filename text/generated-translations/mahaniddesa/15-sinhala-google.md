@@ -45,10 +45,10 @@ On the day of extinction, the bones are crushed again and the body is crushed li
 Sprinkle the body with hot oil. Dogs also bark. In the air while alive
 Sit down. The sword also cuts off the head.
 
-[APZ 170.2] (# apz170.2) {# apz170.2 .ref .apz ද Is he due to various karmas?
+[APZ 170.2] (# apz170.2) {# apz170.2 .ref .apz ද Is he due to various kammas?
 Sadness comes to grief. Where did this fear and sorrow come from for him? Self-punishment
 Came as. Arose, descended. The king himself is the master of these four punishments.
-He has evil traits that are removed from the pleasures of death by breaking his body by his own karma
+He has evil traits that are removed from the pleasures of death by breaking his body by his own kamma
 Evil is born of falling evil. To him the hellish torturers are the five kinds of bondage
 And. A hot iron rod in his hand. A heated iron rod in the second hand.
 A heated iron rod was struck in the leg. A heated iron rod struck the second leg. Heated iron
@@ -98,7 +98,7 @@ It causes panic.
 "It's very sinful.
 Not die.
 
-"The body of the inhabitants of that hell is like fire. Look at the severity of karma, its ashes or lattice.
+"The body of the inhabitants of that hell is like fire. Look at the severity of kamma, its ashes or lattice.
 No.
 
 "Run east, run west, run north, then run south.
@@ -107,7 +107,7 @@ Continuing daughters.
 "Exodus is the longing of the beasts that seek redemption.
 The door closed.
 
-“They are due to karma because of that sin which did not give them much retribution
+“They are due to kamma because of that sin which did not give them much retribution
 Unable to get out of it.
 
 [APZ 170.4] (# apz170.4) # apz170.4 .ref .apz} "This fear saddens him
@@ -1003,7 +1003,7 @@ That is.
 Or jealousy of not having lust and being all alone
 which? Some person here is profiteering respectful polytheism of others
 The jealousy of the men becomes a possession. Jealousy binds. Something like this
-Jealousy jealousy karma jealousy jealousy jealousy
+Jealousy jealousy kamma jealousy jealousy jealousy
 Veda. This is called jealousy. This jealousy of someone is futile at first
 Wisdom is the state of being born into a state of inertia
 He says he is not jealous of the fire. “No greed

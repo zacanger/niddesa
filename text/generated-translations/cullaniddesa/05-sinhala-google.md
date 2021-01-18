@@ -90,7 +90,7 @@ Suffering is (in Commandment (15-2) 'shocked at birth' means' at birth
 Grief 'should be changed and visual calamities should be used instead of misery. (P. 1889))
 
 [APZ 2.5] (# apz2.5) {# apz2.5 .ref .apz හට
-The gain is seen, the loss is lost, the karma and the reward are mixed
+The gain is seen, the loss is lost, the kamma and the reward are mixed
 Reward and Karma Mixed Name Name Image and Mixed Image Name and Mixed Nation
 Followed, suffered from filth, was afflicted with disease, was beaten to death,
 Help is not a place of sorrow, nor a place of refuge

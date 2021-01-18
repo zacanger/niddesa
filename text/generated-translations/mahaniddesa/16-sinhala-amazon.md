@@ -587,8 +587,8 @@ is the end of doing. Dahle drink flies and other flies and perpents
 Macy is the group. By what point is the “clutched flies of the mother to all flies
 Saws. They spill the spill and come back. Cinching in the Maththatha
 Meson say. “Syringsep” is what serpents say. 'People's touch
-The human touch of the beasts is called karma
-or thieves or fellow people with unformed karma, they are from the monk
+The human touch of the beasts is called kamma
+or thieves or fellow people with unformed kamma, they are from the monk
 Question or CommentsHuah, Dispise or Ennahua, Bandinahua, Niradabas
 Kienahua, Kopp vennahuah, the persecutor, Nakanaha, some of those men
 It is the human touch whether it is a whooping or a bend.
@@ -976,7 +976,7 @@ Kalana Mithuruthamu, which is formed in the genitals, is a favorite for animals 
 April”
 
 [APZ 208.3] (#apz208.3) {#apz208 .3 .ref .apz} "Tightness over Sabrahmacharin
-Dumb. Sabrahmachari is a great karma together
+Dumb. Sabrahmachari is a great kamma together
 It is said that there is discipline that is similar to that of premokhala. Sabrahmacharin
 Tightness on. is a canal that has been angry at Sabrahmacharin
 The same stiffness will be made. The pointed soil of the heart shall be dispelled. Ragama

@@ -12,7 +12,7 @@ Preach, "Inquiries" means three inquiries. (In the Great Niddasa
 Please. Please declare, open and distribute. Thus
 Ayushmat Dhotakathema said (Ichchathi) This is the vowel joint.
 Ayushmat is the word of love, the word of honor, the word of honor. Long live
-"Dhotaka" means the name, imposition, nama karma, aspiration of that Brahmin.
+"Dhotaka" means the name, imposition, nama kamma, aspiration of that Brahmin.
 
 [APZ 30.2] (# apz30.2) # apz30.2 .ref .apz} "Your Majesty, Yours
 I look forward to the words "I look forward to your word sermon.
@@ -296,7 +296,7 @@ It means to know, to weigh, to decide and to publish.
 [APZ 37.2] (# apz37.2) # apz37.2 .ref .apz} "Do not lust after nature"
 Touch the lust for images, the lust for sounds, the lust for smell, the lust for taste
 Desire is the desire for Dhamma. "In Bhavabhava" means lust in Karma BhavaIn age
-In rebirth, in form, in rebirth, in form, in karma,
+In rebirth, in form, in rebirth, in form, in kamma,
 In the abstract, in the rebirth, in the rebirth, in the rebirth
 You do not desire the recurrence of selfhood in the recurring crisis
 You do not give birth, you do not give birth, you are far away, you are calm, you are completely extinct

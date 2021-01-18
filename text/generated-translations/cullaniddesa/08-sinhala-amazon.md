@@ -88,7 +88,7 @@ How to “cause”? is a consort pulmonary, melancha pullary,
 Is it not so that the other people are not so? What? How? Where to suffer
 (1-4) 3 should be used from where the sorrow is the nation's sorrow.)
 It seems that the emergence of a certain Dharman. The condensate appears as going to the abdomen. Karma
-And the image of the image joined by the reward and the name of the karma and the image of the union
+And the image of the image joined by the reward and the name of the kamma and the image of the union
 The name went according to the nation by the death of the Jharawan's business.
 Wage was located in Dookeh. There is no protection. There is no location. This
 Saws of grievance, where did this suffer occur? Where did it happen? Kohin
@@ -131,7 +131,7 @@ The cathedral caused by unconscious consciousness, all sadness is endowed with g
 This is the help of the saws' suffering 'is a national, a jaaraduah, an incarnation, a death, a Zoka
 Physiological sadness, Domnasa, intense appeal sadness, visual sadness
 The emergence of any doctrines in the form of the lungs, and the prophecy as the incarnation
-The lungs, karma and a myriad reward, and this grieving saw. This grieving subpoena
+The lungs, kamma and a myriad reward, and this grieving saw. This grieving subpoena
 (Kelles) Sleep and redeeming. Subdhi (Kelles) are also true. Subfixes
 Reasonance is true. In the case of subferens. Occurs, Lower
 WEth. Sight sufferers fall asleep and down.

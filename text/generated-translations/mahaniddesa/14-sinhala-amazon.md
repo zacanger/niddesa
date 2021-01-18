@@ -319,10 +319,10 @@ Wei. Thus the people have opened eyes in Masakinda
 [APZ 156.3] (#apz156 .3) {#apz156 .3.ref .apz} "How to Guest
 Divasanda have open eyes, and the prophets have exceeded the human life
 Pure (ii) the seer is born, born, and diminutive, and propitiated;
-Going to grief according to well-colored and miscolored karma, and to pouty.
+Going to grief according to well-colored and miscolored kamma, and to pouty.
 Creatures see this little animal is impoverished by the creature
 Manas from linguistique to the Lady, who was impoverished by porn.
-Epitiated, they were pagan by the mythical view karma, they
+Epitiated, they were pagan by the mythical view kamma, they
 Fall from evil traits, without being raised to death by the breaking of the boya
 These are the earners of the bad. (iii) The pennies are the suction of the boiler.
 Vachi are in Nuuvo with suction. Manas is impoverished.
@@ -330,7 +330,7 @@ The Lady had not been born. SERVICTURO SERVICTURA Optic Karma
 Samadanwoo. They have good traits raised to death by breaking the body' Heaven
 Birnahu Weti'i in Lokuya (ii) thus purifies beyond human life
 Seen, chew, born, and diminutive, and well-colored.
-Going into pouty and pouty, as faint, karma
+Going into pouty and pouty, as faint, kamma
 He knows that the people will see the same host of lockers, if they wish. Loka
 Two relics, three Loka relics, four Loka relics, five Loka relics
 Dear. The relics of the world have been a decade. Twenty relics of the world have been sighted. World
@@ -420,7 +420,7 @@ Epilepsy, rash, itching, small blisters, neoplasms, itchy disease, High
 If itching, redness, honeycoma, paralytic disease, cancer, Bhagandara, Pathinawatha
 Disease, Seminar Disease, Aerythrocytosis, Threatinopathy
 Disease-born disease, malignant disease, trick-born disease,
-The disease from the karma rectum is winter, constipation, thirst, whether the feces are the most common.
+The disease from the kamma rectum is winter, constipation, thirst, whether the feces are the most common.
 These diseases also cause mosquitoes to drink in the lungs of the lungs of the long nation
 Whether contact or infestation is the hazard of the infestation.
 boys-porn, Manas visualization, Rooms of Manas, Business
@@ -557,7 +557,7 @@ was.
 [APZ 158.3] (#apz158 .3) {#apz158 .3.ref .apz} "What is this fearful and fearful
 Arrived” was said to be an intoxication. Sinola Progression, Dioaya,
 The bear, the black bear, the wolf, the horse, the ivory, the serpent, the
-Scorpio Spatula Karmaor thieves with unformed karma
+Scorpio Spatula Karmaor thieves with unformed kamma
 And these are people. Fear again in the other way. Spiritual
 Fear of thought is dangerous, alarming the mind that the loam is up
 National Jara Fear Death Fear Raja Fear Fire Fear Water Fear
