@@ -182,14 +182,6 @@ me". "Blessed One", which is synonymous with respect... Anri
 say, please explain, please teach, please inform, please build (??), please uncover,
 please analyze, please clarify. "Blessed One, I ask you, please tell me this."
 
-Because of that, the Brahmin said:
-
-[Venerable Fulounaga like this:] Those who are undisturbed, the seer
-of the roots, come with questions in need,
-The immortals, people, Kshatriyas, Brahmins,
-Are there many sacrifices in the world here? Lord, I ask you, please tell me
-this.
-
 TODO: "I look forward", or "looking forward"? Check with the Pali.
 13. [Blessed One: "Fu Lou Na Ge!"] Any of these immortals, people, Kshatriyas,
 Brahmins and gods,
@@ -218,95 +210,62 @@ the individual in the Kshatriya home with the Great Hall... (omitted)
 ...wanting, receiving, aspiring, eagerly looking forward, and praying."
 Looking forward to this state of [reincarnation].
 
-----
-checkpoint
-----
-
-"They depend on aging as animal sacrifices": "Those who depend on aging, those
+TODO: "depend on" or "stop the"??
+"They depend on aging as sacrifices": "Those who depend on aging, those
 who are sick, those who depend on death, those who depend on sorrow, grief,
-suffering, sorrow, and despair. When they are born on dependant, then When they
+suffering, sorrow, and despair. When they are born dependent, when they
 are dependent on aging; when they are dependent on aging, then they are
-dependent on sickness; when they are dependent on sickness, then they are
-dependent on death; when they are dependent on death At that time, they are
-dependent on sorrow, sorrow, suffering, sorrow, and despair; when they are
-dependent on sorrow, sorrow, suffering, sorrow, and despair, then they are
-dependent on interest; when they are When they are dependent on interest, then
-they are dependent on rebirth; when they are dependent on rebirth, then they are
-dependent on rebirth; when they are dependent on rebirth, then they are
-dependent on When they are dependent, then they are dependent on reincarnation;
-when they are dependent on reincarnation, then they are dependent on
-reincarnation: stuck, trapped, infected Those who are moving, and those whose
-hearts are turned towards.” As an animal sacrifice for them who rely on aging.
+dependent on sickness; ...(omitted)on sickness...(omitted) death;
+on death, sorrow, suffering, and despair; on interest (craving??), rebirth;
+on rebirth, reincarnation; when they are dependent on reincarnation, then they
+are stuck, trapped, infected; those who are moving, and those whose hearts are
+turned above (??). As a sacrifice for those who rely on aging.
 
-Because of that, the Lord said:
-
-"[World Zun: "Fu Lou Na Ge!"] All these immortals, people, Kshatriyas, Brahmins,
-to the gods,
-
-There are many sacrifices here in the world, Fu Lou Na Ge! Looking forward to
-this state of [reincarnation], relying on their aging as animal sacrifices. "
-
-14. [Venerable Fulou Nagar like this:] Any of these immortals, people,
-    Kshatriyas, Brahmins, and gods,
-
-There are many sacrifices in the world, Lord! Are they really those who do not
+14. [Venerable Fulounage like this:] Any of these immortals, people,
+Kshatriyas, Brahmins, and gods,
+There are many sacrifices in the world, Lord! Are there really those who do not
 let go on the road of sacrifice,
-
 Through birth and aging, dear sir? Lord, I ask you, please tell me this.
 
 "Anything these immortals, people": "Anything"... (omitted).
 
-"Master! Is it true that those who do not let go on the road of animal
-sacrifice": """Is it true", "question of doubt, question of confusion, question
-of doubt, question of more than one question, this is a rhetorical question,
-question irony , Why on earth, why on earth?" is "is it true". "Those" are
-priests of animal sacrifices. "World Zun", "respect synonymous... (abbreviated)
-Anri (pseudonym) who testified, that is, World Zun." "For the World Zun! Are
-they really those. "Those who do not let go on the road of animal sacrifice",
-the animal sacrifice is called the animal sacrifice road, such as the holy road
-is the holy road; the heaven is the sky road; the Sanskrit road is the Sanskrit
-road, similarly, the animal sacrifice is called the animal sacrifice road.
-"Never let go", those who do not let go on the road of animal sacrifice are
-respectful authors, constant authors, non-stop authors, those who are not stuck
-in the habit, those who do not neglect their desires, those who have the
-character, those who have more, and those who are more important. The one, the
-one who targets that, the one who strives, the one who leans, the one who
-overcomes, the one who increases, they are those who do not let go on the road
-of animal sacrifice: whoever they seek, pursue, and beg The clothing, food,
-shelter, necessities of the sick, medical necessities, food, drinks... (slightly
-omitted) those who are bedridden, houses, lamps and candles, they are respectful
-authors... (slightly omitted) to those who increase, Then they are those who do
-not let go on the road of animal sacrifices; whoever prepares clothing, food,
-shelter, patients’ necessities, medical necessities, food, drinks... (omitted)
-those who lie in bed, house, lamp, etc. Respectful authors... (slightly omitted)
-To those who increase, they are also those who do not let go on the road of
-sacrifice; wherever they give, provide, and donate clothing, food, shelter, and
-necessities of the sick, Medical necessities, food, beverages... (omitted) bed,
-house, lightsThose, they are respectful authors... (slightly omitted) To those
-who increase, then they are also those who do not let go on the road of
-sacrifice. "For the Lord! Are they really those who do not let go on the road of
-sacrifice.
+"Master! Is it true that there are those who do not let go on the road of
+sacrifice": ""Is it true", "question of doubt, question of confusion, question
+of confusion, a rhetorical question, ironic question,"Those" are priests of
+sacrifices. "Lord", "respect ...(omitted) "Lord! Are they really those..."
+"Those who do not let go on the road of sacrifice", the sacrifice is called the
+animal road, such as the holy road is the holy road; the heaven is the sky road;
+the Sanskrit (??) road is the Sanskrit road; similarly, the sacrifice is called
+the sacrifice road. "Do not let go", those who do not let go on the road of
+sacrifice are respectful authors (authors??), constant authors, non-stop
+authors, those who are not stuck in the habit, those who do not neglect their
+desires, those who have the character, those who have more, and those who are
+more important.
 
-"Through birth and aging, dear sir": "Aging and death they pass, transcend,
-pass, pass, and overcome. "Dear Sir", this is a synonym for love, respect,
-respect, and obedience. Dear Sir." To survive birth and aging, dear Sir?
+The one who targets that, the one who strives, the one who overcomes, the one
+who increases, they are those who do not let go on the road of sacrifice:
+whoever they seek, pursue, and beg, the clothing, food...(omitted), they are
+respectful authors...(omitted) to those who increase, then they are those who do
+not let go on the road of sacrifices; whoever prepares clothing,
+food...(omitted), they are respectful authors...(omitted). To those who increase
+it, they are also those who do not let go on the road of sacrifice; wherever
+they give, provide, and donate clothing, food... they are respectful authors...
+To those who increase, then they are also those who do not let go on the road of
+sacrifice. "Lord! Are there really those who do not let go on the road of
+sacrifice."
 
-"Master, I ask you, please tell me this": ""I ask you", I ask you; I beg you; I
-ask you; you make me clear; "Please tell me," ask you for me. "World Honored", a
-respectful synonym... (abbreviated) Anri (pseudonym) who testified, that is,
-"World Honored." "Please tell me this", please tell me, please explain, please
-teach, please inform, please Establish, please uncover, please analyze, please
-clarify, please explain." For the world, I ask you, please tell me this.
+"Living through birth and aging, dear sir": "Aging and death, they pass, transcend,
+and overcome. "Dear Sir", this is a synonym for love, respect,
+respect, and obedience. "Living through birth and aging, dear sir".
 
-Because of that, the brahmin said:
+"Master, I ask you, please tell me this": ""I ask you", I beg you; I make clear
+to me; "Please tell me," telll me. "World Honored", a respectful synonym...
+(omitted) "Please tell me this"... (omitted)." For the world, I ask you, please
+tell me this."
 
-"[Venerable Fulou Nagar like this:] Any of these immortals, people, Kshatriya,
-Brahmins, to the gods,
-
-There are many sacrifices in the world, Lord! Are they really those who do not
-let go on the road of sacrifice,
-
-Through birth and aging, dear sir? Lord, I ask you, please tell me this. "
+---
+checkpoint
+---
 
 15. [World Zun: "Fu Lou Na Ge!"] They look forward to, admire, pray, and offer,
 

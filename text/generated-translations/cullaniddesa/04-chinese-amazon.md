@@ -15,84 +15,25 @@
 
 
 
-“They make a sacrifice according to the aging of them”: “Stop the aging, the
-sick, the dead, by sorrow, sorrow, bitterness, worries, and despair. When they
-are born, then they are those who stop aging, and when they are in the order of
-aging, then they are sick, and when they are sick, then they shall die. And when
-they are dead, they are the ones who are sadness, sorrow, sorrow, grief, and
-despair; and when they are in sorrow, sorrow, bitterness, and in despair, then
-they will rest in interest; and when they are in interest when they are reborn,
-and when they are by regeneration, then they shall be born, and when they are
-born upon, then they will rest on there, and when they are by Then they were in
-their turn; and when they were in their turn, then they were the ones who
-rotated: those who were glued, trapped, stained, and those who were directed
-towards their hearts. To make a sacrifice for them who are old.
 
-Because then, Worldman said:
 
-“[Worldmark: “Rich Lou Nagar!”] And any of these fairy people, people, the
-Chadirites, and the Brahmen to the angels,
 
-There are many sacrifices here in the world, Fu Lou Nagar! I look forward to
-this [reincarnation] state, according to their aging sacrifice.
 
-14. [As His Holiness the Rich House Nagar:] Any of these immortals, people, the
-    Chadirites and the Brahmen to the angels,
 
-There are many sacrifices here in the world, Worldworld! Is it true that those
-who do not relax on the road of sacrifice
 
-Living through birth and aging, dear sir? Worldworld, I ask you, please tell me
-this.
 
-“Any of these fairy people, people”: “whatsoever”...
 
-“Worldworld! Really those who do not relax on the road of sacrifice”: ““whether
-it is true”, “questioning of doubts, confusion questions, doubts, questioning,
-more than one question, so as to reverse the question, the anti-speech, Why, in
-the end, why?” for “Is it true”. “Those” are priests who are sacrifice.
-“Worldworld”, “synonyms of respect... Anrat (Kana), who testified (medium), that
-is Worldworld.” For Worldworld! Is it really those. “On the road of sacrifice”,
-the sacrifice is called the road of sacrifice, such as the holy road; heaven is
-heaven road; Van Dao is Van Lu, the same, the sacrifice is called the road of
-sacrifice. “Those who do not relax”, who do not relax on the road of sacrifice
-are respectful authors, regular authors, non-stop authors, those who have not
-been adhered to, who do not hesitantly will, that character, more than that
-person, the heavier, The one who is the object, toward him who strives, tilts to
-him, to the overseer, to the overarching, to whom they are not allowed in the
-way of sacrifice: whosoever they seek, seek, and seek the clothing of the
-sacrifice, and give food, shelter, patient needs, medical necessities, food,
-drinks... (middle) bedridden, house, light candlestick, they are respectful
-authors... (medium) who add to it, they are not on the road to sacrifice Those
-who prepare for sacrifice clothing, food, shelter, patient needs, medical
-necessities, food, drinks... (medium) bedridden, premises, candles, they are
-respectful authors... To whom they are added, they are also those who do not
-relax on the way of sacrifice; whosoever they give, feed, feed, shelter,
-patient's needs, medical necessities, food, drinks... (Medium) bed, house, light
-candleBut they are respectful authors... And they are those who add to it, they
-are also those who do not relax on the way of sacrifice.” For Worldworld! Is it
-true that those who do not relax on the road of sacrifice?
 
-“Living through birth and aging, dear sir”: “Aging, death they spend, transcend,
-pass, pass, overcome. “Dear Sir,” this is synonyms of love, respect, respect and
-obedience for dear gentlemen.” To survive birth and aging, dear sir?
 
-“Worldly I ask you, tell me this”: 'I ask thee, I ask thee; I beg thee; I beg
-thee; thou shalt make me clear; 'Tell me about it for me. ' “Worldworld”,
-synonyms of respect... Anrat (Kana), the testimony of “Worldworld”. “Please tell
-me this,” please say, please explain, please tell you, please tell, please
-build, please uncover, please explain, please explain, please explain, please
-explain.” For Worldhotel I ask you, please tell me this.
 
-Because then, the Brahman said:
 
-“[As His Holiness the Rich Lou Nagar:] any of these immortals, people, the
-Chedrees, and the Brahmen to the angels,
 
-There are many sacrifices here in the world, Worldworld! Is it true that those
-who do not relax on the road of sacrifice
 
-Living through birth and aging, dear sir? Worldworld, I ask you, Tell me this.”
+
+
+
+
+
 
 15. [Worldroom: “Rich Nagar!”] They look forward, appreciate, pray, give,
 
