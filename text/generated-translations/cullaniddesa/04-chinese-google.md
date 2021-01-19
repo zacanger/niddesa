@@ -37,58 +37,55 @@ known. These three unwholesome roots, the Blessed One knows and sees, and so so
 Blessed One is the seer of the root... (Omitted) the seer. There are three good
 roots: the good root of no greed, of no hatred, and of no delusion.
 
-------
-CHECKPOINT
--------
-
 This was said by the Lord: Bhikkhus! There are these three... (omitted) monks!
 It's not that the hell of no greed, no hatred, no delusion is known, the animal
 world is known, the hungry ghost world is known, or any evil interests are
-known, monks! But with no greed, no hatred, no delusion, heaven is known, man is
-known, or any good interest: the individual in the heaven and the world arises
-and is known. The three-rooted Blessed One knows and sees, so the Blessed One is
-the seer of the root... (omitted) the seer.
+known, monks! But without greed, without hatred, without delusion, heaven is known, man is
+known, or any good interest: those in heaven and the world arise
+and are known. The Blessed One knows and sees the three  good roots, so the
+Blessed One is the seer of the root... (omitted) the seer.
 
 This was said by the Lord: Bhikkhus! Any unwholesome Dhamma, unwholesome
-division, unwholesome party [AN.1.56], all that are rooted in ignorance,
-converge in ignorance, and eradicate with ignorance, then everything will be
-eradicated. [SN.20.1]" The Blessed One knows and sees, and this is also the seer
-of the Blessed One who is the root... (omitted).
+division, unwholesome party [AN.1.56], all that is rooted in ignorance,
+converge in ignorance, and eradicated with ignorance, all that will be
+eradicated. [SN.20.1] The Blessed One knows and sees... (omitted).
 
 This was said by the Lord: Bhikkhus! Bhikkhus! Any good law, good division, and
-good party [AN.1.57], everything is rooted in unbridledness, and unbridled as
-reunion, unbridled is said to be the number one among those laws. [SN.45.139]"
-The Blessed One knows and sees, so that the Blessed One is the seer of the
-root... (Omitted) the seer.
+good party [AN.1.57], rooted in unbridledness (non-relaxation??), and unbridled as
+reunion, this is said to be the number one among those laws. [SN.45.139]"
+The Blessed One knows and sees... (omitted).
 
+TODO: fix this block, it's the chain of dependent origination but the translation is odd.
 Or, the Blessed One knows and sees: "Ignorance is the root of action, action is
 the root of consciousness, consciousness is the root of mind and form, mind and
-form are the roots of six places, six are the roots of touch, touch is the root
-of receiving, and feeling is The root of craving, craving is the root of taking,
+form are the roots of six places, the six are the roots of touch, touch is the root
+of receiving, and feeling is the root of craving, craving is the root of taking,
 taking the root of something, and having the root of growing, and birth is the
-root of old age. The Blessed One knows and sees, and this is the one who sees
-that the Blessed One is the root... (slightly omitted).
+root of old age. The Blessed One knows and sees... (omitted).
 
 Or, the Blessed One knew and saw: "The eye is the root of eye disease, the ear
-is the root of ear disease, the nose is the root of nasal disease, the tongue is
-the root of tongue disease, the body is the root of body disease, and the mind
-is the root of suffering. 』The Blessed One knows and sees, so the Blessed One
-is the seer of the root, the seer of the cause, the seer of the cause, the seer
-of the origin, the seer of the root, the seer of waiting (origin), the seer of
-food, the The seer of the condition, the seer of the condition, the seer of the
-collection. "Is the perturbator, the seer of the root.
+is the root of ear disease, the nose ...of nasal disease, the tongue ...
+of tongue disease, the body ...of body disease, and the mind
+is the root of suffering. "The Blessed One knows and sees, so the Blessed One
+is the seer of the root, the seer of the cause, the seer
+of the origin, the seer of waiting (origin??), the seer of ??
+food, the The seer of the condition, the seer of the
+collection (aggregate??). "Is the perturbator (for the disturbance??), the seer of the root.
 
-"[Like this Venerable Fulou Nage]": "Like this", the continuation of the
-sentence... (Omitted) Venerable Fulou Nage.
+"[Like this Venerable Fulounage]": "Like this", the continuation of the
+sentence... (Omitted) Venerable Fulounage.
 
 "The ones in need come with questions": I come with questions as needed, I come
-if I want to ask questions, I come if I want to hear questions, so that the
-needy comes with questions. Or, "the inquiries that belong to the question have
+if I want to ask questions, I come if I want to hear questions, the
+needy come with questions. Or, "the inquiries that belong to the question have
 the need, the one who wants to ask the question, the one who wants to hear,
-[there will be] the needy come, approach, approach, visit." This is also the
-need to come by the question . Or yesWhen you have a question, you can and you
+the needy [will] come, approach,, visit." Or when you have a question, you can and you
 have enough reason to tell and answer the question I asked, "Please bear this
-burden." In this way, it is also necessary to come with questions.
+burden." In this way, "the ones in need come with questions".
+
+----
+CHECKPOINT
+----
 
 "Fairies, people who rely on something": "Rely on, rely on, stick to, enter, get
 dyed, or turn their hearts toward something. "Fairies", who are named immortals,
