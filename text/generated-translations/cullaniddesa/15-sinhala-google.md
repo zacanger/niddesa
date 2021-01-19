@@ -38,25 +38,25 @@ To inquire is to ask questions, to ask, to invite, to explain.
 Lust is real, lust is real, lust is real, futile lust is real.
 In fact, the degraded lust to the real. Midu raga to the real ones, the soothing raga
 We came to the truth. We arrived, we arrived, that is.
-If "peace" is peace in one sense, it is nirvana, which is peace itself
+If "peace" is peace in one sense, it is Nibbana, which is peace itself
 Is it a appeasement of all those editions, an expulsion of all degrees?
-Trishnakshya is the Viraganam, the inhibited Nirvana. This is the Blessed One
-Preached by. 'This Nirvana is holy, this Nirvana is ancient, viz
+Trishnakshya is the Viraganam, the inhibited Nibbana. This is the Blessed One
+Preached by. 'This Nibbana is holy, this Nibbana is ancient, viz
 Whether it is a conciliation of all those editions, or an abrogation of all subdivisions,
-The restrained nirvana, which is called thirsty viraga, is again in some other way
+The restrained Nibbana, which is called thirsty viraga, is again in some other way
 Those Dhammas are for the sake of peace, for the sake of peace, for the sake of peace
 Exists for realization. How is that? The four Satipatthnas are a combination of the four
 The four main elements are the five limbs, the five senses, the five forces, the sapta bodhisattvas, the Aryans.
 The Eightfold Path is also known as the Shanti Padayo. Shantipadaya security word,
-Abhayapadaya, Achchayuthapadaya, Amrutapadaya Nirvana Padaya, say, preach,
+Abhayapadaya, Achchayuthapadaya, Amrutapadaya Nibbana Padaya, say, preach,
 Please enforce. Please keep it open. Please share. ”All-seeing eyes
 True "means" all-seeing "is omniscience. Blessed Buddha
 God's eyes and birth were not born before but at the same time. Therefore
 The Buddha himself has eyes that see everything.
 
 [APZ 65.3] (# apz65.3) # apz65.3 .ref .apz} "Preach this I don't know
-What is not known in "Manavi" is the immortal Nirvana
-Nirvana. "Bhagavat" is the word of honor. (Applied in Great Reference (7-2) 1
+What is not known in "Manavi" is the immortal Nibbana
+Nibbana. "Bhagavat" is the word of honor. (Applied in Great Reference (7-2) 1
 Should.) Is a proven imposition. This is Bhagavat. "Kamayo" is a proverb
 As two parts of lust. That is, materialism and depravity. (Great
 Niddasa (1) 1 (ii) 2--3 should be applied.) The Blessed One is materialistic
@@ -77,12 +77,12 @@ Tells the earth. That earth was equally vast and vast in wisdom
 If there is great wisdom, "Dhamma" means good in the middle, good in the middle, good in the end,
 Meaningful, consonantal, all-pervading, pure celibacy
 Satara Satipatthna, Satara Samy‍k Pradhanaya Panchendriya, Panchabalaya Sapta
-Bodhisattva, Aryan Eightfold Path Nirvana Nirvana Precepts Sermon
+Bodhisattva, Aryan Eightfold Path Nibbana Nibbana Precepts Sermon
 Please. Impose, keep, open, divide,
 That is. "If I know something" means if I know something
 If I do, if I come, if I see. "in here
 Eradicate racism "means to alleviate the effects of racism,
-Vyapaasmana means immortal Nirvana. Therefore, that Brahmin also said,
+Vyapaasmana means immortal Nibbana. Therefore, that Brahmin also said,
 
 [Msdiv 66] (# msdiv66) {# msdiv66 .ref .msdiv} (11-2)
 
@@ -100,9 +100,9 @@ The word 'infertility' is a synonym of the suffix,
 The correct precept is the Dharmanu Dhamma precept, complete with virtues
 To, the senses have a closed door that sleeps knowing the size of the meal
 Abstinence, Consciousness and Wisdom, The Four Satipatthnas, The four limbs,
-Pentateuch, Pentacle, Saptabodhiyanga, Aryan Eightfold Path Nirvana
-Nirvana Gamini Pratipada, Kshema as protection, Sarana as nectar
-In Nirvana, the soul is seen, equated, determined, and manifested
+Pentateuch, Pentacle, Saptabodhiyanga, Aryan Eightfold Path Nibbana
+Nibbana Gamini Pratipada, Kshema as protection, Sarana as nectar
+In Nibbana, the soul is seen, equated, determined, and manifested
 Absence is especially known as lustful visions
 Spilled, galvanized, glued, soulless is soulless and free
 Distant is a distant to be appeased. 'Kinchana' means Raga

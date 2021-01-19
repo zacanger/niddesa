@@ -62,8 +62,8 @@ Said. Parammy is saturated. went to extremes. Complainted with extreme. went to 
 Complainted to the end. went to the terminal. Complainted with the terminal. went to the end.
 And came to the end, went to safety. Complainted with security. went to the place.
 Complainted with the location. went into sanctuary, came into sanctuary, went into unsanctuary
-And he complained, went into the morrow, and complained to Nirvana
-Gone. Arrived in Nirvana. He hath clogged and finished solutions. (Great
+And he complained, went into the morrow, and complained to Nibbana
+Gone. Arrived in Nibbana. He hath clogged and finished solutions. (Great
 (3-7) (6) (ii) should be applied in the nod.) He has no rebirth.
 
 [APZ 74.5] (#apz74 .5) {#apz74 .5 .ref .apz} "To ask a question
@@ -76,7 +76,7 @@ I came to hear. Cash VimodeyaNanawi is a cassa
 Vimodea Manuwi, Manipulate, Open Manuwi
 Split, measure the pros. Manurements, Readers. “Inscience
 Breaking” is the breaking of the inscience, the business, the compassion of the immortal
-Nirvana is the breaking of inscience. Therefore, Brahmana said:
+Nibbana is the breaking of inscience. Therefore, Brahmana said:
 
 [Msdiv 75] (#msdiv75) {#msdiv75 .ref .msdiv} (13-2)
 
@@ -85,16 +85,16 @@ If there is a vote in the rooms, there will be any vote in the rooms, Kama
 Bonding Adda, Kama Cravings Adda, Kama Sneak Adda, Kama Thirst
 Eadda, Kama Eadda, Kama Embroidery, Draining the room,
 Carmography, carmography and carmography will be the same as the rooms.
-“The cause of the roomers” is the compastion of the business, the unpretentious nirvana.
+“The cause of the roomers” is the compastion of the business, the unpretentious Nibbana.
 
 [APZ 75.2] (#apz75 .2) {#apz75 .2 .ref .apz} Dawn
 The two in the rooms are the provocation of the chamomons, the unhappiness of the choral sadness,
 Chateurism and untouchable unhappiness, is the “Domin” the two is the room
-Doomnacia is the dismantling, constipation, impulsive nirvana.
+Doomnacia is the dismantling, constipation, impulsive Nibbana.
 
 [APZ 75.3] (#apz75 .3) {#apz75 .3.ref .apz} "Dispel of the Thunder”
 If any inappropriateness of the emotional is a maleness, a lack of work, then such
-Dumping of the trunk, constipation of the constipation, indignant nirvana in the cookie
+Dumping of the trunk, constipation of the constipation, indignant Nibbana in the cookie
 Prevention is a cube on the hand. The cube on the foot is a cookie. limbs
 About Kuku is a cookie. The feeling of disfelence, the feeling of the uncut of the dedication
 Feeling of the intransigent of the fault, the feeling of guilt in the intransigent is like this, kukas
@@ -127,7 +127,7 @@ The Dhamma argument was made.
 Arahatta Vimokedara said Arahatta Vimokkedara. Deshana.
 I will open, put, open. Divide, promulate, I will promult.
 The disscience of the breaking of the inscience is not to know the sadness. Science is
-And this is the root of Akulsala. Breaking is the concomitant, the impoverished nirvanaI
+And this is the root of Akulsala. Breaking is the concomitant, the impoverished NibbanaI
 So the prophets prophesy.
 
 [Msdiv 77] (#msdiv77) {#msdiv77 .ref .msdiv} (13-4)
@@ -136,7 +136,7 @@ So the prophets prophesy.
 The combination of the world was drunk, bonded, what would be to the Kilu
 Applicable? Ready. How is its critique? is the critique, the tab.
 Does the casing world behave? Is it said to be very undeniable by the onslage? is a key
-Does Nirvana say, proclaim, by comparison with the Progression?
+Does Nibbana say, proclaim, by comparison with the Progression?
 Will. Therefore, Brahman himself said.
 
 [Msdiv 78] (#msdiv78) {#msdiv78 .ref .msdiv}
@@ -155,10 +155,10 @@ It is these new weathermen who are the repositors' dissent. The New Wizers of th
 Block reviews are available. The world behaves with this new weirdly
 behave.
 
-[APZ 78.4] (#apz78 .4) {#apz78 .4 .ref .apz} "Nirvana by dandruing cravings
+[APZ 78.4] (#apz78 .4) {#apz78 .4 .ref .apz} "Nibbana by dandruing cravings
 It is said.” The images of cravings are craving, sounds, odors, tastes, touch
-Nirvana is said to be by impoverishing the cravings. is a craving
-DrowningNirvana says by constipation of mankind. Progresses.
+Nibbana is said to be by impoverishing the cravings. is a craving
+DrowningNibbana says by constipation of mankind. Progresses.
 Proposes. So the prophets proclaimed.
 
 [Msdiv 79] (#msdiv79) {#msdiv79 .ref .msdiv} (13-5)

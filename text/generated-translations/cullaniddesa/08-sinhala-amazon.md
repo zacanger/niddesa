@@ -234,7 +234,7 @@ So is the doctrine that you have known by God. Therefore, Brahma“
 The beginning of this is the middle good and the late good defined communities.
 Four Sitematores Brahmecharia Four Sitematores
 Four Negative Pneyachendiyans Penshaha Powers Sapthabocentrayangayan Aryan
-I will tell the octagonal road Nirvana Gamini Reaction, Nirvana.
+I will tell the octagonal road Nibbana Gamini Reaction, Nibbana.
 I will make a devotion. I will divide. I will do the same.
 
 [APZ 22.2] (#apz22 .2) {#apz22 .2 .ref .apz} "The Trusts' Metthagu
@@ -300,12 +300,12 @@ NAMI. Laying of the Mathu Trustee, Trimming of the Mathu Sanasara Profession
 Stay extinguishing the inflammation of the Mathu Dharmadhakuranjaya hoisting
 Mahatyu Yaddhi Petha of the Chief of Satipattuaya
 The Indies are the Majesty Powers, the Boons, the Aryan Octane
-The objective of the road was the gentleman sought, researched Nirvana. searched.
+The objective of the road was the gentleman sought, researched Nibbana. searched.
 Therefore, Maharshi name. Where is the Buddhism? Where are the congregates? Devathi
 Where is God? What are the worsens, the creatures that they are.
 Seeked by. ExploratedResearch is done, therefore
 Maharshi name. Maharshi doctrine is the greatest saws. All those editors are compelled
-The perished Nirvana is high, where all the infests are stored, and the cravings are discarded
+The perished Nibbana is high, where all the infests are stored, and the cravings are discarded
 Ash, the chief, is the noble doctrine, the name of Mahezee.
 
 [APZ 23.2] (#apz23 .2) {#apz23 .2 .ref .apz} "Know Is Behaving Remembrance”
@@ -413,7 +413,7 @@ Must be applied.
 [APZ 26.2] (#apz26 .2) {#apz26 .2 .ref .apz} "briquetted” is a briquetted
 Reading, the brique-imposed briefs are also open. 'Subdhi”
 Saws and masses, editors saws. Subdal Protect, Subdal Constipation,
-The impeccable Nirvana was made.
+The impeccable Nibbana was made.
 
 In that way, the spheters gave sorrows. It is by name
 The monotonous word, the real word. The word that is doubtful. The word without two ideas
@@ -481,13 +481,13 @@ Shantha Dhamma is segmented. The weight of the saliva is weighed. Separate from 
 20 should be applied on Niddeusa (1541)
 
 [APZ 28.3] (#apz28 .3) {#apz28 .3.ref .apz} “The same way for the country”
-Thratharaya tells Nirvana. All editors in a particular house did shout
+Thratharaya tells Nibbana. All editors in a particular house did shout
 All the indices were conjured, the cravings were depletedIs it that the genitourless,
 Ninched. Heathrow went to the extreme and went to the extreme
 came to the end, went to the end, came to the end, went to the security
 came into Sarana, came into sanctuary, went into sanctuary, came into sanctuary,
-went to soar, went to soar, came to urrum, came to nirvana
-Got to Nirvana, Heathly was dissipated (in the Great Niddezah (3-7) 6
+went to soar, went to soar, came to urrum, came to Nibbana
+Got to Nibbana, Heathly was dissipated (in the Great Niddezah (3-7) 6
 (ii) Should be applied.) There is no rebirth. “Hull not” is Raghula (Great
 15—5 (1) of Niddeesah should be used from Hull.) Collect all the fissure
 Someone named Hull, did this Hull and first of all, Shantha

@@ -220,7 +220,7 @@ Except for one aspect of the confinement of the consecrated consciousness, the i
 If you are born in a relic or someone, that name and image are not mentioned here.
 Calm down. Destroyed, destroyed, consecrated by Arahant path wisdom
 If one is born out of the inhibition of consciousness, those name-forms will be inhibited,
-Consolation, and institution, are destroyed, by the relics of the Anupadisesha Nirvana
+Consolation, and institution, are destroyed, by the relics of the Anupadisesha Nibbana
 Wisdom from the restraint of the last consciousness of the Arahant who gives,
 Mindfulness and namූපrදp මෙහි are also lost here, and the calmness is lost.
 

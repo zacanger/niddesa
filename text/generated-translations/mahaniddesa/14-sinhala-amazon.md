@@ -57,7 +57,7 @@ Question of relics is to question institutions. There are three unicu issues.
 Sathipatthana Question Sammapmain Question
 There are three other quirtions. Influenza Question Power Question
 To do is to question the body. There are three unicrued quirtions. Soan
-Question of Alumni Routes Question on Productivity Nirvana
+Question of Alumni Routes Question on Productivity Nibbana
 Question about it.
 
 [APZ 150.7] (#apz150 .7) {#apz150 .7 .ref .apz} "Critique of him is from him
@@ -72,14 +72,14 @@ Leisure and Shanthi verse are three leisure (7-1) 5 (ii) to 7
 The termination of the ballot should be used.
 
 [APZ 150.9] (#apz150 .9) {#apz150 .9 .ref .apz} "Shanty” is one way
-Shantia is also the term Shanthi. It is the impeccable nirvana. All of a doctrine
+Shantia is also the term Shanthi. It is the impeccable Nibbana. All of a doctrine
 The editors noted that all the girl was excluded whether the craving was paid, and the breaks
-Nirvana is the Nirvana Nirvana. Yelidu or any Dhamma Shanthi
+Nibbana is the Nibbana Nibbana. Yelidu or any Dhamma Shanthi
 Shanity for touches, for shanity to be prophesy
 How To Hay, Four Sathipatayo Four Leaders
 Pajachendiriyo Pandakhabayayo Sapthabokayo Lady Octagonal Road
 They are the shanthyapadah, the guarding verse, the knife. SanctuaryDYING, Non Magnetic
-The verse says the word, the word, the Nirvana verse.
+The verse says the word, the word, the Nibbana verse.
 
 [APZ 150.10] (#apz150 .10) {#apz150 .10 .ref .apz} Maharshi” is Maharshi
 He is the one who is the one. The gentleman searched for a cold, therefore “Maharshi”
@@ -92,7 +92,7 @@ The laying of the burden of the Mathews, the trimming of the Mathu Sanasara Prof
 The extinguisher sought to raise the flag of the mathew Dhamma to compile the burning. Therefore
 Maharshi name. Mahatyu Sathipattaya Award Chief Mahatyu Yadhi
 Footages Gentlemen Powers Mathews Bocentralis Lady's Octangal Way
-The Gentleman sought the purposed Nirvana. Hence the name “Maharshi”.
+The Gentleman sought the purposed Nibbana. Hence the name “Maharshi”.
 Where is the Buddha, where is the Buddha, where is the Buddha, and where is the Buddha, and the Greatest God
 Where and where are the human beings sought by the creatures.
 Laddenui Maharshi name.
@@ -446,12 +446,12 @@ In order to grow up these vastinal doctrines, to grow on the Lady Octanginal roa
 
 [APZ 156.10] (#apz156 .10) {#apz156 .10 .ref .apz} "Hazards discipline” is
 Discharge of hazards, compress of hazards, relieve hazards, dispose of hazards,
-It is unpretentious nirvana. “Lord, Beneficence” is a resource
+It is unpretentious Nibbana. “Lord, Beneficence” is a resource
 Reverse, Non-Change Reverse, Alias Reverse, Dharman Dhamma
 Reverse, that there is a knit door in the indices that the people complete,
 Feeling around the meal, sleeping, feeling discreet in remembrance, four satipottas,
 Four Leads, Four Negative Leads, Phuchendians, Seventh Powers,
-Sasara Bomedium, Lady Octangal Way, Nirvana, Nirvana, Nirvanagamini
+Sasara Bomedium, Lady Octangal Way, Nibbana, Nibbana, Nibbanagamini
 Beneficence will also be said. Measure the posts. Measure will be imposed.
 Measure the openings. Split gaugeIFSs Measure the pros. Lord, is that
 The created image is emanated to the intelligences. Rehidu or
@@ -1102,7 +1102,7 @@ Reverse Reverse Reverse Reverse Alias Reverse
 Dharmana Dhamma Reverse, which has a closed door in the innate that the people are prone to
 That is, that there is a feeling around the meal. Sleepness, Remembrance Discreet, Four
 Four Sathipatatans Lead Four Irdhi Footages Phayachendiriya
-Nirvana, Lady Octanga, Nirvana, Nirvana
+Nibbana, Lady Octanga, Nibbana, Nibbana
 Gamini refusals, knowing the doctrine and making a decision.
 
 [APZ 168.2] (#apz168 .2) {#apz168 .2 .ref .apz} "Monk Thinking in Hamakal

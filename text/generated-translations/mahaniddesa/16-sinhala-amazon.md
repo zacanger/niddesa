@@ -37,7 +37,7 @@ Traverse from the desert. Traverse Nation Desert Traverse Jara Desert
 delivers. cross the desert of death and cross the desert Zhoca, hug,
 Kaikaduk, Domnus, Synapse cross the desert. Raga crosses the desert.
 Malicious, whey, dimensional viewpoint, clayey, rejuvenates. And so on. pedal
-In the corner, the unpretentious Nirvana is given. The Message of the Message
+In the corner, the unpretentious Nibbana is given. The Message of the Message
 Driving (Freight Leader) The realidu or the spheters were the leader.
 disciplined. Panawake. Figuring out. Balansekara Melesika
 The person is Galnayakasa, or the other, the unborn way.
@@ -361,10 +361,10 @@ In the brigade.
 (14-7) 8) 'Location' refers to human locality.
 
 [APZ 195.2] (#apz195 .2) {#apz195 .2 .ref .apz} "Will go in the direction of inconspicuous”
-Arutha tells the Mahaa Nirvana direction. All those editors
+Arutha tells the Mahaa Nibbana direction. All those editors
 All the compassed sassara were born, the deviated cravings, etc.
-Is it a nirvana if the pause is rivana, which does not go in that direction. This extension
-The deviations that did not go in that direction of time. Unseen Direction (Nirvana)
+Is it a Nibbana if the pause is rivana, which does not go in that direction. This extension
+The deviations that did not go in that direction of time. Unseen Direction (Nibbana)
 How to use a bowl of minus oil filled with a rash
 And his own heart is eerted. Forward moving forward in the direction of the inconspicuous
 Go on.
@@ -399,7 +399,7 @@ Speeches tell. How to clamping? Little craving stories, constipation stories,
 Stories of high leisure, stories of absence of collection, hermetically stories, cold stories,
 Samadhi stories, Pledge stories, Liberation stories, Liberation consciousness stories, Satipatthana
 Stories, Same Main Stories, Dady Foot Stories, Indiya Stories, Power Stories, Bocentrics
-Tell stories, road story, fruit story, Nirvana story. Hikmune in the Word
+Tell stories, road story, fruit story, Nibbana story. Hikmune in the Word
 Protected is the one. This is the cleanliness of the word. What a lingua
 Wish a purity
 
@@ -484,7 +484,7 @@ Delicate blossom, and in the same way the monk blooms his own oolarial keels.
 Central Kelce BlowsBlows, burns, unblinds
 Fake. Yelidu or monk is his Ragal, Bhishamale, Moraal Fish, Dimensional Fool,
 Opinion, clear-stony, visceral fade, blindness, lack of eyes, unknownlessness,
-Nirvana, lack of prominence, perish, blossoms that Nirvana does not exist,
+Nibbana, lack of prominence, perish, blossoms that Nibbana does not exist,
 Dirty, dissipates, flanges into a nouvera. Really or from the perspective
 Mythology is bloating. Dirty. Days away. Inflammable to become unborn. Good
 Thoughness, mythology is a word, myth word, an ascetic
@@ -510,7 +510,7 @@ The doctrine policy, that the people are fulfilled, the closed door of the innat
 The fact that (SANGARA) is around the trojonBinding, Sleeping, Mindfulness and Maayness
 That is discreet, Four Sathipatayo, Four Sathipatayo, Four Graduates
 Pajachendiriyo, Pandakhabalayo, Sasa Bothayangayo Lady Ashtangi Road,
-Nirvana Nirvana Gamini Replace is the ease of this
+Nibbana Nibbana Gamini Replace is the ease of this
 'Physical' is the Armantri in the name of the Individuals to them
 They are. 'Bhavati 'is a Word of Honor (7-2 (i) The Bhutters are
 Should be used from places.) If the rest of the brigades are unamusingly searched for the seats
@@ -619,8 +619,8 @@ Applicable hazards.
 
 [APZ 200.3] (#apz200 .3) {#apz200 .3 .ref .apz} "Kusal Dhamma is looking for”
 Resource Resource Reverse, Unopposed Reverse
-Reaction, Dharman Dhamma Reverse Lady Octangal Road, Nirvana,
-Nirvanagamini Rebates should also be held by the seekers.
+Reaction, Dharman Dhamma Reverse Lady Octangal Road, Nibbana,
+Nibbanagamini Rebates should also be held by the seekers.
 Should be suppressed. Possies should be placed. Ready.
 
 [Msdiv 201] (#msdiv201) {#msdiv201 .ref .msdiv} (16 - 12)
@@ -1090,7 +1090,7 @@ Concise name.
 [APZ 210.6] (#apz210 .6) {#apz210 .6 .ref .apz} "What drives away darkness”
 is Ragandhaya, Bhishandiya, Mohandiya, Optic Darkness, Dimensional
 Darkness, clairvoyance, immorality, blindness, loss of eyes,
-Nirvana Nirvana, Lossing Party Nirvana
+Nibbana Nibbana, Lossing Party Nibbana
 The loss shall drive away the darkness. Convenient. Disposal. Into Noodules
 Send up. Ready. “BH” is an honorary name. (7-2) (i) BH
 Determine to go should be used here.)

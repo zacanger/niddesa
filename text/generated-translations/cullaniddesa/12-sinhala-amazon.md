@@ -34,14 +34,14 @@ Manuwi”“You are God” tells the spheres 'the doctrine says
 Mana' doctrine is the beginning good, middle good, late good, defined
 With Constructions, All Complete, Pure Brahmecharia Statements, Four
 Four weeks, four main main, paghachendrian,
-Pantalayan, Sasa Bocentryangayan, Aryan Octanginal Road, Nirvana Nirvana
+Pantalayan, Sasa Bocentryangayan, Aryan Octanginal Road, Nibbana Nibbana
 Proclaim the Gamini Replication to me, and deciphate,
 Will be imposed, will be placed.
 
 [APZ 54.2] (#apz54 .2) {#apz54 .2 .ref .apz} "Munine dispel cravings
 To”, to 'cravings' image cravings to emit craving'
 is the loss of cravings, the cravings are conditioned, the cravings constipation, the craving
-Nirvana. “Muni” tells the wisdom what it is. (Great Niddezah (3-1) (3)
+Nibbana. “Muni” tells the wisdom what it is. (Great Niddezah (3-1) (3)
 Should be used. The crazha network was over, but also muni.
 
 [APZ 54.3] (#apz54 .3) {#apz54 .3.ref .apz} "Knowing something and behaving in remembrance”
@@ -91,15 +91,15 @@ Decomposition” is the election of any room in the rooms, a room in which there
 Eadda, Komananda Adda, Kama Cravings, Kama, Kama
 Sale, carmogary, carmogary, carmogary,
 Rooms, carriages, rooms are also denoted. 'No Voting 'is a Vote Rage
-Promotion, Vote Formation, Important Nirvana. Unused Nirvana
+Promotion, Vote Formation, Important Nibbana. Unused Nibbana
 The term refers to. The tone term is the term of the term, the term is the value term. Diagnosed Central
 The unchanging doctrine is the unchanging doctrine. So the prophets prophesy.
 
 [Msdiv 56] (#msdiv56) {#msdiv56 .ref .msdiv} (8-4)
 
 [APZ 56.1] (#apz56 .1) {#apz56 .1 .ref .apz} says "In remembrance, knowing this”
-“This” is the unpretentious nirvana and all that has relieved all editors of a place
-Knowing the Nirvana of Nirvana, the incarnate of the incarnate, and decided
+“This” is the unpretentious Nibbana and all that has relieved all editors of a place
+Knowing the Nibbana of Nibbana, the incarnate of the incarnate, and decided
 All editors know the imperative and decided to make a decision.
 All editors grieve, all doctrines know that they are infested
 There is a doctrine to determine and make it all the same.

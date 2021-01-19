@@ -377,7 +377,7 @@ says. Thus the dimensions were taken away from the sore, and the touch was run,
 behave.
 
 [APZ 174.10] (#apz174 .10) {#apz174 .10 .ref .apz} optics hulling
-Touched in the day was an Nirvana Niladhari. Reflated Good
+Touched in the day was an Nibbana Niladhari. Reflated Good
 There is custom. The food will be licked by hand. Called will not be
 Not to be told. The first to the time does not take food. for oneself
 Constructed dishes do not take. Do not take dishes given at the invitation. Sally bend with mouth
@@ -573,17 +573,17 @@ Is a briqueting a heart like a flag, this is the utmost.
 The demise shall be a far from the most dimension. Be a separant.
 Nakmunai must be separated by an unrestricted heart.
 
-[APZ 177.4] (#apz177 .4) {#apz177 .4 .ref .apz} "Nirvana
+[APZ 177.4] (#apz177 .4) {#apz177 .4 .ref .apz} "Nibbana
 “People's own” is what some person here does not know.
 Karma does take drinking and consuming water, while the purivena is taken.
 The aroma of chary leaves flowers when the chic does the approach
 Trabies gather in the Democratic genitalsNot by a creed, but by a Genesis reason
 Constipation is not caused by a cause, but by a constipation cause, but by a vaunted cause
-Nirvana was inclined to be nirvana with a view to separating it all, not from reason
+Nibbana was inclined to be Nibbana with a view to separating it all, not from reason
 The burdensome collects the kasal. Rehidu or
 All the editors retreat the heart of the relic and gather the heart for the relic.
 (LANYA) All editors who paid off the craving of all the girl who had been concomitant
-This is a plant, this is a prophecy nirvana
+This is a plant, this is a prophecy Nibbana
 “”
 
 [APZ 177.5] (#apz177 .5) {#apz177 .5 .ref .apz} "Discreet Room Reason
@@ -595,8 +595,8 @@ If there is no means for the re-emergence of a trowek, they will be.
 In order not to have a redeemable, so that there may not be a bile again, that there may not be a bile.
 Medianath.”
 
-“They clung to it in the hope of Nirvana, and they bend to it.
-The Yamsee River came to the ocean center, but they set up Nirvana
+“They clung to it in the hope of Nibbana, and they bend to it.
+The Yamsee River came to the ocean center, but they set up Nibbana
 “Beth”.
 
 [Msdiv 178] (#msdiv178) {#msdiv178 .ref .msdiv} (15 - 9)
@@ -732,9 +732,9 @@ The Lady was not exceeded by the octagonal way. “Muni” is what to come to li
 Hem Muni,
 
 [APZ 181.2] (#apz181 .2) {#apz181 .2 .ref .apz} "Brahmina is reclaimed
-Godayaya tells Nirvana. Is that something compounded all editors
+Godayaya tells Nibbana. Is that something compounded all editors
 All the incarnations were excluded, the cravings were depleted, the depleted, the depleted
-Nirvana. Brahmina is (here (4-3) used from where 1 'Brahmina'
+Nibbana. Brahmina is (here (4-3) used from where 1 'Brahmina'
 Should) Brahman says Brahman is the only one who has not been imitated.
 Landing is on the island. Protect stands in place
 Location stands in the sanctuary. States in the non-specified position

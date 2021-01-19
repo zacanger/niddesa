@@ -234,7 +234,7 @@ How many
 The beginning is good, the middle is good, the end is good, with good connotations
 All Perfect Celibacy The Four Satipatthnas The Four Noble Truths
 The four limbs, the five senses, the five powers, the seven senses, the Aryans.
-The Eightfold Path Nirvana Nirvana Gamini Pratipada, I will declare.
+The Eightfold Path Nibbana Nibbana Gamini Pratipada, I will declare.
 I will preach. I will impose and divide. I will make it public.
 
 [APZ 22.2] (# apz22.2) # apz22.2.ref .apz} "The Blessed One 'Mettagu
@@ -300,12 +300,12 @@ If. The Excommunication of the Great Trustee The Extinguishment of the Great Cir
 Extinguishment of grief Great relief of great inflammation Exaltation of great Dharma
 A great sum in the Satipatthna The great in the chief The great in the foot
 The great powers of the senses, the great Bodhisattvas, the great Aryan octagons
-The great purpose of the path was to seek and research the great Nirvana. Searched.
+The great purpose of the path was to seek and research the great Nibbana. Searched.
 Hence the name Maharshi. Where is the Buddha himself? Where is the Blessed One? Two
 Where is God? Great creatures who know where the great ones are
 Searched by. Explorated, Research was done, therefore
 Maharishi. Even though the Maharshi Dhamma is great. Some all those editions were appeased
-Nirvana is the greatest of all the subdued desires that have been eradicated.
+Nibbana is the greatest of all the subdued desires that have been eradicated.
 Mahesi is the supreme, the supreme, the foremost and the noblest Dhamma.
 
 [APZ 23.2] (# apz23.2) # apz23.2 .ref .apz} "Know how to behave consciously"
@@ -414,7 +414,7 @@ Should be applied.
 [APZ 26.2] (# apz26.2) # apz26.2 .ref .apz} "Preached well" means well
 That is to say, well-kept, well-imposed, well-opened. 'Graduation goes'
 Defilements, masses, and consecrations. Graduation, Graduation,
-Immortal Nirvana was well said.
+Immortal Nibbana was well said.
 
 Certainly the Blessed One removed the sorrow. Is definitely going
 Positive word, real word. The word without a doubt. The word without two meanings
@@ -482,13 +482,13 @@ There are holy dhammas. The dirt that has been dumped is heavy. Separated from t
 Paragraph 20 should be applied on page 1541)
 
 [APZ 28.3] (# apz28.3) පර # apz28.3 .ref .apz පර "Overseas"
-Theraya says to the immortal Nirvana. Somehow that nirvana soothed all the edits
+Theraya says to the immortal Nibbana. Somehow that Nibbana soothed all the edits
 All the subconscious was appeased, the craving was quenched, the so-called quarantine, the quarantine.
-Nirvana. He went abroad, came abroad, went to the extreme, came to the extreme
+Nibbana. He went abroad, came abroad, went to the extreme, came to the extreme
 Came to the end, went to the end, came to the end, went to the defense
 Came Sarana became Sarana, came Abhaya became Abhaya,
-Went fast, came fast, went to nectar, came to nectar, went to Nirvana
-Went to Nirvana, where he lived (in the Great Niddasa (3-7) 6
+Went fast, came fast, went to nectar, came to nectar, went to Nibbana
+Went to Nibbana, where he lived (in the Great Niddasa (3-7) 6
 (ii) should apply.) No rebirth. "No hull" means Raga hula (Maha
 Use 15--5 (1) of the hull from the point where it goes.) Collect all the dirt
 To someone who is a hull to do, this hull is useless, first and foremost, calm

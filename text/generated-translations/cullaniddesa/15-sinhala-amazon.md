@@ -38,25 +38,25 @@ To comment is to question, ask, invite.
 Kamatha, Midukamathahuthu, Contruded Kathhu, Conscious Kamma
 The lower lust, the lower lust to the thhahu. Redeemed lust to Sithhu, constipated lust
 Let us come to thehu. Let's come, complete, let's go.
-“Shanthi” in one way is the Nirvana which is the same as Shanthi.
+“Shanthi” in one way is the Nibbana which is the same as Shanthi.
 Will that be a congruence of all editors, and dispel all the help?
-Viraganated Nirvana, the name of the craving. This is the Trusts
-Dedication by. 'This nirvana is the plant, this nirvana is the prostate, that is
+Viraganated Nibbana, the name of the craving. This is the Trusts
+Dedication by. 'This Nibbana is the plant, this Nibbana is the prostate, that is
 Will it be a compassion of all editors, whether all the accents are disgraced,
-Nirvana, the craving pause, but in some other way
+Nibbana, the craving pause, but in some other way
 Shantha to touch Shanthi for the Dharmayo Shanthapagamaya
 Existing to make reflexes. How is that? Four Sathipatayo
 Four Leaders, Padawachendiyaya, Sasara Bothayangayo, Aryan
 They are the Ashtangan road, if Shanthi Padas. The protection of the shantyverse,
-Ababyverse, Aachword, Aruthword Nirvana, Kaymanuwi, Deshannu Manuwi,
+Ababyverse, Aachword, Aruthword Nibbana, Kaymanuwi, Deshannu Manuwi,
 Measure to be imposed. Measure the bandage, open openings. Divide “All eyes
 True”, “seeing all things” is the almighty. Bhavath Budurajanan
 His eyes, and jinness, are born not before, but at once. Hence
 The Buddhism itself has all eyes with sight.
 
 [APZ 65.3] (#apz65 .3) {#apz65 .3.ref .apz} "This is what I do not know
-What is not known in Manuvi” is the unpretentious Nirvana. Nakatungurusa
-Nirvana. “Bhagavath” is the Word of Honor. (Applied to the Great Niddice (7-2) 1
+What is not known in Manuvi” is the unpretentious Nibbana. Nakatungurusa
+Nibbana. “Bhagavath” is the Word of Honor. (Applied to the Great Niddice (7-2) 1
 Must.) Reduced imposition. This is Bhagagaha. “Komayo” is a promo
 As Kama is two parts. That is, object rooms and cleavage rooms. (Great
 (1) 1 (ii) 2—3 shall be applied in the Niddeis.) Vocational Problessees
@@ -77,12 +77,12 @@ tells the earth. The earth was made with the widest prophecy of the same.
 There are great pledgesThe “doctrine” is the middle good, where the root is good, the ends are good,
 Defined, Genuine, All Complete, Pure Brahmology
 Four Sathipatthaya, Four Asset Chief Padawachendiriya, Tandalaya
-Bocentrya, Aryan Ashtangal Road Nirvana Nirvana Reaction
+Bocentrya, Aryan Ashtangal Road Nibbana Nibbana Reaction
 Manurements of caranu. Maniform, open, open, divide, divide,
 Ready. “If something I know” is figuring out if I know something
 If you are making, coming, making the recomitant. “HERE
 Dandruing of race shit” is a comparison of race jaarmoras here,
-Constant, impeccable nirvana. Therefore, the Brahmina said:
+Constant, impeccable Nibbana. Therefore, the Brahmina said:
 
 [Msdiv 66] (#msdiv66) {#msdiv66 .ref .msdiv} (11-2)
 
@@ -100,9 +100,9 @@ The 'Intellectio' is a Resource Resource,
 Correct Reverse, Dharman Dhamma Reverse, Complete
 Making, feeling the size of the troopers that there is a closed door in the inverter, sleeping
 Warmness, mindfulness and well-discreet, four weeks, FOUR Negative,
-Pajachendiriya, Pandakhabala, Sapthabothanga, Aryan Ashtanga Road Nirvana
-Nirvana Gamini Reduction, Efforts, Sareana, Amrutha
-As Nirvana, seen and decided with, and residing souls
+Pajachendiriya, Pandakhabala, Sapthabothanga, Aryan Ashtanga Road Nibbana
+Nibbana Gamini Reduction, Efforts, Sareana, Amrutha
+As Nibbana, seen and decided with, and residing souls
 Failure to know is a cravingly optically-drawn paranorama
 Infused, galon, canned, soulless is a spiritless redemption
 Dirty is conjugated, overheat is a dandruble. 'Khijachana' is Raga

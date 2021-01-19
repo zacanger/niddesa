@@ -45,8 +45,8 @@ The antidote is the good antithesis. Adherence is in theology
 Is adherent.
 
 [APZ 94.5] (# apz94.5) # apz94.5 .ref .apz} "Dead man's gap" is nectar
-Nirvana goes. Is there a consolation of all those editions, of all the subdivisions
-If there is an exclusion, it is the quenched Nirvana called Trishanaksha.
+Nibbana goes. Is there a consolation of all those editions, of all the subdivisions
+If there is an exclusion, it is the quenched Nibbana called Trishanaksha.
 Goes to the abyss of the dead "means comes to the abyss of the decrepit, the abyss
 Sees, sees the distance, that is.
 
@@ -55,7 +55,7 @@ Veth "means whether these Dhammas are brought abroad or especially abroad, senil
 These Dhammas are meant to be transcended and transcended. Therefore
 That is why you go to the Dhamma system
 From the premise, from that treasure, to this Dharmakrama, to this recitation, means 'road'
-Is the immortal Nirvana. This is the way it is said. "Name" is the charter
+Is the immortal Nibbana. This is the way it is said. "Name" is the charter
 That is, practice means name, etymology and rhetoric
 If you know the meaning of a question and know the Dhamma and follow it in Dharmanudharma
 It is said to be recited even though it is sent abroad.
@@ -166,7 +166,7 @@ Is done.
 [APZ 100.3] (# apz100.3) {# apz100.3 .ref .apz} "If anyone does,"
 Samyak Pratipada, Anuloma Pratipada, Unchanged Pratipada, Aliases
 Pratipada, Dharmanudharma Pratipada, follows, "If one follows so
-Going from here to beyond. ”The path (beyond) says to the immortal Nirvana.
+Going from here to beyond. ”The path (beyond) says to the immortal Nibbana.
 This is what the defilements, the masses, and the consecrated say.
 
 [APZ 100.4] (# apz100.4) # apz100.4 .ref .apz} "Going Abroad" means Abroad
@@ -177,8 +177,8 @@ Says.
 [Msdiv 101] (# msdiv101) # msdiv101 .ref .msdiv} (17-5)
 
 [APZ 101.1] (# apz101.1) # apz101.1 .ref .apz} "going over here" means
-The defilements, the masses, the consecrations are here. Overseas to immortal Nirvana
-Says. The decay of desire is called Nirvana, which is called Viraga.
+The defilements, the masses, the consecrations are here. Overseas to immortal Nibbana
+Says. The decay of desire is called Nibbana, which is called Viraga.
 
 [APZ 101.2] (# apz101.2) # apz101.2 .ref .apz} "The Great Way" is Aryan
 Tells the octagonal path. (17--3 here) Paragraph 7 should be applied.) "Great" means,
@@ -190,7 +190,7 @@ That is.
 
 [APZ 101.3] (# apz101.3) {# apz101.3 .ref .apz} "Therefore it is recitation."
 'Therefore' means from that premise, from that fact, from that cause, from that cause.
-Parathera means immortal Nirvana and 'ion' means path. 'Ithi' (this)
+Parathera means immortal Nibbana and 'ion' means path. 'Ithi' (this)
 Is the adjustment of tones. Means the order of the verses.
 
 Parayanaththuthigathaniddeso Sattarasamo.

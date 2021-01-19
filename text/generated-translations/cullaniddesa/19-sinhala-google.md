@@ -75,7 +75,7 @@ The great gathering is soothing, the great overflowing, the great pilgrimage
 Extinguishing, Extinguishing the Great Inflammation, Commemorating the Great Grief of the Great Dhamma Flag
 Lifting. Searching Maharshini. Great Satipatthnas are a great combination
 The chiefs, the great senses, the great powers, the great bodhisattvas, the great
-The Noble Eightfold Path, the great goal, is the pursuit of immortal Nirvana
+The Noble Eightfold Path, the great goal, is the pursuit of immortal Nibbana
 Where is the Supreme Buddha, where is the Blessed One?
 The Mahasakyas are looking for where the Lord is and where the hells are
 Received, called Maharshi. Therefore the Brahman himself said.

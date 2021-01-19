@@ -12,7 +12,7 @@ I'll see. "
 
 [APZ 23.2] (# apz23.2) {# apz23.2 .ref .apz} "Greatness is health" means greatness
 Came into health, came into protection, came into help, came into refuge
-I see those who have come to Nirvana, who have become immortal, who have become non-conscious.
+I see those who have come to Nibbana, who have become immortal, who have become non-conscious.
 
 [APZ 23.3] (# apz23.3) {# apz23.3 .ref .apz} "
 Is the purity of man? ”Images from the microcosm are also from the vision of man
@@ -209,7 +209,7 @@ Coming to the Dhamma "means when the learned man" publishes the four ways "
 The Vedas are called the Four Ways of Wisdom (ii) Wisdom, Wisdom,
 Wisdom, Dharmavicaya Sambodhyayanga, Vimansava Vidarshana Samyak Drishti
 That is. From such doctors the genocide went to the brink of death and the extreme went to safety
-Went to the aid, went to the nirvana, went to the end of the doctors
+Went to the aid, went to the Nibbana, went to the end of the doctors
 Gone or gone to the end of the doctors. The doctor is called. Seven Dhammas are known
 Hence the name Vedagu '(iii) Suspicion is known because self-perception is known
 Lust is known because it is known to take other forms of stone.

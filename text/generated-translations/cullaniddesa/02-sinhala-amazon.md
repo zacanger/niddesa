@@ -128,7 +128,7 @@ The prayful man will abandon the objects taken as motherhood and behave
 Three-day, the nation shall give up its sorrows.
 
 [Msdiv 82] (#msdiv82) {#msdiv82 .ref .msdiv} "To this word of Maharshen
-Happy. Bhavath Gauvah, we were given Nirvana.
+Happy. Bhavath Gauvah, we were given Nibbana.
 In that way, the proveyors brought away the suffering. Also this doctrine is you
 Known by.
 
@@ -282,7 +282,7 @@ Know The Kindergarten WorldShould the craving be discarded, the doctrine of the 
 Munithemay Wadaranu,” Hello said.
 
 [Msdiv 111] (#msdiv111) {#msdiv111 .ref .msdiv} "Hemmer, in this world
-The desire for the purpose is to go to Nirvana, which is not chew.
+The desire for the purpose is to go to Nibbana, which is not chew.
 
 [Msdiv 112] (#msdiv112) {#msdiv112 .ref .msdiv} "Someone in remembrance Know This
 The cravings of the world in the world as well as in the world.
@@ -321,7 +321,7 @@ There was a great fearful flood of the people who were jaunted and deathed
 I will say, “I will make a capper for the buck,” he said.
 
 [Msdiv 119] (#msdiv119) {#msdiv119 .ref .msdiv} "Nothing in raggable,
-I say that this knife, which is not taking, is the decay nirvana of shit and death.
+I say that this knife, which is not taking, is the decay Nibbana of shit and death.
 
 [Msdiv 120] (#msdiv120) {#msdiv120 .ref .msdiv} "Some creature in remembrance
 Knowing this, the twinahu of this spirit did not go into the domain of the marah. They are the leave-off
@@ -392,10 +392,10 @@ Anavavamodea doctrine of purification, Erhath Vimokaduwa
 It is said (secret).”
 
 [Msdiv 133] (#msdiv133) {#msdiv133 .ref .msdiv} "What is the binding of the locator,
-What behavior is, what is Nirvana said by incendiary?”
+What behavior is, what is Nibbana said by incendiary?”
 
 [Msdiv 134] (#msdiv134) {#msdiv134 .ref .msdiv} "The craving of Nandi is teased
-Obligation. The dissent test is said to be nirvana by dispelling the cravings.”
+Obligation. The dissent test is said to be Nibbana by dispelling the cravings.”
 
 [Msdiv 135] (#msdiv135) {#msdiv135 .ref .msdiv} How to behave in remembrance
 Was there be no consciousness, and the men came to the critics of you

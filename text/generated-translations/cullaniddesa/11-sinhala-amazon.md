@@ -34,7 +34,7 @@ Not from the consciousness, but from the consciousness, orNot. Myth is not of co
 'Skills' is a certain mass of talent relics adept institutions
 ReferencesPaththana Skills, Sathipatana Skills. Lead Skillers,
 Direct Skills, Indiya Skills, Power Skills, Boarding Skills
-Skillers, fruitful adept, Nirvana adept, are of sight holiness or
+Skillers, fruitful adept, Nibbana adept, are of sight holiness or
 By Grade Holiness or Ash Resptive Consciousness, or by Consciousness
 The myth came unto him by wisdom or seeing or hearing, or by the thought of it.
 No, but not stated.

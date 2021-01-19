@@ -21,9 +21,9 @@ should be.)
 
 [APZ 30.3] (# apz30.3) # apz30.3 .ref .apz} "Hear your word and be at peace
 Discipline is listening to and preaching your word sermon
-Discipline in their nirvana. Is three disciplines. Adhisila Shiksha Adhichitta
+Discipline in their Nibbana. Is three disciplines. Adhisila Shiksha Adhichitta
 Discipline is the supreme discipline. (1-7) 2 From the point of view of 'Where is the supreme discipline?'
-Should be used.) This is the supernatural discipline. Their Nirvana is their lust
+Should be used.) This is the supernatural discipline. Their Nibbana is their lust
 To extinguish hatred, to extinguish delusion, to extinguish anger, to extinguish hatred
 (Mahaniddesaya 14--5 (2) 'Santhavuvahuta' means 'to extinguish' and Raga
 Should be used in place 1787) to appease all inauspicious collections
@@ -58,7 +58,7 @@ There are three disciplines. Super disciplines, superconscious disciplines, supe
 That is. (1-7-2) and paragraph 3 should be applied from the point of view of hyperactivity.)
 Discipline.
 
-[APZ 31.4] (# apz31.4) {# apz31.4 .ref .apz} "Their Nirvana is" their
+[APZ 31.4] (# apz31.4) {# apz31.4 .ref .apz} "Their Nibbana is" their
 In order to quench the lust (Exodus 14--5 (2) 'to the saints' means to 'quench'
 It should be changed and used instead of lust. 1787)
 
@@ -114,7 +114,7 @@ Is the Blessed One. Sakya is a monk of the Sakya caste,
 Those who have great wealth that is reborn or inherited. The name 'Sakya'. These riches belong to Him
 Is. Who are they? Shraddha wealth, virtuous wealth, hiWealth of wealth, wealth of otthappa, wealth
 Wealth, Gift Wealth Wisdom Wealth, Satipatthana Wealth, Samyak Main Wealth, Riddhipada
-Wealth, Sense Wealth, Power Wealth, Bojkdhanga Wealth, Road Wealth, Fruit Wealth, Nirvana
+Wealth, Sense Wealth, Power Wealth, Bojkdhanga Wealth, Road Wealth, Fruit Wealth, Nibbana
 Wealth, thus enriched by the various riches of wealth
 The evidence is. Again, don't be afraid because you are brave, you are brave and you are not afraid
 Therefore, it is called Sakya because it has vain fears and has lost hair.
@@ -153,9 +153,9 @@ Impurity does not cleanse one another. ”This is the Blessed One
 Preached by.
 
 [APZ 33.12] (# apz33.12) # apz33.12 .ref .apz} "Brahman is the same.
-Nirvana exists. There is the path to Nirvana. Again, my disciples
+Nibbana exists. There is the path to Nibbana. Again, my disciples
 There are some who are admonished and admonished
-Absolutely attains Nirvana, but some do not, here
+Absolutely attains Nibbana, but some do not, here
 What do I do? Brahman knows the real path and understands the path
 Preaching. Those who follow Him will be redeemed.
 
@@ -167,9 +167,9 @@ Or a man. In the world, paragraph (1-1) 1 (ii) applies to the world of hell
 should be.)
 
 [APZ 33.14] (# apz33.14) {# apz33.14 .ref .apz} "Know the Great Dhamma too
-The great Dhamma of "receives" says to the immortal Nirvana. (Ii) Some a
+The great Dhamma of "receives" says to the immortal Nibbana. (Ii) Some a
 Something is the solace of all editions, the solace of all subdivisions, lust
-Decay, decay, quarantine, that is Nirvana. The greatness is
+Decay, decay, quarantine, that is Nibbana. The greatness is
 Greatness is the foremost, the noblest, the known, the understood
 The great Dhamma is also known to cross this ogha. Thus you lust,
 Dittoghaya, Avijjoghaya, you will cross, you will go beyond. It means you will exceed.
@@ -186,7 +186,7 @@ Please have mercy. Doing kindness means being merciful and gracious
 Generating, pitying.
 
 [APZ 34.2] (# apz34.2) # apz34.2 .ref .apz} "Somehow I found the doctrine of rest
-Do you know? "Says to Nirvana. Some A (5-3)
+Do you know? "Says to Nibbana. Some A (5-3)
 13 (ii) should apply.) “Do I know something, or do I know something?
 It means to understand, to receive, to see, and to perceive.
 
@@ -260,9 +260,9 @@ That is.
 
 [APZ 36.5] (# apz36.5) # apz36.5 .ref .apz} "Peace be upon you"
 'Maharshi' means the Blessed OneThe Lord. The great virtuous group (Maha
-Paragraph 10 of the directive (14-1) should be applied.) Says the sublime Nirvana.
+Paragraph 10 of the directive (14-1) should be applied.) Says the sublime Nibbana.
 Some of those editions were settled and all the degrees were extinguished by the decay of desire
-That is, Viraga was called Nirodha, that is Nirvana. 'Great' means noble
+That is, Viraga was called Nirodha, that is Nibbana. 'Great' means noble
 Pravara means.
 
 [APZ 36.6] (# apz36.6) # apz36.6 .ref .apz} "Knowing something and behaving consciously"

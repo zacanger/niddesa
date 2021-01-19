@@ -246,13 +246,13 @@ The vision was strong, and the vision was compelled by the hands, and the hands 
 It was brought into the nouwana. The postures were held. controlled. Deponent.
 
 [APZ 44.5] (#apz44 .5) {#apz44 .5 .ref .apz} "Herem” is an impeccable
-Nirvana is said to be a neat. (ii) All those editors were constituting
+Nibbana is said to be a neat. (ii) All those editors were constituting
 All the ends did not dispel the cravings, but the pause was not done
-Nirvana.
+Nibbana.
 
 [APZ 44.6] (#apz44 .6) {#apz44 .6 .ref .apz} "Herem” is
 Seeing protection, he behold unsanctuary, and unto be unsanctuary
-Therefore, they give up the hardness of Munehe, and Nirvana
+Therefore, they give up the hardness of Munehe, and Nibbana
 The bearer was discontinued.
 
 [Msdiv 45] (#msdiv45) {#msdiv45 .ref .msdiv} [Msdiv 46] (#msdiv46) {#msdiv46

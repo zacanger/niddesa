@@ -158,7 +158,7 @@ It says or says that the Nevadanasagathatha received the society. Proposes.
 (iii) Anriya DhamamaSkills are the relics of which the masses are competent
 Competent Institutions Competent Competent Competents
 Competent Competent Main Competent Indirectly Competent Power
-This is due to the fact that Nirvana is competent, which is competent in the field of competent bodies.
+This is due to the fact that Nibbana is competent, which is competent in the field of competent bodies.
 Skill said: This doctrine was innate. This doctrine of the Lady
 Not. This doctrine was the youngest. This doctrine is not of the Pandits. This doctrine
 Away. Thus said this doctrine is not of men. Thus the saw.
@@ -266,9 +266,9 @@ In view, these two inhalations are expected.
 [APZ 19.6] (#apz19 .6) {#apz19 .6 .ref .apz} "A transient comparison associate
 There are three compassions of the “did”. Complying of Machinery (Monthentha)
 Convenience, consensual constipation, constipation. What are the machines? (ii) Immunities
-Nirvana is said to be Ekanshanthi. Something settles all editors
+Nibbana is said to be Ekanshanthi. Something settles all editors
 All the ends made are compounded cravings depleted, if they are depleted.
-Nirvana. (iii) What is the jaganga shantha? (iv)
+Nibbana. (iii) What is the jaganga shantha? (iv)
 The nivaranahu are symmetrical to the preeminence. Skin to the secondary center
 Critics of Wadunahu have been salient. Tertiary Center
 Pritiya Sanghune Wei. Suaduduk Sanathanahu to the Chatunahu Center

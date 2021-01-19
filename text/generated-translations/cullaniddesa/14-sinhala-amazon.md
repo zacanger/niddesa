@@ -113,17 +113,17 @@ He prostated.
 If “No Capture” is “No Capture” (4-11) 1 is applied from where the snees go
 Must.) The hardness tells the craving (ii) a certain lust is a sticking
 It is the hardness of the genus. Indication of hardness, constipation of hardness,
-(iii) This is the location of the Nirvana. No other” is the location of this.
+(iii) This is the location of the Nibbana. No other” is the location of this.
 Protection is a tree. There is no other location in the veneer. arched,
-This is the most prominent, prominent, knife. “I say it is Nirvana”
+This is the most prominent, prominent, knife. “I say it is Nibbana”
 'Dairy' tells the craving. Yamracha Adda (10-4) 1 (ii) should be applied.)
-It is the unpretentious nirvana, the cravings of cravings, the craving of cravings
+It is the unpretentious Nibbana, the cravings of cravings, the craving of cravings
 Ithi 'thus' is the vowal joint. vowel intercourse. Complete the vowels.
 The letter is to do. The term is to be used. “Say” is Deshanamam, I am, put,
 Open, divide, publish, publish, go. “This is some of those senses
-Knowing the matter”, “this” is the impeccable nirvana. All those editors
+Knowing the matter”, “this” is the impeccable Nibbana. All those editors
 Contraination is a rash of all subfebrile, cramps, pause
-Nameless, Nirvana, Nirvana. “Know” is a decision with knowing
+Nameless, Nibbana, Nibbana. “Know” is a decision with knowing
 As a rule, all editors must apply (1-8) 3.) Any
 Reason is a doctrine, knowing that it is all to be done in order to be repositories
 Wait, Decisionate. “Yamman” is Arhetthu Kshinasravayo.

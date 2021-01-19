@@ -40,7 +40,7 @@ In order to appease the hater in order to appease the wrath of the enemy
 To the extent of the hypocrisy of the deceitfulness of the jealousy of the one-to-one.
 In all the vices of the past, in the past, in the past, in the past
 In all the persecutions, in all the burnings, in all the afflictions, in all the evil gatherings
-This is for the sake of Nirvana, for the sake of exclusion, for the sake of exclusionThat is not quantity.
+This is for the sake of Nibbana, for the sake of exclusion, for the sake of exclusionThat is not quantity.
 
 [APZ 131.2] (# apz131.2) # apz131.2 .ref .apz} "Say two results of the debate"
 Is the vision of the ideology of the ideological conflict of the ideological conflict of the ideological ideology of the ideological ideology
@@ -56,11 +56,11 @@ Seeing this also means looking at this derivative, deciding on it and publishing
 Seeing this also in the visual debates of quarrels means "do not argue" does not quarrel.
 Does not argue. Does not analyze, calms down, leads to extinction.
 He avoids quarrels, quarrels, quarrels, quarrels. The separation is gone
-Means living with an unrestricted mind. Looking at Nirvana, the land of the undisputed
-Is the land of indisputability, says the immortal Nirvana. All those editions were appeased
-Nirvana is the so-called nirodha, which eliminates all impurities, eliminates lust and eliminates lust.
+Means living with an unrestricted mind. Looking at Nibbana, the land of the undisputed
+Is the land of indisputability, says the immortal Nibbana. All those editions were appeased
+Nibbana is the so-called nirodha, which eliminates all impurities, eliminates lust and eliminates lust.
 This undisputed land is a safe haven, a place of no fear
-Nirvana is seen as the place of non-consciousness as the place of nectar
+Nibbana is seen as the place of non-consciousness as the place of nectar
 Seeing is thinking means looking specifically.
 
 [Msdiv 132] (# msdiv132) # msdiv132 .ref .msdiv} (13 - 3)
@@ -453,7 +453,7 @@ Looks at the soul as, that is.
 Not to mention that the geniuses are the geniuses of the masses, the geniuses of the elements, the geniuses of the institutions
 Patichcha Samuppada Dakshayo Satipatthana Dakshayo Samdayak Pradhana Dakshayo Riddhipada
 Skilled, sensory, power, Bodhisattva, road skill, fruit skill
-Nirvana is the master. Those geniuses are the wisdom or foresight of others
+Nibbana is the master. Those geniuses are the wisdom or foresight of others
 By the wisdom of seeing order, or by seeing the names of the prophets
 Purity Purity Purity Immunity Liberation Not to mention,
 Without declaring or practicing.
@@ -624,7 +624,7 @@ I have not grown the four limbs, I have not grown the five senses.
 Not cultivated, I did not cultivate the Punjabis, I slept
 Bodhisattvas are not cultivated I do not cultivate the Aryan Eightfold Path
 I did not know the truth of suffering, I suffered
-Nirvana is that the cause of occurrence was not lost, and that I did not cultivate the path
+Nibbana is that the cause of occurrence was not lost, and that I did not cultivate the path
 I do not know what to do with myself
 Do not do these deeds that insult you
 What is received is not created, it is not created, it is not humiliated.

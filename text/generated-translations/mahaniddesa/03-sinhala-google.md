@@ -158,7 +158,7 @@ It is said that the end of the New Testament. Declares.
 (iii) Anariya Dhamman Kusala Thamahu means Kusala are the relics of the masses
 Skilled Institutions Skilled Pratheethaya Samutpadaya Skilled Satipatthnas
 Skilled samyakpradhana skilled rdhipada skilled sense organs skilled
-Skilled Bodhisattvas Skilled Paths Skilled Fruits Skilled Nirvana Skilled
+Skilled Bodhisattvas Skilled Paths Skilled Fruits Skilled Nibbana Skilled
 The experts said. This Dhamma belongs to the ignorant. This Dhamma belongs to the Aryans
 Not at all. This Dhamma belongs to the children. This Dhamma does not belong to the scholars. This Dhamma
 Of liars. This Dhamma is not of men either. Even if you say so.
@@ -266,9 +266,9 @@ From the point of view, these two blessings are expected.
 [APZ 19.6] (# apz19.6) # apz19.6 .ref .apz} "That unstable calming association
 Did "There are three consolations. Extreme (positive) consolation, tadanga
 Calm down, compromise calm down, that is. What is the ultimate peace? (ii) Immortal
-Nirvana is called Ekantashanthi. Something settled all the edits
+Nibbana is called Ekantashanthi. Something settled all the edits
 The so-called inhibitions that quenched all the defilements and quenched the cravings
-Nirvana. This is absolute peace. (iii) what is Thangada Shanthi? (iv)
+Nibbana. This is absolute peace. (iii) what is Thangada Shanthi? (iv)
 For those who are a little tired of the stereo-typed name-calling, Equivalent to secondary education
 Argumentative critiques are appeased. For those who have joined the Tertiary
 The spirit will calm down. Those who joined the Chaturtha Dhyana were relieved

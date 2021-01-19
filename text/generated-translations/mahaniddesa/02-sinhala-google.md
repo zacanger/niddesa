@@ -128,9 +128,9 @@ The mind was at rest from all defilements and all omens outside. This mood
 Rest.
 
 [APZ 7.38] (# apz7.38) # apz7.38 .ref .apz කවර What is graduation leave? And the tribulations
-Masses and consecrations are said to be degrees. Graduation rest to immortal Nirvana
+Masses and consecrations are said to be degrees. Graduation rest to immortal Nibbana
 Says. Someone quenched all the vices and eliminated all the impurities and desires
-It is nirvana when there is decay, non-attachment and loss of bonds. This is graduation break
+It is Nibbana when there is decay, non-attachment and loss of bonds. This is graduation break
 For those who are addicted to lust, for those who are detached from the body, rest is also a pure mind.
 For those who are a little tired of the stereo-typed, this is the place to be
 Graduation leave is given to those who are free from impurity.
@@ -213,9 +213,9 @@ There is no redemption, "said the Blessed One.
 The sin that is not committed cleanses itself. Purity and impurity are separate from each other
 Cleans. One does not clean the other. And so is the other
 It cannot be redeemed. "The Blessed One himself said," Brahmana,
-In the same way, Nirvana exists. There is a path to Nirvana. Congratulations
+In the same way, Nibbana exists. There is a path to Nibbana. Congratulations
 I'm the doer. But I do not know
-In fact, some of my disciples are looking forward to Nirvana.
+In fact, some of my disciples are looking forward to Nibbana.
 Some do not expect. Brahmana, what am I doing here,
 Brahman is the one who declares the true path. The Buddha himself tells the way. Himself
 Pilipadinnahu Mideth. Even so, owning one is still beyond the reach of the average person.
@@ -477,7 +477,7 @@ It is said to be courageous because it has the wisdom of Samyagdrishti Again
 Wisdom in Mass, Wisdom in Relics, Wisdom in Institutions, Antiquity
 Wisdom in Samutpadaya, Wisdom in Sathi Patthana, Samdayak in Pradhana
 Wisdom, Wisdom in the Foot, Wisdom in the Senses, Wisdom in the Bodhisattvas
-Wise, Wise in Ways, Wise in Fruits, Wise in Nirvana
+Wise, Wise in Ways, Wise in Fruits, Wise in Nibbana
 The wise men said, People's lives are short. Life is short. A little. A little
 A time. Not far off. Life is not permanent. He said. Even if you say so.
 Even if he speaks like this. Thus stated and thus practiced.

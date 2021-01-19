@@ -89,7 +89,7 @@ As Silence sees inferior. Looks
 The adept of certain masses, the adept of the reins, the adept of the institutions
 Skills at Patchsampamp, Skills in Sathipattaya Leadings
 Skills in the negative, adept in the indices, adept in the powers
-BoJSkillings in the way, Skillers in the Productivity, Skillers in Nirvana
+BoJSkillings in the way, Skillers in the Productivity, Skillers in Nibbana
 Thus the saw. This is a pot, this is an almc, this is a bond, this goes Kilutak
 Thus the saw. As stated: Thus shall they be made.
 
@@ -292,9 +292,9 @@ The statue should not be taken away.” From Brahman or
 By neither of the action nor of the cold, nor of the nuance.
 
 [APZ 38.6] (#apz38 .6) {#apz38 .6 .ref .apz} "Noselvenna Return
-Not coming.” The parapet is a martyred nirvana. Someone All That Someone
+Not coming.” The parapet is a martyred Nibbana. Someone All That Someone
 The editors suppressed all the elbows that depleted the cravings, if the pause
-Nirvana, the name is Nirvana, and put it. Heathly went to the street. Internation
+Nibbana, the name is Nibbana, and put it. Heathly went to the street. Internation
 arrived. went to the corner. came to the corner. He has no race death editors.
 There is no rebirth.
 

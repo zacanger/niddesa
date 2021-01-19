@@ -63,7 +63,7 @@ I saw the immaculate Buddha crossing the flood.
 
 [Msdiv 171] (# msdiv171) {# msdiv171 .ref .msdiv} "Yamse Vakkalithema Shraddha
 Liberated as Bhadravudha Yamsa, Alavi Gautama Yamsa and you
-Ring of faith, Pingiya, you will go to Nirvana.
+Ring of faith, Pingiya, you will go to Nibbana.
 
 [Msdiv 172] (# msdiv172) {# msdiv172 .ref .msdiv} "This
 I was very impressed to hear the word. Sambuddha is also a Samhaya with a removed Mohadi
@@ -74,7 +74,7 @@ All the ancients put an end to the very problem of the knower. No doubt
 Will inform.
 
 [Msdiv 174] (# msdiv174) {# msdiv174 .ref .msdiv} "Unchanging change from Ragadi
-There is nothing to be compared to that Buddha who is not, certainly Nirvana
+There is nothing to be compared to that Buddha who is not, certainly Nibbana
 I will go to the relic. No doubt here. I have a frozen heart. "
 
 Recitation Nittitha.

@@ -32,7 +32,7 @@ Says to wisdom. Is there any wisdom (applied in Mahaniddasa (3-1) 3
 Should.) That is whether there is an Amoha, a Dhammavicha, a Sammaditya. Blessed Ones
 This Medha is wise.
 
-[APZ 102.7] (# apz102.7) # apz102.7 .ref .apz} "Separated from Lust to Nirvana
+[APZ 102.7] (# apz102.7) # apz102.7 .ref .apz} "Separated from Lust to Nibbana
 Came "The lusts are obviously two parts of lust, and materialism
 It is also filthy. (Paragraphs (1) 1 (ii) 2--3 of the Mahaniddasa should be applied) These
 Blessed are the Buddhas who call themselves material lusts and these are filthy lusts.
@@ -160,7 +160,7 @@ Eight. The Eightfold Path is nine worlds. Ten worlds of neophytes. Ten instituti
 Twelve worlds. Twelve institutions. Eighteen worlds are octagonal.
 
 [APZ 104.4] (# apz104.4) {# apz104.4 .ref .apz යනු "went to the end of the world"
-The Blessed One has gone to the ends of the earth. Went to the extreme. To Nirvana
+The Blessed One has gone to the ends of the earth. Went to the extreme. To Nibbana
 Gone. He has a rainy day, a habitual journey
 (Must apply in Mahaniddasa (3-7) 6 (ii) There is no race death race. to him
 There is no reincarnation. Bhavya means transcendence. Karma
@@ -323,7 +323,7 @@ Samdayak came to Sambodhi and was alone.
 [APZ 107.9] (# apz107.9) {# apz107.9 .ref .apz යනු "Darkness is gone"
 The Blessed One is the darkness, the darkness of hatred, the darkness of darkness, the vision
 Darkness, filthiness, impure darkness, blindness, unconsciousness
-Doing, suppressing wisdom, destroying the thing that does not lead to Nirvana.
+Doing, suppressing wisdom, destroying the thing that does not lead to Nibbana.
 Removed and appeased. Preached. 'Sitti' means the Blessed One is a rock
 He lived in the temple.
 
@@ -352,7 +352,7 @@ The Blessed One understood the truths of the Dhammas which he had not understood
 He said. There too he came to omniscience. Dhamma sermons came to fruition in the fruits as well
 Kalaseka means. Dhamma is a consonant with good meaning in the beginning, good in the middle and good in the end
 Contains all pure celibacy i.e. Satara Satipatthනයන්nas (17-10) 7 (ii)
-Should be applied.) The Noble Eightfold Path, Nirvana Nirvana Gamini Pratipada
+Should be applied.) The Noble Eightfold Path, Nibbana Nibbana Gamini Pratipada
 He said. Preached. Imposed, laid down, opened, divided, proclaimed
 He said.
 
@@ -369,10 +369,10 @@ Dynamics, Genesis Decay, Consumption, Conservation, Decay.
 
 [APZ 108.3] (# apz108.3) # apz108.3 .ref .apz} "Eti without"Mass,
 It is said that defilement and consecration are eti (danger), but eti prahanaya eti soothing,
-Disposal of iti means immortal Nirvana. "Something has no parable anywhere."
-'To someone' means Nirvana. No parable is something to compare
+Disposal of iti means immortal Nibbana. "Something has no parable anywhere."
+'To someone' means Nibbana. No parable is something to compare
 No means 'somewhere' anywhere in the psyche or anywhere
-There is no parable of Nirvana, either external or spiritual. Therefore
+There is no parable of Nibbana, either external or spiritual. Therefore
 The Pingiya Sthaviras said,
 
 [Msdiv 109] (# msdiv109) # msdiv109 .ref .msdiv} (17-12)
@@ -524,11 +524,11 @@ Religion is free, is there any doctrine that is born of some cause?
 Free your faith from the belief that it exists for the sake of restraint, and so do you
 Relieve your faith, Pingiya, send yourself beyond the realm of the devil
 What is the area, whether it is defilements, masses or impurities, is 'beyond'
-Says the immortal Nirvana.
+Says the immortal Nibbana.
 
-[APZ 117.2] (# apz117.2) # apz117.2 .ref .apz} All of that Nirvana
+[APZ 117.2] (# apz117.2) # apz117.2 .ref .apz} All of that Nibbana
 The editions concluded that all subjugation was the cessation of cravings,
-Whether it is Viraga or Nirodha, that is Nirvana 'Beyond the realm of that demon
+Whether it is Viraga or Nirodha, that is Nibbana 'Beyond the realm of that demon
 Yava 'means beyond the area belonging to the Pingiya Mara, beyond the south, beyond
 That's it. So the Blessed One preached.
 
@@ -623,7 +623,7 @@ From the deserts of filth, disease, death, sorrow, misery, sorrow, trickery
 Crosses. Raga crosses the desert Dvesha, Moha, Drishti, Klesha,
 Virtuous, crossing the desert. From the Mahavana called Raga, called Dvesha
 Crosses the Mahavana, the Mahavana called Moha and the Mahavana called Drishti. Immoral
-Crosses the Great Forest. Fearlessness leads to Nirvana, the land of nectar.
+Crosses the Great Forest. Fearlessness leads to Nibbana, the land of nectar.
 Thus the Blessed One is successful.
 
 [APZ 119.5] (# apz119.5) # apz119.5 .ref .apz} Blessed again
@@ -645,30 +645,30 @@ Are Wuahu. That is why the Pingiya Sthaviras said.
 [Msdiv 120] (# msdiv120) # msdiv120 .ref .msdiv} (17-21)
 
 [APZ 120.1] (# apz120.1) # apz120.1 .ref .apz} "Fixed unchanging
-Nirvana means "immutable" in Nirvana
+Nibbana means "immutable" in Nibbana
 There is a soothing effect of the editions called Viraga Nirodha
-Nirvana. It is no different from lust. Not different from hatred. By delusion
+Nibbana. It is no different from lust. Not different from hatred. By delusion
 Thinking that there is a noble and equal qualities in the spider quality of hatred mixed with anger,
 Jealousy, greediness, deceit, hypocrisy, greediness
 From supernaturalism to procrastination, from all defilements, from all vices
 From all the burns, from all the burns, from all the filthy collections
-Nirvana does not change, eternity means permanence.
+Nibbana does not change, eternity means permanence.
 
 [APZ 120.2] (# apz120.2) # apz120.2 .ref .apz} "Is there a parable for something?" Is going
-'Something' means Nirvana. 'No parable' means no comparison
+'Something' means Nibbana. 'No parable' means no comparison
 Nowhere means anywhere, spiritually or externally.
 
-[APZ 120.3] (# apz120.3) # apz120.3 .ref .apz} "I will definitely go to Nirvana
+[APZ 120.3] (# apz120.3) # apz120.3 .ref .apz} "I will definitely go to Nibbana
 There is no doubt that "is definitely the word for certainty."
 The word without two. The right word. Innocent word. The opposite word.
 ‘I will definitely go’ means I will come. I will testify. That is.
-'Here' in 'No doubt here' is in Nirvana. Suspicion is a surprise
+'Here' in 'No doubt here' is in Nibbana. Suspicion is a surprise
 Wichita has no two ideas. Not apparent, not available. Failure,
 At first it was dry. Calm, soothing, unworthy to be born, by the fire of wisdom
 Burned.
 
 [APZ 120.4] (# apz120.4) {# apz120.4 .ref .apz} "The liberated mind is like this"
-Becoming a Nirvana-bound, Nirvana-bound, Nirvana-bound, liberated mind
+Becoming a Nibbana-bound, Nibbana-bound, Nibbana-bound, liberated mind
 I mean wood. That is why the Pingiya Sthaviras said.
 
 Parayananugitigathaniddeso Attarasamo.

@@ -169,7 +169,7 @@ Will be. Those sages came to the Blessed One and understood the Four Noble Paths
 Are. Because you have understood the Four Noble Paths, you will know the name and the image.
 Knowing the name body and the image body, the name body and the image body are saved.
 Extreme ratios are avoided. Meaning does not go to numbers
-Is the relic of Nirvana, the innumerable remnants of the Anupadi. In the morning
+Is the relic of Nibbana, the innumerable remnants of the Anupadi. In the morning
 Will not come. Does not go to the charter. Kshatriya or Brahmin
 Vaishya or Shudra or household or Pravrajita or God
 Human or morphological or morphological or sensuous or unconscious or neoconservative
@@ -196,7 +196,7 @@ This is the Dhamma that has been done. Therefore the Brahman himself said:
 [Msdiv 45] (# msdiv45) {# msdiv45 .ref .msdiv} (6-8)
 
 [APZ 45.1] (# apz45.1) {# apz45.1 .ref .apz} "Lost image size
-The one who goes to the point of "no" is the one who has attained the state of Nirvana
+The one who goes to the point of "no" is the one who has attained the state of Nibbana
 No image size. There is no amount of pain. No signal size, edits
 No quantity, no consciousness, non-manifest, non-manifest, void,
 At first it was extinguished, unworthy to be born, burned with the fire of wisdom. Subsidiary

@@ -83,131 +83,116 @@ the needy [will] come, approach,, visit." Or when you have a question, you can a
 have enough reason to tell and answer the question I asked, "Please bear this
 burden." In this way, "the ones in need come with questions".
 
-----
-CHECKPOINT
-----
-
-"Fairies, people who rely on something": "Rely on, rely on, stick to, enter, get
-dyed, or turn their hearts toward something. "Fairies", who are named immortals,
-and whoever monks become hermits or monks. "People" are called human beings."
+"People who rely on immortals (fairies??)": "Rely on, stick to, enter,
+or turn their hearts toward something. "Fairies", who are named immortals,
+and whichever monks become hermits. "People" are called human beings."
 People who depend on immortals and people.
 
-"Kshatriyas, Brahmins to the gods": "'Kshatris,' everything that is born of
-Kshatriya.'Brahmins', whoever calls others gentlemen.'To the gods', evil fate
-The evil destiny of the disciple, the Niganta god of the disciple of Niganta,
-the knotter god of the knotter disciple, the marcher god of the marcher
-disciple, the exiled god of the exiled disciple (Thailand version), the
-shouxiang ring The elephant god, the horse god of the horse ring, the bull god
-of the bull ring, the dog god of the dog ring, the crow god of the crow ring,
-the Vishnu god of the Vishnu ring , The power of the power ring-keeper, the man
-of the virtuous ring, the man of the virtuous ring, the jewel of the virtuous
-ring, the fire of the fire ring, the dragon and the god of the dragon ring, the
-golden wings The golden-winged bird god of the bird ring, the Yaksha god of the
-yaksha ring, the asura god of the asura ring watcher, the Gandha god of the
-ganda ring, the great king god of the guard [heaven] the ring, and the moon
-guard The Moon God of the Rings, the Sun God of the Ring Watchers, the Indra God
-of the Indra Ring Keepers, the Brahma God of the Brahma Ring Keepers, the God
-God of the Ring Keepers, the Location God of the Position Ring Keepers, Those
-who are worthy of offering to them are their gods." For the Kshatriyas and
-Brahmins to the gods.
+"Kshatriyas, Brahmins, to the gods": "'Kshatris,' everything that is born of
+Kshatriya. 'Brahmins', whoever calls others gentlemen. 'To the gods', evil fate,
+the evil destiny of the disciple, the Niganta god of the disciple of Niganta,
+(??) the knotter god of the knotter disciple, the marcher god of the marcher
+disciple, the exiled god..., the the elephant god... , horse god,  bull god, dog
+god, crow god, Vishnu god, the power of the power ring-keeper, the man of the
+virtuous ring, the jewel of the virtuous ring, the fire..., the dragon .., the
+golden-winged..., Yaksha, asura, Gandha, the great king god of the guard
+[heaven], the moon god, sun god, Indra, Brahma....  Those who are worthy of
+offering to them are their gods." For the Kshatriyas and Brahmins to the gods.
 
-"There are many animal sacrifices in the world": ""Sacrifice" is called donation
-(casting method): clothing, food, shelter, necessities of the patient, medical
-necessities, food, drink, cloth, transportation, Garlands, spices, oils, bed,
-house, lamps and candles. "As an animal sacrifice", wherever they seek, pursue,
-and beg for clothing, food, shelter, necessities of the sick, medical
-necessities, food, drinks, Cloths, vehicles, garlands, spices, oiled, bedridden,
-houses, lamps and candles are used as animal sacrifices; wherever they prepare
-clothing, food, shelter, necessities for the sick, medical necessities, food,
-drinks... …(Slightly omitted) Those who lie in beds, houses, lamps and candles
-are also used as animal sacrifices; wherever they give, provide, and donate
-clothing, food, shelter, patient needs, medical necessities, food, drinks...
-(Omitted) Those who lie in beds, houses, lamps and candles also make animal
-sacrifices. "Many", these animal sacrifices are many, or the priests of these
-animal sacrifices are many, or these are worthy of support. How about. Are there
-many sacrifices of these animals? The clothes, food, shelter, necessities of the
-sick, medical necessities, food, drinks, cloth, vehicles, garlands, spices, oil,
-bed, houses, lamps and lanterns belong to Many, so these sacrifices are many.
+TODO: one translation uses "animal sacrifices" for each instance of the word
+"sacrifices" here, which seemed incorrect, but cross-check with the Pali.??
+"There are many sacrifices in the world": ""Sacrifice" is called a donation:
+clothing, food, shelter, necessities for patients, medical necessities, food,
+drink, cloth, transportation, garlands, spices, oils, bed, house, lamps and
+candles. "As a sacrifice", wherever (whoever??) they seek, pursue, and beg for
+clothing, food... (omitted) are used as sacrifices; wherever they prepare
+clothing, food... are also used as sacrifices; wherever they give, provide, and
+donate clothing, food... also make sacrifices. "Many", these sacrifices are
+many, or the priests of these sacrifices are many, or there are many worthy
+providers. How are there sacrifices many? The clothes, food... belong to (are??)
+many, so these sacrifices are many.
 
 How is it that there are many priests of these sacrifices? There are many
-priests of these animal sacrifices: Kshatriya, Brahman, Vaisha, Sudra, laymen,
-monks, heavens, and people, so there are many priests of these animal
+priests of these sacrifices: Kshatriya, Brahman, Vaisha, Sudra, laymen,
+monks, heavens, and people, so there are many priests of these
 sacrifices.
 
-How is or are there many people who are worthy of support? There are many
-Shamen, Brahmins, beggars, travelers, wanderers, and beggars who are worthy of
-offering, so there are many worthy of offering. "Here is in the world", in the
-human world. "Being here for many sacrifices in the world?"
+How is or are there many worthwhile providers (people who are worthy of support??)?
+There are many Shamen, Brahmins, beggars, travelers, wanderers, and beggars,
+so there are many worthy of offering. "Here is in the world", in the
+human world. "To make sacrifices for many here in the world".
 
-"My Lord, I ask you, please tell me this": ""Inquiry", there are three kinds of
+"My Lord, I ask you, please tell me": ""Asking", there are three kinds of
 inquiry: inquiry about the explanation of the unseen, inquiry about the
-confluence of the seen, and inquiry about the cut-off of doubt. What is the
-unseen? Explaining inquiry? It was originally an unknowed, unseen, unmeasured,
-unjudged, unclear, unclear characteristic, for the purpose of his wisdom,
-seeing, measuring, judging, clear, and clear He asked a question, which was a
-question of unseen explanation.
+confluence of the seen, and inquiry about the cut-off of doubt.
 
-What is the confluence of what you see? It was originally a characteristic that
+What is an inquiry about the unseen? It was an unknown, unseen, unmeasured,
+unjudged, unclear characteristic, for the purpose of his wisdom, seeing,
+measuring, judging, clear, he asked a question, which was an inquiry about the
+unseen.
+
+What is an inquiry about the confluence of the seen? A characteristic that
 was known, seen, measured, judged, clear, and understood. He asked questions for
-the purpose of confluence with other wise men. This is a question of confluence
-of seen.
+the purpose of confluence with other wise men. This is an inquiry of confluence
+of the seen.
 
-What is the question of cutting off doubt? It was originally a jump-in (Sri
-Lanka version) doubter, jump-in doubter, and doubter: "Is that so? Isn't it
+What is an inquiry for the cutting off of doubt? A leap into skeptics (??),
+jump-in doubter (??), and born doubter: "Is that so? Isn't it
 true? what is it then? How is it? He asks questions for the purpose of severance
-of doubt. This is an inquiry of severance of doubt. These are three types of
+of doubt. This is an inquiry for the severance of doubt. These are three types of
 queries.
 
-The next three kinds of inquiry: human inquiry, non-human inquiry, and human
-inquiry. What is a human inquiry? People asked [questions] after they went to
-see the Buddha and the World-Honored One: asked the bhikkhus, asked the
-bhikkhus, asked the Uvasai, asked the Uvayis, asked the kings, asked the
-Kshatriya, asked the Brahmins, and asked Vaisha Ask, ask the dhamma, ask the lay
-people, ask the monks, this is a human question.
+The next three kinds of inquiry: human inquiry, non-human inquiry, and inquiry
+of the person.
+
+What is a human inquiry? People asked questions after they went to
+see the Buddha, the World-Honored One: asked the bhikkhus,
+asked the Uvasai, ...Uvayis, ...kings, ...Kshatriya, ...Brahmins, ...Vaisha.
+Asked about the dhamma, asked the lay people, asked the monks, this is a human
+inquiry.
 
 What is an inhuman inquiry? The non-people asked questions after they went to
-see the Buddha and the Blessed One: asked the dragons, asked the golden-winged
-birds, asked the yasha, asked the asuras, asked the gandapo, asked the kings,
-asked the Indra, asked the Brahmas , Asked the gods, this is an inhuman inquiry.
+see the Buddha, Blessed One: asked the dragons, ...golden-winged birds, yasha,
+asuras, gandapo, kings, Indra, Brahmas, gods, this is an inhuman inquiry.
 
-What is the inquiry of the huaren? All the physical bodies and limbs of the
-world-zun’s creative intentions are not lacking in the roots. The
-transfiguration asks questions after seeing the Buddha and the world-zun, and
-the world-zun answers [him]. This is a trans-human inquiry. These are three
+What is the inquiry of the person? All the physical bodies and limbs of the
+World-Honored One's creative intentions are not lacking in the roots. The
+transfiguration(??) asks questions after seeing the Buddha, the Blessed One, and
+the Blessed One answers him. This is a trans-human inquiry. These are three
 types of queries.
 
 The next three kinds of inquiry: inquiry for one's own benefit, inquiry for the
-benefit of others, and inquiry for the benefit of both. The next three
-inquiries: inquiries about current interests, inquiries about future interests,
-and inquiries about highest interests. The next three kinds of inquiry: inquiry
-of the benefit of no fault, inquiry of the benefit of no pollution, and inquiry
-of the pure benefit. The next three types of queries: [about] past queries,
-future queries, and current queries. The next three inquiries: [about] inquiries
+benefit of others, and inquiry for the benefit of both. The next three:
+inquiries about current interests, inquiries about future interests,
+and inquiries about the highest interests. The next three: inquiry
+for the benefit of no faults, inquiry for the benefit of no pollution, and inquiry
+for the pure benefit. The next three: [about] past queries,
+future queries, and current queries. The next three: [about] inquiries
 within oneself, inquiries outside oneself, and inquiries within and outside
-oneself. The next three inquiries: [about] good inquiries, unkind inquiries, and
-non-remembering inquiries. The next three types of queries: [about] Yun, Jie,
-and Chu. The next three inquiries: [About] Inquiry about Mindfulness, Inquiry
-about Diligence, Inquiry about Spiritual Content. The next three kinds of
-inquiry: [about] the root inquiry, the strength inquiry, the enlightenment
-inquiry. The next three kinds of inquiry: inquiry of Tao, inquiry of fruit,
-inquiry of Nirvana.
+oneself. The next three: [about] good inquiries, unkind inquiries, and
+non-remembering (unbearable??) inquiries. The next three: [about] Yun??, Jie (community??),
+and Chu(??). The next three: about mindfulness,
+about diligence, about spiritual content. The next three: about the root,
+the strength, and the enlightenment.
+The next three: about the Path, the Fruit, and Nibbana.
 
-"I ask you", "I ask you; I beg you; I beg you; you make me clear; please tell
-me" to ask you for me. "World Zun", which is synonymous with respect... Anri
-(pseudonym) who testified, namely "World Zun". "Please tell me this", please
-say, please explain, please teach, please inform, please build, please uncover,
-please analyze, please clarify, please explain. "For the Lord, I ask you, please
-tell me this.
+"I ask you", "I ask of you; I beg you; please make me clear; please tell
+me". "Blessed One", which is synonymous with respect... Anri
+(pseudonym) who testified, namely "Blessed One". "Please tell me this", please
+say, please explain, please teach, please inform, please build (??), please uncover,
+please analyze, please clarify. "Blessed One, I ask you, please tell me this."
 
-Because of that, the brahmin said:
+Because of that, the Brahmin said:
 
-"[Venerable Fulou Nage like this:] Those who do not disturb, the seer of the
-roots, come with questions in need,
-
+[Venerable Fulounaga like this:] Those who are undisturbed, the seer
+of the roots, come with questions in need,
 The immortals, people, Kshatriyas, Brahmins,
-
 Are there many sacrifices in the world here? Lord, I ask you, please tell me
-this. "
+this.
+
+----
+CHECKPOINT
+----
 
 13. [World Zun: "Fu Lou Na Ge!"] Any of these fairies, people, Kshatriyas,
     Brahmins and gods,

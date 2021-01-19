@@ -55,7 +55,7 @@ Do not consult, do not enter or the world is eternal again
 Truth, the other is empty, this vision is understanding, the desert of vision, evil
 Tingling, concussion, blindness, distress, annoyance, inflammation
 With, not to disappoint. Not for the sake of cure. Not for special feeling.
-Not for the sake of appeasement. It is not for the sake of understanding, it is for the sake of nirvana
+Not for the sake of appeasement. It is not for the sake of understanding, it is for the sake of Nibbana
 I do not take views, I do not consult. Should not be taken again. Should not be consulted,
 Should not be entered. Again the world is ugly, the world has an end, the world is an end
 Otherwise, that life is that body, and that life is another body. The animal is dead
@@ -63,7 +63,7 @@ Arises, the animal does not rise from the dead, the animal does not rise from th
 No, this is the truth, the rest is empty.
 Vision Desert, Evil Thorn, Vision Vision, Blindfolded, Suffering, Trouble
 Acute, inflammatory, not for frustration, not for cure. Special knowledge
-Not for the sake of appeasement. Not for the sake of understanding but for the sake of Nirvana
+Not for the sake of appeasement. Not for the sake of understanding but for the sake of Nibbana
 If I see the derivation of non-existent views, I will not take the view, I will not consult,
 Do not enter, do not take again. Should not be consulted. Should not be entered
 That is.
@@ -503,7 +503,7 @@ From the Vedas the nation went to the brink of death and came to the edge of the
 Went to the end of the term went to the end of the end of the tone
 Tana reached the cave passed the cave reached the refuge took refuge Sarana reached
 Abhay passed away Abhay passed away Achchutha passed Achchutha passed away Forgot
-Amatha attained Nirvana, Nirvana attained Nui. Of doctors
+Amatha attained Nibbana, Nibbana attained Nui. Of doctors
 Went to the extreme, the doctor. If the doctor or the doctor went to the extreme.
 Named Vedagu because he knew seven Dhammas. Self-awareness is what is known. Suspicion
 Is known. The celestial body is what is known. Lust is what is known.

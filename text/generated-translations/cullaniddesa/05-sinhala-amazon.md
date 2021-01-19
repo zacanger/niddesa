@@ -220,7 +220,7 @@ In the image current, or in the image, except for one of the treasures of the co
 If any person is born in the relic, then the name and the image of this.
 Competed. Ast, destroyed, and the earth paths are wise
 If one is born from the reproach of the consciousness, then the names of the figures of the connoisseur,
-Determined and Rate Nirvana
+Determined and Rate Nibbana
 And the prophecy of the last Conscious of the Piranivenian Rahthan,
 This is the name of the name, and the constipation, and the other.
 

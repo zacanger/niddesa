@@ -156,7 +156,7 @@ When all that came and sought was realized by heart. Therefore it is said to be 
 
 [APZ 83.6] (# apz83.6) # apz83.6 .ref .apz} "The vote actually took place one night
 An uninterrupted confluence comes to mind, a particular nightmare
-Nirvana is preached and preached as something in between, that's all
+Nibbana is preached and preached as something in between, that's all
 That's right. Not in any other way. Therefore it is said to be real. "The ballot, real
 Whatever you say, do it. That's what Yamzee does. Thus
 Realist Realist Realist Realist. Therefore it is said to be real.

@@ -63,7 +63,7 @@ Dim the Buddha, who has crossed the saddle.
 
 [Msdiv 171] (#msdiv171) {#msdiv171 .ref .msdiv} "Yamsei Wakalitham
 Alavi Secrets and Bhadharudiya Yamsilk, Alavi Gawuthamathathemi Yamsili, and You
-You shall go to Nirvana, for the money of the wisdom.
+You shall go to Nibbana, for the money of the wisdom.
 
 [Msdiv 172] (#msdiv172) {#msdiv172 .ref .msdiv} "This of the Munindians
 I heard the word and was greatly impressed. Sambuddha Tema
@@ -74,7 +74,7 @@ Protustive SealsLaythseh hath left a question. Questionnable
 Infants.
 
 [Msdiv 174] (#msdiv174) {#msdiv174 .ref .msdiv} "Unshaking Change from Ragad
-There is no overheat that resembles a Buddha that is not, in that way, Nirvana
+There is no overheat that resembles a Buddha that is not, in that way, Nibbana
 Go to the relic. There is no doubt here. Thus behold me, the marrow is heartened.”
 
 Parayanugithigatha Nitththatha.

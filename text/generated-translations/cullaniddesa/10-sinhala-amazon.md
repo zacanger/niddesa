@@ -169,7 +169,7 @@ Wei. The Munites came to the Whips and looked for the four Aryan ways
 They are. They know the name name and the image, as they have been figuring out the four Aryan path,
 Since the name name and the image is known, the names and the images will be in the yard.
 Machinery rates are drained by decoding. Got into meaning and not go to frequency
-is the ratio of Zhisha Nirvana from the host, which does not go to the number. To give up
+is the ratio of Zhisha Nibbana from the host, which does not go to the number. To give up
 absent. Do not go to the prophecy. Goes or Brahmina or
 Doctor or holy or domesticity or prophecy or God or
 Ministri or Rupie or Arupey or Sagna or Sagna or Nevassava
@@ -196,7 +196,7 @@ It is this doctrine that is established. Therefore, Brahmana said:
 [Msdiv 45] (#msdiv45) {#msdiv45 .ref .msdiv} (6-8)
 
 [APZ 45.1] (#apz45 .1) {#apz45 .1 .ref .apz} "Image size
-“No” is the Ratiosha Nirvana relic to Puraniyahu
+“No” is the Ratiosha Nibbana relic to Puraniyahu
 No image size. No amount of pain. No amount of signals, editor
 No Size, No Conscious, Not College, Not Conscious, Conscious,
 Originally, the birth was born, the fire of the name of wisdom. Subsequent

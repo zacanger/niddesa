@@ -127,7 +127,7 @@ The heart rested from all the ends outside of the hills. The grit
 relaxation.
 
 [APZ 7.38] (#apz7 .38) {#apz7 .38 .ref .apz} Which is the sub rest? Clasios
-Masses, as well as customized saws. Subfebral rest for Nirvana
+Masses, as well as customized saws. Subfebral rest for Nibbana
 says. Whoever conjugated all editors and lost all their ends and cravings
 It also turns out that there were noalleles in the tubular, and the bands were lost. This is the subtleic break
 Body rest and pure hearts to remove the body to the alumnas of the Intellectureous
@@ -212,9 +212,9 @@ It is not possible to get rid of” the spheres said.
 Undone sin cleanses oneself. They are not separately the good and the impurity
 Cleaner. The other one does not clean the other. Mesili Mutual
 Not redeemable.” Wadarana was received by the chapters. “Brahman,
-Nirvana is in this way. The Nirvana road exists. Samadan
+Nibbana is in this way. The Nibbana road exists. Samadan
 I am the one who will do. Nevertheless, I am advised by the patronage
-And some of my men will expect nirvana, which will be carried out.
+And some of my men will expect Nibbana, which will be carried out.
 Someone does not expect. Brahman, here what am I going to do,
 Brahman is the one who is prophesy the way. Budurajathemama says the way. Himself
 Adhered to Nahu. It is impossible to get rid of the mucosa.
@@ -476,7 +476,7 @@ It says that the probability is because of the prophecy. Stuck
 Discreet in mass, discreet in reins, discreet in institutions, prophesy
 Discreet in the conference, Discreet in the week table, in the main of the resource
 Discreet, Discreet in Didhi Base, Discreet in Bocentranges
-Discreet, discreet in roads, discreet in productions, discreet in Nirvana
+Discreet, discreet in roads, discreet in productions, discreet in Nibbana
 The discreet said: The life of men is few. Life is the mother. Tikter. For a while
 Periodical. Not far away. Life is not caprical. said: Thus the saw.
 Speak thus. Thus proclaimed and thus instructed.
@@ -550,7 +550,7 @@ How is this craving mother (iii) visual motherhood? Wickthi Waithi
 Vision Decimal mythology, an extreme view of a particular object
 The viewpoint, the viewpoint desert, the viewpoint, the viewpoint,
 Ideology opticular symmetry, granulation, reparation, entry parametral,
-Wrong Way, Myth Way, Liar Nirvana, Wrong Way,
+Wrong Way, Myth Way, Liar Nibbana, Wrong Way,
 Vipery Graph, Myth Graph, Wrong Thing Is Right About Something
 This is the vision of the vision of December.
 

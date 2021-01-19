@@ -128,7 +128,7 @@ It is the wise man who abandons the material things that he takes as selfishness
 He will leave suffering in this world as a disease of the nation.
 
 [Msdiv 82] (# msdiv82) {# msdiv82 .ref .msdiv} "To this word of the Maharshi
-I am happy. Bhavat Gautama, Nirvana spoke to us well.
+I am happy. Bhavat Gautama, Nibbana spoke to us well.
 Certainly the Blessed One removed suffering. Also this Dhamma is you
 Known by.
 
@@ -156,7 +156,7 @@ Ayushmat Dhotaka asked.
 
 [Msdiv 87] (# msdiv87) {# msdiv87 .ref .msdiv} "Thotaka, if so in this Sasana
 Defilement with mindfulness with defilement. He is silent on hearing this
-Discipline in Nirvana, ”the Blessed One said.
+Discipline in Nibbana, ”the Blessed One said.
 
 [Msdiv 88] (# msdiv88) {# msdiv88 .ref .msdiv} "I am in the divine human world
 I see a Brahmin holding a posture without ragadhi. I adore you with full eyes
@@ -282,7 +282,7 @@ The world of knowing and behaving consciouslyShould lust be eradicated, that is 
 Please speak to Munitha, "said Ayushmat Hemaka.
 
 [Msdiv 111] (# msdiv111) {# msdiv111 .ref .msdiv} "Hemakaya, the form of this world
-Abstinence from desire for goals is the attainment of the state of Nirvana, which is not Chuta.
+Abstinence from desire for goals is the attainment of the state of Nibbana, which is not Chuta.
 
 [Msdiv 112] (# msdiv112) {# msdiv112 .ref .msdiv} "Anyone with a mind knows this
 The world is the sanctuary of the Pirinivas, but those who see are the lusts of the world.
@@ -321,7 +321,7 @@ When there is a terrible flood, there is filth and death
 The Blessed One said,
 
 [Msdiv 119] (# msdiv119) # msdiv119 .ref .msdiv} "Ragadi nothing,
-I say that this great help without taking is Nirvana which eliminates filth and death.
+I say that this great help without taking is Nibbana which eliminates filth and death.
 
 [Msdiv 120] (# msdiv120) {# msdiv120 .ref .msdiv} "Some kind of conscious animal
 Knowing this, they did not succumb to the temptation of Nibbanahu in this very soul. They belong to Mara
@@ -341,7 +341,7 @@ The glorious sun shines like the earth in glory. Great wisdom is true
 Here is the doctrine of the birth and elimination of filth, which I have somewhat wise
 I know, I say so. "
 
-[Msdiv 123] (# msdiv123) {# msdiv123 .ref .msdiv} Jatukannaya Nirvana Nirvana
+[Msdiv 123] (# msdiv123) {# msdiv123 .ref .msdiv} Jatukannaya Nibbana Nibbana
 The antidote is fearlessness, knowingly taking what is taken for granted, and what should not be taken
 Not at all. Let there be no ragadi. Away from the lust of lusts.
 
@@ -392,10 +392,10 @@ The Dhamma that kills the ignorance that leads to pure, Arahant enlightenment
 (Silence). "
 
 [Msdiv 133] (# msdiv133) {# msdiv133 .ref .msdiv} "What is the bond of the world,
-What is behavior, and what is nirvana by deprivation? "
+What is behavior, and what is Nibbana by deprivation? "
 
 [Msdiv 134] (# msdiv134) {# msdiv134 .ref .msdiv} "Nandi is the lust in the world
-Binding. Argument is temptation and nirvana is the elimination of desire. "
+Binding. Argument is temptation and Nibbana is the elimination of desire. "
 
 [Msdiv 135] (# msdiv135) # msdiv135 .ref .msdiv හට How to behave consciously
 Blessed are we who have come to inquire of the loss of consciousness

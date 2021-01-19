@@ -160,7 +160,7 @@ Eight. Ashtaloka Dharmayoi is a nine locals. Noththawasayoi Loka Decade. Dealer 
 Twelve Lorks. Twelve institutions. Eighteen locals are octaraharaharahua.
 
 [APZ 104.4] (#apz104 .4) {#apz104 .4 .ref .apz} "Went to the End of Location” is
-He went to the corner of the locker. went to extremes. Nirvana
+He went to the corner of the locker. went to extremes. Nibbana
 Gone. He has finished the rain, has the habitual travel
 (In Mahaniddeya (3-7) 6 (ii) should be applied) There is no race death. to him
 There is no revival. Bhavavea is called Bhatiya, which exceeds the Bhatiya. Karmabhaya too
@@ -323,7 +323,7 @@ A resource came to the compassion, and was single.
 [APZ 107.9] (#apz107 .9) {#apz107 .9 .ref .apz} "Darkness” is
 Bags of Ragandhakara, Dhishandikara, Mohanadhakara, Optics
 Darkness, Clayshness, Visible Darkness, Blessness of Eyes, Unknowing
-To do, reproach the prophecy, do not cause nirvana, lose the thing.
+To do, reproach the prophecy, do not cause Nibbana, lose the thing.
 Dirty was fertilized. Dehenakalaseem. 'Hid' is a rock of the spheres
 He was working in the Chateplace.
 
@@ -352,7 +352,7 @@ The Truths of the Three Truths of the Doctrines that they had not been figuring 
 Said. Then came the Almighty. Preaching doctrine came to fruity
 Done. Doctrine is the beginning good, the middle good, the late good defined genitals
 All with pure Brahmachikuya i.e. four weeks (17-10) 7 (ii)
-Should be applied.) Aryan Octanginal Road, Nirvana Nirvana Gamini Reaction
+Should be applied.) Aryan Octanginal Road, Nibbana Nibbana Gamini Reaction
 Said. Dezzana hath made. Panted, laid, opened, divided, protruded
 Seer, Yu.
 
@@ -369,8 +369,8 @@ Dynamics, Genesis Decay, Dawathy, Conservation, Discount.
 
 [APZ 108.3] (#apz108 .3) {#apz108 .3 .ref .apz} The mass of "Etitid”,
 Saws and Ethi (trickle), Ethi provoking Ethi,
-Exclusion of ETHI is an impeccable Nirvana. “There is no parable anywhere for a while.”
-'Someone 'means Nirvana. No parable is something to equate
+Exclusion of ETHI is an impeccable Nibbana. “There is no parable anywhere for a while.”
+'Someone 'means Nibbana. No parable is something to equate
 No 'something' is any place in education or
 There is no parable of the exteriorist or academic exterior—or home. Hence
 Then said the Lord of the stratified strations:
@@ -524,9 +524,9 @@ What is a doctrine born for some reason, as the wisdom is the money, and all tha
 Constant in order to maintain the incarnate, and you in the epidermis
 From the money of the person, you and the leavers belong to the leatheretess, the leavers belong to the leavers
 The thing or the area is the clayos, the masses, the editors, and the saws, 'that is.'
-Aruthana tells Nirvana.
+Aruthana tells Nibbana.
 
-[APZ 117.2] (#apz117 .2) {#apz117 .2 .ref .apz} All A Nirvana
+[APZ 117.2] (#apz117 .2) {#apz117 .2 .ref .apz} All A Nibbana
 The editors settled that all the earmarks were compacted by the name of the crazvana tuyamveda,
 Viragama Namveda, Nirodha, Nirwana 'from the area belonging to the leatheya
 Send' is from the area belonging to the leavers, Ethera South, Ethera
@@ -623,7 +623,7 @@ Jara, Deathes, Deaths, Grief, Domanasa, Synapasa Deserts
 traverse. Ragh crosses from the desert with malice, moha, vision, clayey,
 Risky, cross from the desert. Raga, Maawanen, Malesha
 The Maha is crossed by the Maha Maha Maha Maha. visuous
-The name crosses from the High Lounges. Nirvana is the territory of Nirvana.
+The name crosses from the High Lounges. Nibbana is the territory of Nibbana.
 This is the one who has succeedeth.
 
 [APZ 119.5] (#apz119 .5) {#apz119 .5 .ref .apz}
@@ -645,30 +645,30 @@ Whoa. Therefore said the stratified strations.
 [Msdiv 120] (#msdiv120) {#msdiv120 .ref .msdiv} (17-21)
 
 [APZ 120.1] (#apz120 .1) {#apz120 .1 .ref .apz} "Will not change permanently
-Nirvana” is 'not changed'tells Nirvana. All of a certain
+Nibbana” is 'not changed'tells Nibbana. All of a certain
 A comparison of editors has been a pause that dispelled the craving
-Nirvana. If it does not differ from lust. Do not change from malice. braintance
+Nibbana. If it does not differ from lust. Do not change from malice. braintance
 By thinking that it has great and skin properties, with the spread of hate,
 By jealousy, by deception, by jealousy, by congestion
 From all the glamour of all the glamour, the most impeccably
 From all the burning of all the stains, from all the collections
-Nirvana does not change, the statue is the firmware.
+Nibbana does not change, the statue is the firmware.
 
 [APZ 120.2] (#apz120 .2) {#apz120 .2 .ref .apz} "Does not have a parable?” Going
-'Yamakata' refers to Nirvana. 'No parable 'means no equalment
+'Yamakata' refers to Nibbana. 'No parable 'means no equalment
 Where is nowhere in education or externally.
 
 [APZ 120.3] (#apz120 .3) {#apz120 .3.ref .apz} "Go Home
 No doubt” is the prescribed word, 'in that way'. The unmistakable word means
 Two is the word without. is the real word. The debugging word. The unopposed word.
 I will come, 'I will go from the woman'. I will make the renews. Ready.
-'There is no doubt, 'here' is in Nirvana. Doubt is a query
+'There is no doubt, 'here' is in Nibbana. Doubt is a query
 There are no two comments in the form of a nonsense. Not scientific, not received. Continction,
 Originally, there was a salient. The plant, the consonant, the desire to be born, the fire called wisdom
 burnt.
 
 [APZ 120.4] (#apz120 .4) {#apz120 .4 .ref .apz} "The Redeemed Mist” is
-Nirvana, the marrow of Nirvana, the garment of Nirvana
+Nibbana, the marrow of Nibbana, the garment of Nibbana
 Behold me. Therefore said the stratified strations.
 
 Parayanugithigathaniddezno Attabarasamo.

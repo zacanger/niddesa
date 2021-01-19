@@ -12,7 +12,7 @@ I will see.”
 
 [APZ 23.2] (#apz23 .2) {#apz23 .2 .ref .apz} "The Great Nerogi” is the Greater
 Arrived into the sanctuary, came into the sanctuary, came into the sanctuary
-I see those who have come to Nirvana who have come to be unpretentious.
+I see those who have come to Nibbana who have come to be unpretentious.
 
 [APZ 23.3] (#apz23 .3) {#apz23 .3.ref .apz} "Conveyor View
 Is the Holy of Man” Images from Chakurconsciousness and View of Man

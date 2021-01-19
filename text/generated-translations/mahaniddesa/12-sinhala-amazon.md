@@ -132,9 +132,9 @@ Say, Conversor.
 [Msdiv 119] (#msdiv119) {#msdiv119 .ref .msdiv} (12 - 7)
 
 [APZ 119.1] (#apz119 .1) {#apz119 .1 .ref .apz} "True there is no single second”
-It is the fact that says that it is the grievous incarnate nirvana. All of a certain
+It is the fact that says that it is the grievous incarnate Nibbana. All of a certain
 All the editors have constipated the cravings that have depleted the cravings
-If Nirvana says the Realidu or the same Truth. Intational
+If Nibbana says the Realidu or the same Truth. Intational
 The Truth is the Lady's Octane Way, if the Duvanki Nirodha Gamini Reaction That
 How, (ii) a sense of view, a sense of conception, a word of an innate, a sense
 industry, a religion, a tradition business, an award, an award
@@ -182,8 +182,8 @@ According to the saws, what he hath fenced.
 Namity” is the most intuient and other other people who are most intoxicating
 Napness. “Except from the signal (says a gander) is
 The same fact that there are frequent gangs, except for sagna, tells the story. Proposes.
-Progresses. The grievous Nirvana is a congruent of all those editors
-It is Nirvana, which is not the crazed clad that disposed of all the elbows
+Progresses. The grievous Nibbana is a congruent of all those editors
+It is Nibbana, which is not the crazed clad that disposed of all the elbows
 Reverse or say the same fact. The pathways are the intrinsic truths. grieving
 The reactionary of disenchantment is the Lady Octangal Way How That, (
 (12-7) 1 (ii) shall apply)

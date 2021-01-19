@@ -196,7 +196,7 @@ The geniuses say, "The geniuses are the geniuses of certain masses in the Dhatu 
 The clever ones are the masters of the institutional doctrines and the masters of the antiquity doctrines
 The masters of the Satipatthnas are the masters of the Sam‍dha Pradhanas
 Those who are good at sense dharmas are good at power dharmas and they are good at bodhisattva dhammas
-The masters of the path Dhammas are the masters of the fruitive Dhammas and the masters of Nirvana
+The masters of the path Dhammas are the masters of the fruitive Dhammas and the masters of Nibbana
 That is. Those geniuses are visually impaired, visually impaired, visually impaired
 Purity of Holiness Purity of Immaculate Conception
 Liberation is neither liberation nor declaration. That is, without practice.

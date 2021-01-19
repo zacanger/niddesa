@@ -34,14 +34,14 @@ Please, "You" means the Blessed One. Say the Dhamma
 The Dhamma of 'Please' is good in the beginning, good in the middle, good in the end, meaningful
 Consonant, All-Perfect, Pure Celibacy, Four
 Satipatthnas are the four main ones, the four limbs are the five senses,
-The Pentacles, the Sapta Bodhisattvas, the Noble Eightfold Path, Nirvana Nirvana
+The Pentacles, the Sapta Bodhisattvas, the Noble Eightfold Path, Nibbana Nibbana
 Tell me, Gamini Pratipada, tell me, preach,
 Impose, please keep.
 
 [APZ 54.2] (# apz54.2) # apz54.2 .ref .apz} "The Lord drove away lust
 ATo 'lust' means' lust ', the lust of idols is the lust of Dhamma'
 Is the cessation of cravings, the cessation of cravings, the cessation of cravings, the nectar
-Nirvana is. What does "Muni" mean to wisdom? (Great Night (3-1) (3)
+Nibbana is. What does "Muni" mean to wisdom? (Great Night (3-1) (3)
 Should be used. Muni was also beyond the web of desire.
 
 [APZ 54.3] (# apz54.3) # apz54.3 .ref .apz} "Knowing something and behaving consciously"
@@ -91,15 +91,15 @@ Entertainment "is the lust of the lusts, if there is any lust in the lusts
 Is there lust, is there lust, is there lust, is there lust?
 Is there lust, is there lust, is there a flow of lust, is lust,
 Lust, orgasm, and inhibition of lust. 'Voting fun' is voting raga
-Prahana is the suffocation of the electorate, the immortal Nirvana. Achchayutha is Nirvana
+Prahana is the suffocation of the electorate, the immortal Nibbana. Achchayutha is Nibbana
 The term means. The tonal word is lena, the word sarana is the value word. Permanent polarity
 Is the universal unchanging doctrine. So the Blessed Ones declared.
 
 [Msdiv 56] (# msdiv56) {# msdiv56 .ref .msdiv} (8-4)
 
 [APZ 56.1] (# apz56.1) {# apz56.1 .ref .apz} "Those who remember know this"
-The immortal Nirvana of "this" is the place where all the edits are appeased
-Knowing that Nirvana is the abstinence called Viraga, which has removed the subconscious, the decision is made by looking at the skin
+The immortal Nibbana of "this" is the place where all the edits are appeased
+Knowing that Nibbana is the abstinence called Viraga, which has removed the subconscious, the decision is made by looking at the skin
 In short, all editors know that impermanence is impermanent and decide,
 Revealing that all the editors are miserable and all the Dhammas are infinite
 Determine if there is any causal doctrine to prevent it all
@@ -115,7 +115,7 @@ Is there a doctrine born out of some causation in order to prevent it all?
 The Dhamma that is seen to exist, the Dhamma that is understood, the Dhamma that is compared, the Dhamma that is determined
 That is. Especially since the twin is the twin of lust, the twin is hatred
 (Applied in Mahaniddasa (3-4) 2. P. 1578) All Dhammas
-Because it is calm, because it is nirvana, because it is soothing.
+Because it is calm, because it is Nibbana, because it is soothing.
 
 [APZ 56.3] (# apz56.3) # apz56.3 .ref .apz} "They are always twins."
 Is hatred because it excludes lust (because it excludes it) in the Maha Niddesa

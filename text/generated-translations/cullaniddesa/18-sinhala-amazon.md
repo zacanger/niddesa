@@ -156,7 +156,7 @@ Arrived, searching for everything was done by heart. Therefore, it says that
 
 [APZ 83.6] (#apz83 .6) {#apz83 .6 .ref .apz} "Chunya was raised some night
 Whether a reviled tradition comes to the Samples, a certain night's reproach
-Do you say something in the meantime, from Nirvanasadhara, and all that
+Do you say something in the meantime, from Nibbanasadhara, and all that
 So. Not from anatomy. Therefore, it says that “Chunya, ThatalaThou shalt say, and do so. Do it say so. Thus
 The realist is the reality of the reality. Therefore, it says that
 

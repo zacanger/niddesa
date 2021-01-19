@@ -132,9 +132,9 @@ That is to say, in practice.
 [Msdiv 119] (# msdiv119) # msdiv119 .ref .msdiv} (12 - 7)
 
 [APZ 119.1] (# apz119.1) # apz119.1 .ref .apz} "The real one is second to none"
-Says that the truth is one, that is Nirvana, which prevents suffering. All of that
+Says that the truth is one, that is Nibbana, which prevents suffering. All of that
 Editions quenched all defilement cravings quenched non-attachment
-The path is called Nirvana again or the only truth. Neurological
+The path is called Nibbana again or the only truth. Neurological
 The Truth and the Prevention of Suffering Gamini Pratipada is the Noble Eightfold Path.
 How, (ii) Samyak Vision, Samyak Concept, Samyak Word, Samya
 Industry is a way of life, a way of exercise, a way of memory, a way of life
@@ -182,8 +182,8 @@ The follower says what he understands and puts it into practice.
 Natthahumaya "means many other truths which are many nonsense
 Or not. "Except for the sign, it is the constant in the world."
 It tells the only truth in the world that is often taken for granted other than the signal. Declares.
-Uses. Nirvana is the antidote to suffering
-Nirvana is the so-called abstinence from lust, which removes all defilements
+Uses. Nibbana is the antidote to suffering
+Nibbana is the so-called abstinence from lust, which removes all defilements
 Repeat or tell the same truth. The truth of the road is the theoretical truth. Suffering
 How is the antidote to annihilation and the Aryan octagonal path, (
 (12-7) Paragraph 1 (ii) should be applied)

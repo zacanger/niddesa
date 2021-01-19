@@ -113,17 +113,17 @@ The Lord declared.
 No seizures "in Kinchana (4-11) 1 applies from Kinchana
 Should.) Strictness means lust (ii) whether there is any lust or attachment
 That's it. Severity of seizures, seizures,
-Immortal Nirvana (iii) This is help. There is no other. "
+Immortal Nibbana (iii) This is help. There is no other. "
 Security is a quality. No other means there is no other help. Infamous,
-This is the greatest, foremost, help. Means "I call it Nirvana."
+This is the greatest, foremost, help. Means "I call it Nibbana."
 'Vanaya' says to lust. (10-4) 1 (ii) should be applied if there is a disease.)
-The nectar of Nirvana is the cessation of cravings, the cessation of cravings, the cessation of cravings.
+The nectar of Nibbana is the cessation of cravings, the cessation of cravings, the cessation of cravings.
 So 'thus' is the vowel joint. Vowel intercourse. Tone completion.
 To spell. To degrade. "Say" means preach, enact, lay,
 I open, I divide, I publish, I declare. "It simply came to our notice then
-Knowing the fact that "this" means immortal Nirvana
+Knowing the fact that "this" means immortal Nibbana
 Whether there is a consolation or a renunciation of all subconsciousness, called virulence
-Named Nirvana. "Knowing" means knowingly looking at and deciding
+Named Nibbana. "Knowing" means knowingly looking at and deciding
 All rights reserved. (1-8) 3 should apply.) Anything
 Even if there is a doctrine of causation, it is known to exist for the prevention of all, equally
 Wait, decide, that is. "Someone" is a deserving slacker.

@@ -1286,9 +1286,9 @@ So the Buddha prophesed on that soil.
 [Msdiv 154] (#msdiv154) {#msdiv154 .ref .msdiv} (18-35)
 
 [APZ 154.1] (#apz154 .1) {#apz154 .1 .ref .apz} "To arrive at the objective
-What is the objective, says Nirvana. Something that
+What is the objective, says Nibbana. Something that
 All editors were compelled by the exclusion of all the subtleties, the craving was depleted
-Nirvana is the Nirvana, which is Viraganam. Receiving it in order to arrive at the objective
+Nibbana is the Nibbana, which is Viraganam. Receiving it in order to arrive at the objective
 Akushala, for the purpose of prophecy, to touch, to be prophesy, to touch
 By effort, strictly to take the vastinous doctrines, to provoking the doctrines
 With the courageous courageous incarnation of Kushal Dharma

@@ -45,8 +45,8 @@ Reverse, Good Reverse. Advertise is in doctrine
 The statue is the basis.
 
 [APZ 94.5] (#apz94 .5) {#apz94 .5 .ref .apz} "The Generation of Jharamathaya” is an amorphous
-Nirvana goes. A comparison of all those editors, all accolades
-Bhaa Lay Adda, a repositorized Viraganam Nirvana, which is the name of the craving
+Nibbana goes. A comparison of all those editors, all accolades
+Bhaa Lay Adda, a repositorized Viraganam Nibbana, which is the name of the craving
 shall go to the parathy of the jaramathah” shall come to the parathy of the jaramathah,
 See, the parter shall prophesy, and go.
 
@@ -55,7 +55,7 @@ What is this” is that these doctrines are brought to the age, and the jaarmora
 These dharies shall be brought to the street to cross. Hence
 Hence it goes to the Dhamma Schemes, therefore it is from that matter.
 By virtue, from that sleep, to this doctrine is to go to this pharatha 'road '
-is what tells Nirvana. The MaraThe category says. “Name” is the prognotation
+is what tells Nibbana. The MaraThe category says. “Name” is the prognotation
 Yai, the Constant is the name of Nirritability, and this one
 If knowing the meaning of the question and the doctrine is practiced in the doctrine of the jaramathah
 Therefore, the pharahana says that they are being brought to the nation.
@@ -177,8 +177,8 @@ says.
 [Msdiv 101] (#msdiv101) {#msdiv101 .ref .msdiv} (17-5)
 
 [APZ 101.1] (#apz101 .1) {#apz101 .1 .ref .apz} "HERE GET THERE” is
-Classicos and masses, as well as editorials. Etheraya Nirvana
-says. Nirvana is the name of Nirvana, which is called the pause of the cravings.
+Classicos and masses, as well as editorials. Etheraya Nibbana
+says. Nibbana is the name of Nibbana, which is called the pause of the cravings.
 
 [APZ 101.2] (#apz101 .2) {#apz101 .2 .ref .apz} "The Noble Way” is Aryan
 tells the octagonal road. (Here 17—3) 7 should be applied.) “Noble” is,
@@ -190,7 +190,7 @@ Ready.
 
 [APZ 101.3] (#apz101 .3) {#apz101 .3.ref .apz} "So Paradise”
 'So, 'is from that reason to the fact that it comes from sleep.
-The parathura is what tells Nirvana, the 'ion' tells the way. 'Saving '(This)
+The parathura is what tells Nibbana, the 'ion' tells the way. 'Saving '(This)
 is the adjustment of the tones. The order of the verses is indicated.
 
 Parayanaththuththugathanidadesno.

@@ -55,7 +55,7 @@ Should not enter, do not enter or redeemate the world here
 Truth, the other things are empty, this point of view, the desert of vision, evil
 Wrist, vision shock, vision bonding, suffering, trouble, roofing
 It is not for frustration. Not for pause. Not in order to feel intuitive.
-Not for constipation. Not for fade, Nirvana does not exist, nor does Nirvana look
+Not for constipation. Not for fade, Nibbana does not exist, nor does Nibbana look
 Do not take views, do not pardo. Should not be redone. should not be paralysed,
 Should not enter. The world is unreal, the world is a corner, the world is a corner
 Natta, That Life Is A SerryThe other life is the other body. The animal is killed
@@ -63,7 +63,7 @@ Raises, the animal does not emerge from death, the animal does not emerge from d
 Not this itself is true, the other is empty and this point of view,
 ideology, evil wrapping, ideology, ideology, distress, trouble
 There is a roofing, not for pause, not for pause. feeling of discernment
-Not in order, not in order to be constipated. Not for defecation, for Nirvana
+Not in order, not in order to be constipated. Not for defecation, for Nibbana
 Do not take the view, do not take the view, do not pardo,
 Do not enter, should not be redone. should not be paralysed. Should not enter
 Ready.
@@ -503,7 +503,7 @@ From the pains, the race jara went to the end of the death, and came to the end 
 The last state went to the end of the state and went to the end of the state.
 Sarana Divisional, Sarana Divisional, Lana Divisional, Sarana Divisional
 The molding of the sanctuary state was dissipated, the mold was dissipated in the state of the sanctuary
-It was Nirvana that Nirvana was prevalent. Vedators
+It was Nibbana that Nibbana was prevalent. Vedators
 To the extreme, the name of Vedagu. If you go from the verandruff or to the extreme.
 Since Dhamma is known, Vedagu is named. Spirit becomes knowable. Doubt
 Known Wei. Sealabbataparamu month is known. Lust becomes knowable.

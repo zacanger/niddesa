@@ -497,7 +497,7 @@ Omnipresence is a word that is taken literally. "Kamayo" is popularly known as K
 There are two parts, material lusts and filthy lusts (here 1 of the lustful recommendation 1
 (ii) Paragraphs 2 and 3 should be used)
 
-[APZ 175.3] (# apz175.3) # apz175.3 .ref .apz} "for their own nirvana
+[APZ 175.3] (# apz175.3) # apz175.3 .ref .apz} "for their own Nibbana
 Discipline "Discipline is one of the three disciplines
 Mental discipline is the discipline of super-wisdom. (2-4) 1 (ii) 2 used at the end
 Should.) This is the discipline of super-wisdom. "Their nibbana" is the quenching of their lust
@@ -573,17 +573,17 @@ Whether a good deed is as mind-boggling as a flag, this is supernatural.
 The one who leads to extinction is the one who is far away from the extreme. Is a separatist.
 Exodus means separation closes with an unrestricted mind.
 
-[APZ 177.4] (# apz177.4) # apz177.4 .ref .apz} "Nirvana minded
+[APZ 177.4] (# apz177.4) # apz177.4 .ref .apz} "Nibbana minded
 The human being "means that some person here gives alms and celebrates uposatha
 Karma is performed by drinking water and consuming water by the Pirivena
 Worship puts incense in the dagoba Destroys the dagoba
 Triad skills are accumulated not for a motive but for a genetic reason
 Fall not because of crisis, not because of nature, not because of samsara
-He tended towards Nirvana not for a reason but with the intention of separating it all
-He was a man who accumulated merits and thus attained Nirvana. Again or
+He tended towards Nibbana not for a reason but with the intention of separating it all
+He was a man who accumulated merits and thus attained Nibbana. Again or
 The mind retreats in all the ritual relics and gathers the mind for the sake of the nectar relic.
 (Raises) All editions quenched all defilement lust paid off
-There is a nirvana called Viraga called Nirodha, this is serenity, this is antiquity
+There is a Nibbana called Viraga called Nirodha, this is serenity, this is antiquity
 That is.
 
 [APZ 177.5] (# apz177.5) # apz177.5 .ref .apz} "Wise men because of lust
@@ -595,8 +595,8 @@ They do not meditate in order to regenerate
 In order to get rid of it again, in order not to have a fear again
 Meditation is more. "
 
-"They bow down to it in the hope of nirvana and give in to it.
-The Yamzee River reaches the middle of the ocean and they have established Nirvana
+"They bow down to it in the hope of Nibbana and give in to it.
+The Yamzee River reaches the middle of the ocean and they have established Nibbana
 වෙTh "means.
 
 [Msdiv 178] (# msdiv178) # msdiv178 .ref .msdiv} (15 - 9)
@@ -732,9 +732,9 @@ Says. (2-4) Paragraph 12 (ii) should be used) Whether the network of desires was
 If he is Muni,
 
 [APZ 181.2] (# apz181.2) {# apz181.2 .ref .apz} "Brahmin is still standing
-Godaya says to the immortal Nirvana. Something that appeased all the edits
+Godaya says to the immortal Nibbana. Something that appeased all the edits
 All birth defects were eliminated and cravings were extinguished
-Nirvana. Brahmana means (here (4-3) 1 used from the place of 'Brahmana'
+Nibbana. Brahmana means (here (4-3) 1 used from the place of 'Brahmana'
 Should) He who removes unrelated defilements says he is a Brahmin himself
 Landing means being on the island. Help is in place of safety
 Is in place is in sanctuary. Is in a non-moving location
@@ -1091,7 +1091,7 @@ Whether or not I say I fell. Does not express. Does not apply.
 [APZ 189.2] (# apz189.2) # apz189.2 .ref .apz} "Silent Disappeared
 He means "holy" because he is calm because he has the serenity of raga
 St. Name. Hatred-Mohaya (3-4) 1 should be applied from the place of lust.)
-Because there is serenity in all the akushala gatherings, because it is nirvana, it is gone
+Because there is serenity in all the akushala gatherings, because it is Nibbana, it is gone
 Since he is calm, he is a saint
 Aside. Habitat (paragraph 6-6) (paragraph 2 (ii) should be applied)
 It is called miserliness. This miserliness of one's being is born out of ignorance

@@ -1288,9 +1288,9 @@ So the Buddha then declared.
 [Msdiv 154] (# msdiv154) {# msdiv154 .ref .msdiv} (18-35)
 
 [APZ 154.1] (# apz154.1) ීම # apz154.1 .ref .apz} "To reach the objective
-There is semen that has begun, "says Nirvana, which is the goal. Something like that
+There is semen that has begun, "says Nibbana, which is the goal. Something like that
 All editions were appeased, all subdivisions were discarded, the craving subsided
-Nirvana is the so-called restraint. Receiving it in order to reach the goal
+Nibbana is the so-called restraint. Receiving it in order to reach the goal
 In order to transcend, in order to touch, in order to perceive, inauspicious
 In order to propagate the Dhammas, in order to acquire the Dhammas, with effort, strict
 With the courage that began with the courage that is not encapsulated in the virtues of prowess

@@ -23,7 +23,7 @@ Must.)
 Hikmennay is your word to be heard and heard and heard.
 Hickman in their own home. are three disciplins. Adhibiti precepts
 Indicates precepts, princts. (1-7) 2 From the place of 'hypothermia, '
-Should be used.) This is the precept of princes. Nirvana is one's own lust
+Should be used.) This is the precept of princes. Nibbana is one's own lust
 To extinguish hatred, to extinguish the brains to extinguish malice
 (Mahaniddesa 14—5 (2) 'Shanthawathu' is to 'extinguate' and lust
 Should be used from 1787) in order to be compelled in all collectors
@@ -58,7 +58,7 @@ There are three disciplins in the house. Adhibitory precepts, adhibitory precept
 Ready. (1-7-2) hyperthermiaFrom the point of view and should be applied to 3.) The Superintendent
 precept.
 
-[APZ 31.4] (#apz31 .4) {#apz31 .4 .ref .apz} "own Nirvana is”
+[APZ 31.4] (#apz31 .4) {#apz31 .4 .ref .apz} "own Nibbana is”
 In order to extinguish lust (14—5 (2) of the Great Niddeesa 14—5 (2) 'Shanthawathahu' is to 'extinguish'
 Should be used from discrimination and lust. 1787)
 
@@ -114,7 +114,7 @@ are the spheteries. Shakha, from the plant,
 The wealth of the reallized or hardened gentleman is true. 'Shakh' name. These riches to Him
 WEth. Which is that? Siral Wealth, Sal Wealth, inRi Wealth, Ortapal Wealth, Grade
 Wealth, Threat Wealth Pledge Wealth, Satipatana Wealth, Lead Wealth, Negative Wealth
-Wealth, Inland Wealth, Power Wealth, Boddha Wealth, Road Wealth, Fruit Wealth, Nirvana
+Wealth, Inland Wealth, Power Wealth, Boddha Wealth, Road Wealth, Fruit Wealth, Nibbana
 Wealth, thus, the great prong was instilled from the world, the rich.
 The name of the plant. Not alarmed because fisheries are not afraid because they are a man champion
 Because, because there is a lower Lomharsha, because the innate fear is.
@@ -153,9 +153,9 @@ They do not clean themselves separately.” This is the Trusts
 Dedication by.
 
 [APZ 33.12] (#apz33 .12) {#apz33 .12 .ref .apz} "Brahman from the epidermis
-Nirvana stands. Nirvana Way stands. Stay away, my auditorium
+Nibbana stands. Nibbana Way stands. Stay away, my auditorium
 Some of the recipients who have been admonished:
-Even if you get Nirvana and not get some, here
+Even if you get Nibbana and not get some, here
 What will I do? Block the road, knowing the Brahmana Thathagathemama road
 Dekanakara. The people who adhered to by himself are rid of him.
 
@@ -167,9 +167,9 @@ A man or a man. Locuwa is Hell Location (1-1) 1 (ii)Applied to
 Must.)
 
 [APZ 33.14] (#apz33 .14) {#apz33 .14 .ref .apz} "The doctrine is also known
-(ii) A particular doctrine says to Nirvana.
+(ii) A particular doctrine says to Nibbana.
 Thing is the compilation of all editors, the compilation of all earners, the cravings
-Kayanamveda, Viraganamveda, Nirudhanamwei, Nirvana. The mucus is
+Kayanamveda, Viraganamveda, Nirudhanamwei, Nibbana. The mucus is
 Ash is the main, the greatest, is known, is being determined, is the
 The great doctrine is also known, and this orchid shall cross. Thus you are carmogary,
 Ditty, Avigoy, shall cross, and shall be there. Exceer.
@@ -186,7 +186,7 @@ A sympathized manometer. Gracing is a compassion, adhering
 Earning, compassion.
 
 [APZ 34.2] (#apz34 .2) {#apz34 .2 .ref .apz} "I am the Leisure Doctrine
-The Leisure Doctrine says to Nirvana. A (5-3)
+The Leisure Doctrine says to Nibbana. A (5-3)
 13 (ii) Should be applied.) “Will I know something, and shall I know something,
 He will try and see the recipient and make the prophecies.
 
@@ -260,9 +260,9 @@ Ready.
 
 [APZ 36.5] (#apz36 .5) {#apz36 .5 .ref .apz} "Maharshen is the great shanty”
 The 'Maharshi' is one of the spheters. Mathu Shields Group (Great
-(14-1) 10 shall be applied.) The greatest is said to the martyred Nirvana.
+(14-1) 10 shall be applied.) The greatest is said to the martyred Nibbana.
 All those editors were settled by the craving of all the subtleties
-It was, the names of the pause were Nirvana. 'Great' is the high
+It was, the names of the pause were Nibbana. 'Great' is the high
 Readable.
 
 [APZ 36.6] (#apz36 .6) {#apz36 .6 .ref .apz} "Knowing something and behaving in remembrance”

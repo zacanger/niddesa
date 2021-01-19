@@ -196,7 +196,7 @@ Saws adept.” Skillings are the adept of certain masses in relics
 Skills in Establishment doctrines, Skills in Prabeathpaddy doctrines
 SathipatshaSkills of Dadhi Leadings
 adept at Indiriya doctrines, adept in power doctrines, adept at Bocentra doctrines
-Skillful in road doctrines, adept in fruit doctrines, adept in Nirvana doctrines
+Skillful in road doctrines, adept in fruit doctrines, adept in Nibbana doctrines
 Ready. The adept of the optics from the optics to the optics of the optics
 The sanctification of the sanctification of the sanctification of the purity of the debate
 Emancipation is not claimed, but not stated. Do not make business.

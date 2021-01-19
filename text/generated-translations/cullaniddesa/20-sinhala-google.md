@@ -19,7 +19,7 @@ In the meanwhile Kaluriya is not done. 'Do I know any Dhamma?'
 'Dhamma' is a good word with pure meanings in the middle, pure in the middle and pure in the end
 With the perfect, consecrated celibacy, i.e. the four
 Satipatthnas, the Four Noble Truths The four main limbs are the five senses, the five forces,
-Sapta Bodhisattvas, the Noble Eightfold Path Nirvana, Nirvana
+Sapta Bodhisattvas, the Noble Eightfold Path Nibbana, Nibbana
 Preach, preach, enact, lay down, open
 Make, teach, enact, lay, open, divide
 Say, Say, 'Do I know something?' I know something
@@ -27,7 +27,7 @@ If I understand, if I see, if I see.
 
 [APZ 89.2] (# apz89.2) # apz89.2 .ref .apz} "Racial crap in this world
 The "remover" here is the antithesis of racial slur death, consolation, consolation,
-Immortal Nirvana. Therefore those Brahmins also declared.
+Immortal Nibbana. Therefore those Brahmins also declared.
 
 [Msdiv 90] (# msdiv90) {# msdiv90 .ref .msdiv} (16-2)
 
@@ -80,7 +80,7 @@ Nothing you have not seen, heard, touched or known in the ups and downs
 No. There is no selfishness or altruism. Not apparent. I am
 If you know, please preach that Dhamma. ”The Dhamma is pure at the root
 The clean end in the middle is pure meaningful, all perfect with words
-Say Nirvana and Nirvana Gamani Pratipada. Preach, exhort
+Say Nibbana and Nibbana Gamani Pratipada. Preach, exhort
 Please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please
 Please declare, that is. "If I know something" is something I do
 If I know, if I come, if I understand, if I see,
@@ -88,7 +88,7 @@ If I can prove it, preach it.
 
 [APZ 91.5] (# apz91.5) # apz91.5 .ref .apz} "To get rid of racism here
 Caused "is the racial slur here, the pacification, the expulsion, the immortality.
-Nirvana is. Therefore the Brahman himself said.
+Nibbana is. Therefore the Brahman himself said.
 
 [Msdiv 92] (# msdiv92) # msdiv92 .ref .msdiv} (16-3)
 

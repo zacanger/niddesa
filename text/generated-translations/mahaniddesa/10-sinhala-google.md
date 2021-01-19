@@ -203,7 +203,7 @@ Tells stories of happiness. Of the asceticism of the sublime rest
 Of the wisdom of samadhi, of the virtuousness of the beginning of semen,
 A collection of Satipatthඨාna stories on the philosophy of liberation
 Main Stories Riddhi Pada Stories Sense Stories Power Stories Bojnga Stories Road Stories
-The story tells the story of Nirvana. The word is disciplined and protected
+The story tells the story of Nibbana. The word is disciplined and protected
 Was calm. Going to MuniWhat wisdom says. Some wisdom
 Pajanana names ((3-4) (iii) should be used from the place of certain wisdom) Amoha
 The Vedic Dhammavicha transcends the network of Vedic desires called Sammaditti
@@ -537,36 +537,36 @@ Knowing wisely. The Dhamma manifested to oneself or to another shramana
 To a Brahmin or a God or a Mara or a Brahmin or anyone
 This is not obvious, said the Blessed One.
 Shariputra, the sense of devotion was cultivated and practiced extensively.
-He descended to Nirvana. Nirvana is supported. Nirvana is over
+He descended to Nibbana. Nibbana is supported. Nibbana is over
 Does it mean that you believe that the sense of humor, the sense of the week, the sense of concentration,
-The senses were practiced mostly to nirvana
-Will be landed. Nirvana is established. Nirvana is the end.
+The senses were practiced mostly to Nibbana
+Will be landed. Nibbana is established. Nibbana is the end.
 Lord, here is something from the faith of the Blessed Ones, that is, the sense of smell,
 Viriyandriya, Satindriya, Samadhindriya, Panjindriya were cultivated in abundance.
-It was practiced as is to descend to Nirvana. Nirvana is established.
+It was practiced as is to descend to Nibbana. Nibbana is established.
 In this case. Lord, did this not impress anyone?
 They are there that are not perceived and untouched by wisdom
 They go by the faith of others. The sense of devotion was also cultivated in abundance
-Nirvana is established when one has attained Nirvana. Nirvana
+Nibbana is established when one has attained Nibbana. Nibbana
 Is over. Viriyandriya Satindriya Samadhindriya Panyindriya
-Cultivated was widely practicedIs descended to Nirvana. Nirvana help
-Has been shortened. Nirvana is at an end. Lord, by someone
+Cultivated was widely practicedIs descended to Nibbana. Nibbana help
+Has been shortened. Nibbana is at an end. Lord, by someone
 This is wisely known, seen, perceived, touched,
 They are no doubt there. The sense of devotion was cultivated in abundance
-What is done is to descend to Nirvana and Nirvana is established. Nirvana
+What is done is to descend to Nibbana and Nibbana is established. Nibbana
 The end is. Virindriya Satindriya Samadhindriya
-The pancreas was cultivated and widely practiced and descended to Nirvana
-Will be. Nirvana is aided by the Lord, I am also wise in this Dhamma
+The pancreas was cultivated and widely practiced and descended to Nibbana
+Will be. Nibbana is aided by the Lord, I am also wise in this Dhamma
 Known. Seen, visualized, touched.
 
 I am no doubt there (i) The sense of devotion is the sense of smell
 Weekly Samadhindriya Panjindriya Cultivated Commonly Practiced
-The doctor was the one who went down to Nirvana. Nirvana is established. At the end of Nirvana
+The doctor was the one who went down to Nibbana. Nibbana is established. At the end of Nibbana
 There will be. True! True !! Shariputra, this is wise by someone
 Unknown, unseen and unrealized, they are by the faith of others there
 Are going. That is, the sense organ (use (i) here) cultivates the sense organ
-What was widely practiced was the descent into Nirvana. With the help of Nirvana
-There will be. Nirvana is at an end. That is.
+What was widely practiced was the descent into Nibbana. With the help of Nibbana
+There will be. Nibbana is at an end. That is.
 
 [APZ 88.5] (# apz88.5) # apz88.5 .ref .apz} "
 Did the ignorance and the break-up of the house eliminate the desire for this?

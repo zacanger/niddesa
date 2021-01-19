@@ -54,14 +54,14 @@ The mind was rested from all the other impurities that had been added to it and 
 This is relaxation.
 
 [APZ 49.6] (# apz49.6) # apz49.6 .ref .apz කවර What is graduation leave? And defilements
-Masses and consecrations are said to be degrees. Graduation rest to immortal Nirvana
+Masses and consecrations are said to be degrees. Graduation rest to immortal Nibbana
 Saw. Someone who appeased all the editors removed all the filth
-This nirvana is when the craving is extinguished and at some point the bond is broken
+This Nibbana is when the craving is extinguished and at some point the bond is broken
 Graduation is a break.
 
 [APZ 49.7] (# apz49.7) {# apz49.7 .ref .apz ට Adherents of Infertility
 For those who have rest, the body is at rest, and for those who have a pure mind, it is very clean
-Mindfulness is also the goal of the mind for those who have attained Nirvana and are not defiled
+Mindfulness is also the goal of the mind for those who have attained Nibbana and are not defiled
 There will also be a graduation break.
 
 [APZ 49.8] (# apz49.8) # apz49.8 .ref .apz} "Discipline at rest." That 's it
@@ -385,8 +385,8 @@ If there is any such relaxed behavior, it is the highest, the greatest, to the A
 Especially the great, the foremost, the noble. "It simply came to our notice then
 Does not think. Is not interested in the behavior of the body at rest. Dimensions
 Does not. Does not try, does not harden. One dimension of it
-Does not produce. It does not take hardness, that is. "He is absolutely Nirvana
-In the encounter "means he is near the nearness of Nirvana
+Does not produce. It does not take hardness, that is. "He is absolutely Nibbana
+In the encounter "means he is near the nearness of Nibbana
 That is.
 
 [Msdiv 58] (# msdiv58) {# msdiv58 .ref .msdiv} (7 - 10)
@@ -414,13 +414,13 @@ The word "community" is a name given to animals.
 Sticky, greedy, conflicted, faint, greedy animals (ii) beyond lust
 All samsaras beyond the realm of ignorance beyond the realm of vision beyond the realm of materialism
 To the end of the road, to the end, to the end, to the end
-To the Nirvana that has gone into fearlessness, that which has gone into Chuta, that which has not gone into nectar
+To the Nibbana that has gone into fearlessness, that which has gone into Chuta, that which has not gone into nectar
 They like visitors. (iii) whether the borrowers like the fact that there is no debt;
 Hopefully, those who are sick will not be sick, by the wall
 While captives hope to be freed from bondage, slaves are freed from slavery
 Hopefully, those who come from afar will hope for a better land,
 In the same way, the greedy, the greedy, the greedy, the greedy, the greedy, the greedy, the greedy, the greedy
-Nirvana beyond lust (beyond (ii) should be applied here) beyond Nirvana
+Nibbana beyond lust (beyond (ii) should be applied here) beyond Nibbana
 Wishing you all the best. Hopefully.
 
 Tissamettheyyasuttaniddeso sattamo.

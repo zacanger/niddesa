@@ -386,7 +386,7 @@ Wise is the most pronounced, the mouth, the high. “By making it in the field
 Do not think. Is not interested in the behavior of the bodiess. Dimension
 Do not do. Do not try, do not make hardness. Dimension
 Nouveth. It does not take stiffness, go. “Heavenly Niven
-is in the meeting” is in the immediate vicinity of the Nirvana
+is in the meeting” is in the immediate vicinity of the Nibbana
 Ready.
 
 [Msdiv 58] (#msdiv58) {#msdiv58 .ref .msdiv} (7 - 10)
@@ -420,7 +420,7 @@ Hopefully, hope that the sick are not sick, banking
 Hope redemption from Bano Banding, and redemption of slave
 Hopefully, and will they expect a good ground,
 Galle creatures who embodied the clash in the room of the epidermis.
-Nirvana (i) should be applied here (ii)
+Nibbana (i) should be applied here (ii)
 And the arrivals will be made. Hopefully.
 
 Tissamthethethethethethethethethethethethethethethethethethethethethethethethethethethethethethethethethethe

@@ -246,13 +246,13 @@ Take away the hardening of the vision and give up and give up and calm down
 Were manipulated to become unproductive. Held the posture. Ruled. Depended on.
 
 [APZ 44.5] (# apz44.5) # apz44.5 .ref .apz} "You see boldness" is nectar
-Nirvana is called bliss. (ii) All those editions were appeased
+Nibbana is called bliss. (ii) All those editions were appeased
 The one who got rid of all the impurities was the one who got rid of the lust called Viraga called Nirodha
-Nirvana.
+Nibbana.
 
 [APZ 44.6] (# apz44.6) # apz44.6 .ref .apz} "See Fearless"
 Those who see security, those who see help, those who see safety, those who do not see, the nectar
-They see Nirvana, so the sages give up hardening and attain Nirvana
+They see Nibbana, so the sages give up hardening and attain Nibbana
 Daknahu lived.
 
 [Msdiv 45] (# msdiv45) {# msdiv45 .ref .msdiv} [Msdiv 46] (# msdiv46) {# msdiv46

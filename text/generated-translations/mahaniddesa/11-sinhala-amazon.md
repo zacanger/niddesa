@@ -622,13 +622,13 @@ He who has a discreet intelligence, is the prophet of wisdom.
 
 [APZ 112.3] (#apz112 .3) {#apz112 .3.ref .apz} "Know the yard
 Do not come to debate” is a decision and prophesy, marduna
-Person is the person who is bristled in the yard and marched at the same rate in Parinirvana
+Person is the person who is bristled in the yard and marched at the same rate in PariNibbana
 Midunahu Wine “All editors know the imperative and decided
 Person who has been prophesied by Perinirwana
 All editors grieve all doctrines are infested (((4-5) 4 Science
 Should be applied from where to go) A doctrine born for some reason,
 Determine and let go of the yard, knowing that all things are to be maintained.
-Yen Know Ynirvana YenWei. “does not come to debate”
+Yen Know YNibbana YenWei. “does not come to debate”
 What does not stir. Does not dare, does not dispute, does not debate. Individuals
 This was disenchedded by God. (ie) 'Aggiestion, thus the marched hearts
 Bhikkhu never bore anyone and dandruff. Nobody is and does not debate. Something

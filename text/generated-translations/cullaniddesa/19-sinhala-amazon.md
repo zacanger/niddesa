@@ -75,7 +75,7 @@ Consolation of Mathu Collection, Mathu Obe, Mathu Concensation Discount
 Trimming, extinguish the inflammation of the Mathu Dhamma flag
 lifting. Seeuyanui Maharshinami. Mahatyu Sathipattaya
 Chiefs, Majesty Indies, Majesty Boons, Mathews
-Aryan Octanginal Road, Mathew Objective, sought the Amruthane Nirvana
+Aryan Octanginal Road, Mathew Objective, sought the Amruthane Nibbana
 Where is the Buddhism of Maharshnum and where is God's God
 Where is God, NarakshaSeeking by the Gods where He is
 Laddenui, Maharshi. Therefore, Brahman himself said.

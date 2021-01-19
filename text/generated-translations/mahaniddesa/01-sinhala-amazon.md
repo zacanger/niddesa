@@ -427,7 +427,7 @@ doer. The swimmers will be exceeded.
 [APZ 6.18] (#apz6 .18) {#apz6 .18 .ref .apz} "Ship is lighthearted”
 Rapid from the light ship, except the heavy ship sprinkled the waterhole
 Go to the street. Also, the object rooms are selected except for the area of the house (here
-17 (iii) shall be applied) to Nirvana which is hereby claimed to be parathiary
+17 (iii) shall be applied) to Nibbana which is hereby claimed to be parathiary
 Let's say.
 
 Will all editors be congruent and all clairvoyance be laid
@@ -453,8 +453,8 @@ Going to the corner, Got to the Persia of Kotiprapthauwa,
 went to the last state of the state, went to the insurance station in the last state
 Sarana went to the security of the state.
 Abhayapthauwa, Atunagthauwa, Achunagthuwa
-Goed to Aruthapthauwa, went to Nirvana
-He finished the journey in Nirvanapathuwa, and he finished the rain
+Goed to Aruthapthauwa, went to Nibbana
+He finished the journey in Nibbanapathuwa, and he finished the rain
 The enemies ended up going to the corner, the controlled Bambasara was the high
 The paths that are decimated in the ideology are not different
 The disbelief is that the denoted necrotic is that he was figuring out the sorrow.

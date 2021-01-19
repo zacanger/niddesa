@@ -37,7 +37,7 @@ Crosses the desert. Crossing the Nation Desert Crossing the Dirty Desert
 Makes. Crosses the Desert of Disease Crosses the Desert of Death Mourning, mourning,
 Physical pain, griefS, Tactical Crossing the Desert. Raga crosses the desert.
 Hatred, moha, dimensional forest, defilement, crossing And so on. Welfare
-Leads to the immortal Nirvana at the end. Thus the Blessed One
+Leads to the immortal Nibbana at the end. Thus the Blessed One
 The driver (wagon leader) said. Again, the Blessed One is the leader.
 Discipline. Imposed. Will make you understand. Balavanaseka explains as follows
 Blessed Galnayakaseka Yalidu or Blessed Unborn Road
@@ -361,10 +361,10 @@ In the convent.
 (14-7) Paragraph 8 should apply) 'In the world' means man in the world.
 
 [APZ 195.2] (# apz195.2) # apz195.2 .ref .apz} "Going in the wrong direction"
-Amrita tells the great Nirvana that this is the direction not to go. Some of all those editions
+Amrita tells the great Nibbana that this is the direction not to go. Some of all those editions
 Satisfied all the worlds gave birth to the desire to get rid of the filth that causes birth
-Whether Viraga or Nirodha is Nirvana, one has not gone in that direction. This long
-Time did not go in that direction. Undead direction (Nirvana) Wishes
+Whether Viraga or Nirodha is Nibbana, one has not gone in that direction. This long
+Time did not go in that direction. Undead direction (Nibbana) Wishes
 Doing so uses a bowl of non-stick oil filled to the brim
 Keeps his mind. Going forward in the direction not going
 Is going.
@@ -399,7 +399,7 @@ Tells the story. Hey how? Stories that inspire a little, stories that make you h
 Stories of high rest, stories of non-aggregation, heroic stories, virtuous stories,
 Samadhi Stories, Wisdom Stories, Liberation Stories, Liberation Wisdom Stories, Satipatthana
 Stories, Samyak Main Stories, Riddhi Pada Stories, Sense Stories, Power Stories, Bodhisattvas
-Tells stories, path stories, fruit stories, nirvana stories. Discipline in the Word
+Tells stories, path stories, fruit stories, Nibbana stories. Discipline in the Word
 Protected means faded. This is the purity of the word. What kind of words
 That is to say, one who is pure
 
@@ -413,7 +413,7 @@ Where Karana resides, he allies himself with kings and royal nobles
 There are, theorists and theorists living with a combination of disciples and nuances
 Vedas, some of those castes are devout or impatient, eating and drinking
 Or with a bad word to monks, nuns, worshipers and nuns
-Baninnahu Veda, who likes misfortune, likes evil, likes difficult, nirvana
+Baninnahu Veda, who likes misfortune, likes evil, likes difficult, Nibbana
 Disliked doctors, however, serve such castes. Sings. Peas peel. these
 If inappropriate behavior. Re-entered the village or the inner house, to the street
 Entered goes undisciplined. Elephants, horses, cars, pedestrians
@@ -484,7 +484,7 @@ The monk blows his own olfactory impurities, just as the delicate flower blows.
 Moderate Defilement Cleanses Subtle Defilement Removes, Removes, Infertility
 Leads to. Again, the bhikkhu himself has his own Raga Malaya, Dveshamala, Moha Malaya, Mana Malaya,
 Visual acuity, impurity, impurity, blindness, blindness, ignorance,
-Lack of wisdom, destructiveness, proves that Nirvana does not exist,
+Lack of wisdom, destructiveness, proves that Nibbana does not exist,
 Removes, distances, makes unproductive. Again or in terms of consensus
 Superstition blows. Removes. Away. Leads to infertility. good
 Thought, mythical thought is a word, mythical word, a word
@@ -510,7 +510,7 @@ Dharmanudharma Pratipada, the completion of virtues, the closed door of the sens
 Is that (snare) around the meal?Bathing, sleep deprivation, mindfulness and mindfulness
 Wisdom, the Four Satipatthnas, the Four Noble Truths, the Four Rdhipadas,
 Pentacles, Pentacles, Sapta Bodhisattvas The Aryan Eightfold Path,
-Nirvana Nirvana Gamini Pratipada means this ease
+Nibbana Nibbana Gamini Pratipada means this ease
 'Shariputra' is the name given by the Blessed One to that Thero
 Do. 'Blessed' is a word of honor (7-2 (i) means Blessed
 Should be used from places.) 'Resting seats are definitely shaded if the seats
@@ -619,8 +619,8 @@ If there are threats.
 
 [APZ 200.3] (# apz200.3) {# apz200.3 .ref .apz} "seeks merit"
 Samyak Pratipadawa Anuloma Pratipadawa, Aviruddha Pratipadawa Anavartha
-Pratipada, Dharmanu Dharma Pratipada Aryanya Eightfold Path, Nirvana,
-Those who seek the path of Nirvana should also curb the menace.
+Pratipada, Dharmanu Dharma Pratipada Aryanya Eightfold Path, Nibbana,
+Those who seek the path of Nibbana should also curb the menace.
 Should be suppressed. Should be pressed. That is.
 
 [Msdiv 201] (#msdiv201) {#msdiv201 .ref .msdiv} (16 - 12)
@@ -1090,7 +1090,7 @@ If concentric.
 [APZ 210.6] (# apz210.6) # apz210.6 .ref .apz} "He casts out the darkness"
 Is the darkness of darkness, the darkness of hatred, the darkness of darkness, the darkness of vision, the dimensions
 Darkness, filthiness, obscurity, blindness, blindness,
-To be ignorant is to lose wisdom, the party of annihilation is called nirvana
+To be ignorant is to lose wisdom, the party of annihilation is called Nibbana
 He casts out the darkness of destruction. Calms down. Discards. Into the unborn
 Leads. That is. "Blessed" is a title of honor. (7-2) (i) Blessed
 The recommendation to go should be used here.)

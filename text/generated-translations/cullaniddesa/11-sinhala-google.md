@@ -34,7 +34,7 @@ Not by wisdom, not by Panchabhijna wisdom. Myth does not mean wisdom.
 'Skilled' means those who are skilled in certain masses, skilled in relics and skilled in institutions
 Pratithiyasamuthpada skillful, Satipatthana skillful. Samyak Major Talents,
 Wisdom Skills, Sense Skills, Power Skills, Bodhisattva Skills Ways
-Those who are skilled, those who are fruitful, those who are Nirvana, those who are skilled in visual purity or
+Those who are skilled, those who are fruitful, those who are Nibbana, those who are skilled in visual purity or
 From the Shruta Shuddhi or the Ashta Samapaththi Gnana or the Panchabhijna Gnana
 The myth is the silence of those who come with knowledge, sight or hearing
 Not to mention, not to mention.

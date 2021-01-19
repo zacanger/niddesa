@@ -62,8 +62,8 @@ He said. Parami has reached. Went to the extreme. Has come to an end. Went to th
 Came to an end. Went to the terminal. Arrived at the terminal. Finally gone.
 He finally came and went to safety. Came to the rescue. Went to the rescue.
 Came to the rescue. He became Abhaya, he became Abhaya, he became Achyutha
-He has become immortal, has gone to nectar, has come to nectar, has gone to Nirvana.
-Gone. He came to Nirvana. He has a shower after the rain. (Great
+He has become immortal, has gone to nectar, has come to nectar, has gone to Nibbana.
+Gone. He came to Nibbana. He has a shower after the rain. (Great
 Apply (3-7) (6) (ii) of the ActTui.) He has no rebirth.
 
 [APZ 74.5] (# apz74.5) පිණිස # apz74.5 .ref .apz} "To ask a question
@@ -76,7 +76,7 @@ I came to hear. Please tell, whats the story of them big puppys .....
 Preach emancipation, enact, enjoin, enjoin,
 Please share and make it public. Please declare, that is. Of ignorance
 Fracture "means the breaking, dispelling, and soothing of ignorance
-Nirvana is the breaking of ignorance. Therefore the Brahman himself said:
+Nibbana is the breaking of ignorance. Therefore the Brahman himself said:
 
 [Msdiv 75] (# msdiv75) # msdiv75 .ref .msdiv} (13-2)
 
@@ -85,16 +85,16 @@ The vote is whether there is any vote in the lusts, whether there is lust, lust
 There is bondage, there is lust, there is lust, there is lust
 Have lust, have lust, have lust, have lust,
 Lust, lust yoga, sexual intercourse, and whether there is a suppression of lust.
-"The transcendence of the lusts" means the attainment of Vyapasman, the Nirvana of nectar.
+"The transcendence of the lusts" means the attainment of Vyapasman, the Nibbana of nectar.
 
 [APZ 75.2] (# apz75.2) {# apz75.2 .ref .apz ‍ Blessed Morning
 The effects of lust and sadness are both emotional dissatisfaction and emotional distress.
 Unhappiness with the psyche, that is, "sadness" is the same as the lust of the two.
-It is the removal of sorrow, the soothing, the nectar of Nirvana.
+It is the removal of sorrow, the soothing, the nectar of Nibbana.
 
 [APZ 75.3] (# apz75.3) {# apz75.3 .ref .apz} "Thin's removal"
 If there is any inappropriateness of the mind, it is a lack of work, such
-The exorcism of the thin, the soothing of the breath, the immortal nirvana in the cuckoo
+The exorcism of the thin, the soothing of the breath, the immortal Nibbana in the cuckoo
 Prevention is also a rash on the hands. The cock on the foot is also a cock. Limbs
 The cuckoo is also a cuckoo. The sense of commitment in commitment, the sense of commitment in dedication
 Feelings of guilt, guilt, guilt
@@ -127,7 +127,7 @@ The Dharma argument was preceded.
 I call the Arahant Vimoksha the Arahant Vimoksha. I preach.
 I impose, I place, I open. Divide, declare, declare.
 The fracture of ignorance is the ignorance of sorrow. Ignorance is
-Moha is the root of evil. Breaking is the soothing of the soul, the smoky nirvana
+Moha is the root of evil. Breaking is the soothing of the soul, the smoky Nibbana
 So the Blessed Ones declared.
 
 [Msdiv 77] (# msdiv77) # msdiv77 .ref .msdiv} (13-4)
@@ -136,7 +136,7 @@ So the Blessed Ones declared.
 The combination of the world, the sticking, the binding, whatever the world was made of
 Did you apply? That is. How is its trial? Is the trial, the trial.
 How does the world behave? Which of the following is Nibbana? Is something
-Nirvana is said to be expressed by the consolation of Prahana
+Nibbana is said to be expressed by the consolation of Prahana
 Will do. Therefore the Brahman himself said.
 
 [Msdiv 78] (# msdiv78) {# msdiv78 .ref .msdiv
@@ -155,10 +155,10 @@ These are the new arguments, the counter-argument. These new arguments belong to
 Censorships are trials. The world behaves especially with this new argument
 Behavior means.
 
-[APZ 78.4] (# apz78.4) # apz78.4 .ref .apz} "Nirvana by eliminating lust
+[APZ 78.4] (# apz78.4) # apz78.4 .ref .apz} "Nibbana by eliminating lust
 It is said that lust is the desire for images, sounds, smells, tastes, touches
-Nirvana is said to be the elimination of lust. Is lust
-Nirvana is said to be by appeasing the abstinence from detachment. Uses.
+Nibbana is said to be the elimination of lust. Is lust
+Nibbana is said to be by appeasing the abstinence from detachment. Uses.
 Declares. So the Blessed Ones declared.
 
 [Msdiv 79] (# msdiv79) # msdiv79 .ref .msdiv} (13-5)

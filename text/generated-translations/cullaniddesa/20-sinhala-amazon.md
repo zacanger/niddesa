@@ -19,7 +19,7 @@ In the midst, the blacker is not left. 'I know some doctrine, '
 'Stain' is a good term with the definition of early cleaning middle cleaning
 Fully perfected, sanctity Brahmecharia with, that is, four
 Sathipatayan, Four Samples Major Four Negative Padawachendiriya, Panthapa,
-Sasa Bocentrayan, Aryan Octangal Road Nirvana, Nirvana, Nirvanagamini
+Sasa Bocentrayan, Aryan Octangal Road Nibbana, Nibbana, Nibbanagamini
 Reverse, Decomposition, impose, put, open
 Manage, Decomposition, impose, place, open, divide
 Manage, proclamate, say, 'Something I Know Someth'
@@ -27,7 +27,7 @@ If you will find out if the names are to be made.
 
 [APZ 89.2] (#apz89 .2) {#apz89 .2 .ref .apz} "This very little race shit
 Destroy” is the death of this very own nation jara, Business, Comparation,
-It is unpretentious nirvana. Therefore, Brahmina stated the same.
+It is unpretentious Nibbana. Therefore, Brahmina stated the same.
 
 [Msdiv 90] (#msdiv90) {#msdiv90 .ref .msdiv} (16-2)
 
@@ -80,7 +80,7 @@ In the decimal direction of Udaha you have not seen and untouched.
 No. There is neither selfness nor unselfishness. Not scientific.I'm going
 If it is known, then the doctrine is “Manuwi”, then the root is pure
 Clean end in the middle perfectly everything with pure meaning, verses
-Nirvana and Nirvana Gamani Rebates. Dekanu, Worm
+Nibbana and Nibbana Gamani Rebates. Dekanu, Worm
 Manuure, Open Manuure, Divide, Manuure, Manuure, Manuure
 Manurements, Readers. “If in some way I know” is something I am
 If to know, if coming, figuring out, if seeing,
@@ -88,7 +88,7 @@ If it is made, it is possible to dismantle it.
 
 [APZ 91.5] (#apz91 .5) {#apz91 .5 .ref .apz} "To demolish our own nation
 Caussed” is the death of the nation, constipation, containment, reproach
-Nirvana. Therefore, Brahman himself said.
+Nibbana. Therefore, Brahman himself said.
 
 [Msdiv 92] (#msdiv92) {#msdiv92 .ref .msdiv} (16-3)
 

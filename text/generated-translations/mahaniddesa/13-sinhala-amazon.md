@@ -40,7 +40,7 @@ Constipation of the Constipation of the Crader for the purpose of the Compliance
 The eczema of assembling together is the tightness of the cesspool in the deception of the eczema
 All the visuals of all the hair of the size of the oversize of the manometer of the greater
 In all the accumulators of all the stains of all the stains of all the stains
-This is not enough for Nirvana to be disposed of in order to be compelled.
+This is not enough for Nibbana to be disposed of in order to be compelled.
 
 [APZ 131.2] (#apz131 .2) {#apz131 .2 .ref .apz} "Tell two fruits of debate”
 is the optics of the opticality of the optics of the opticality of the optics of the optics of the optics
@@ -56,11 +56,11 @@ This is also seen by seeing this and deciding and provedning.
 This is also seen in the viewpoints of the agendas and “do not debate”.
 Do not debate. Do not dissipate, be compassed, and fade away.
 Tightly, the Emigration distanced the Debate from the Debate. Separate Distance
-The unrestricted heart will dwell. Nirvana, which is the territory of the disputed
-What is the territory of the disputed Nirvanasays. All those editors
-It is Nirvana, which exterminates all the cravings of the deviated lust.
+The unrestricted heart will dwell. Nibbana, which is the territory of the disputed
+What is the territory of the disputed Nibbanasays. All those editors
+It is Nibbana, which exterminates all the cravings of the deviated lust.
 Where there is no fear of this disputed territory as the guarded place
-Nirvana is looking at where it is not as unpretentious
+Nibbana is looking at where it is not as unpretentious
 The behold thinks and looks with a sterile.
 
 [Msdiv 132] (#msdiv132) {#msdiv132 .ref .msdiv} (13 - 3)
@@ -453,7 +453,7 @@ Looks as self-as, is.
 Even if not to say” Skillers are certain mass talent relics adept institutions
 Tapes Sampadet Skills Lead Skills Lead Skills
 Skillful Indiya Skillers Power Skillers Bodyweight Skillers Road Skillers
-Nirvana adept. A discreet or prefabricated stem of feeling the adept of the minds of the other
+Nibbana adept. A discreet or prefabricated stem of feeling the adept of the minds of the other
 Discreet of seeing the order or seeing the name images in Mazasin or Seer
 Even if the liberation of the purity of the sanctification is not said,
 Not stated, but not instructed.
@@ -624,7 +624,7 @@ I have not taken the four tiers, I have not taken the four tiers by the Paduchen
 I have not been dispatched, I have not dispatched, I have not taken up.
 I will not take the Lady's Ashtankan road, which will not be the Bothangian.
 I am not well aware of the grieving fact, I am suffering
-The cause of the occurrence was not made, I did not go the way, Nirvana
+The cause of the occurrence was not made, I did not go the way, Nibbana
 I reproach himself because he is thus disgraced
 Because the undone is a tree unto himself, so do not these kammas that reproach him.
 Nooi does not reproach himself, because it does not cause the cause.

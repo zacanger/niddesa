@@ -57,7 +57,7 @@ Questioning relics means questioning institutions. Three other questions.
 Questioning Satipatthna Questioning Sammappadhana Questioning Construction
 Is three more questions. Sensory questioning Power questions
 To do is to question the bodhisattvas. Three other questions. Sovan
-Questioning about the ancient ways Questioning about the results Nirvana
+Questioning about the ancient ways Questioning about the results Nibbana
 Questioning about.
 
 [APZ 150.7] (# apz150.7) # apz150.7 .ref .apz} "Ask him out well
@@ -72,14 +72,14 @@ Rest and peace are three rests. (7-1) 5 (ii) to 7
 The paragraph breaks really are important for readability.
 
 [APZ 150.9] (# apz150.9) {# apz150.9 .ref .apz} "Peace" in one sense
-Peace is also the word of peace. It is immortal Nirvana. All of that doctrine
+Peace is also the word of peace. It is immortal Nibbana. All of that doctrine
 The editions quenched all the impurities and whether the lust paid off, or not
-Is the so-called quarantine nirvana. Again, a certain Dhamma, peace is supreme
+Is the so-called quarantine Nibbana. Again, a certain Dhamma, peace is supreme
 In order for peace to exist, for peace to exist, for peace to exist
 Hey how, the Four Satipatthnas, the Four Noble Truths, the Four Rdhipadas
 The Pentacles, the Pentacles, the Seven Bodhisattvas, the Noble Eightfold Path
 These are the word of peace, the word of protection, the word of help. Abhaya Padaya, not Chuta
-Says the verse, the verse of nectar, the verse of Nirvana.
+Says the verse, the verse of nectar, the verse of Nibbana.
 
 [APZ 150.10] (# apz150.10) {# apz150.10 .ref .apz} Maharshi "means Maharshivu
 The Blessed One. He was looking for a great body of virtue and therefore "Maharshi"
@@ -92,7 +92,7 @@ Laying the great burden of the transcendence is the great burning of the great c
 Extinguishment sought to soothe the great burn and raise the great Dhamma flag. therefore
 Maharishi. Great Satipatthනයන්nas Great Sam‍dha Pradhanas Great Riddhi
 The Aryan Eightfold Path, the Great Bodhisattvas, the Great Powers, the Great Powers
-Sought the great objective nectar Nirvana. Hence the name "Maharshi".
+Sought the great objective nectar Nibbana. Hence the name "Maharshi".
 Where is the Buddha, where is the Blessed One?
 Where, where are the great human beings?
 Received by Maharshi.
@@ -447,12 +447,12 @@ Hazard means (1-4) 4 (ii) Hazard should be used from the point of view.)
 
 [APZ 156.10] (# apz156.10) {# apz156.10 .ref .apz යනු "Dangerous Discipline"
 Risk mitigation, Risk mitigation, Risk mitigation, Risk elimination,
-Immortal Nirvana. "Lord, please say the precept" is a synopsis
+Immortal Nibbana. "Lord, please say the precept" is a synopsis
 Pratipada, Unchanging Pratipada, Alias Pratipada, Dharmanu Dhamma
 Pratipada, that there is a closed door in the senses that completes the virtues,
 The Four Satipatthඨාnas, Awareness of Meal, Sleep Awakening, Consciousness,
 The Four Noble Truths, the Four Noble Truths, the Five Senses, the Five Powers,
-Sapta Bodhisattvas, Aryan Eightfold Path, Nirvana, Nirvana
+Sapta Bodhisattvas, Aryan Eightfold Path, Nibbana, Nibbana
 Please tell, whats the story of them big puppys ..... Please comment. Please impose.
 Please open. Please share. Please make it public. Lord, that is
 The created image addresses the Blessed Ones of the Buddha. Again or
@@ -1103,7 +1103,7 @@ Antithesis antithetical antithesis antithetical antithetical antithesis
 Dharmanu Dharma Pratipada, that which has a closed door in the senses that is full of virtues
 That, that there is a sense around the meal. Sleep deprivation, that of mindfulness, four
 The Four Noble Truths The Four Noble Truths
-Panchabala Sapta Bodhisattvas, Aryanya Eightfold Path, Nirvana and Nirvana
+Panchabala Sapta Bodhisattvas, Aryanya Eightfold Path, Nibbana and Nibbana
 The Dhamma of Gamini Pratipada is to know, weigh, decide and publish.
 
 [APZ 168.2] (# apz168.2) # apz168.2 .ref .apz} "The monk always thought

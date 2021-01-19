@@ -89,7 +89,7 @@ Sees as inferior. Looks
 Are skilled in certain masses, skilled in relics, skilled in institutions
 The masters of the Paticcasamuppada are the masters of the Satipatthnas
 The clever ones are the masters of the limbs, the masters of the senses, the masters of powers
-The masters of the Bojangs are the masters of the path, the masters of the fruit, the masters of Nirvana
+The masters of the Bojangs are the masters of the path, the masters of the fruit, the masters of Nibbana
 Even if you say so. This is a bond, this is a bond, this is a bond, this is a mess
 Even if you say so. This is stated. Even if it is used in this way.
 
@@ -292,7 +292,7 @@ Discipline is not to be taken for granted. "
 Nusula does not go through fasting or both virtuous deeds.
 
 [APZ 38.6] (# apz38.6) # apz38.6 .ref .apz} "The immovable went back abroad
-Does not come. ”The gap is the immortal Nirvana
+Does not come. ”The gap is the immortal Nibbana
 Editions appeased, suppressed all defilements, extinguished lust called Viraga
 That's it. He went abroad. Abroad
 Came. Went to the corner. Came to an end. He has no ethnic death rites.

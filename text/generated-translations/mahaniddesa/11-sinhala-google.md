@@ -623,13 +623,13 @@ He is the Wise, the Wise, the Wise.
 
 [APZ 112.3] (# apz112.3) {# apz112.3 .ref .apz} "Know the Redeemer well
 Will not be debated. "
-The one who is saved is the one who is saved by the positive ratio of Parinirvana
+The one who is saved is the one who is saved by the positive ratio of PariNibbana
 Midunahu Wein "All editors know that impermanence is impermanent and decide
 The one who is declared and saved is the one who is saved from the extinction of positive ratios
 All edification is misery and all doctrines are infinite (4-5) 4 Ignorance
 Should be applied from where the cause goes) Is there a doctrine born of any cause, a
 Knowing that everything exists for the purpose of restraint, it is decided to make a proclamation and get rid of it
-Positive rewards are known as Parinirvana Yen Will be. "No Debate"
+Positive rewards are known as PariNibbana Yen Will be. "No Debate"
 Does not quarrel. Do not quarrel, do not quarrel, do not argue. Blessed are you
 This was uttered by the Lord. (I.e.) 'Aggivessana, thus having a frozen mind
 Bhikkhus do not quarrel with anyone. No one gets into a debate. Something

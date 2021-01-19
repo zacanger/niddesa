@@ -184,7 +184,7 @@ Wild, Unity, Love, Expectation, Wall, Desire, Hope, Beauty, Sounds,
 Smells, tastes, riches, filial piety, life. Jappana (Dodavanni)
 Lust known by the name of Jappitantha Pujjanjikatha Sadhukamyatha, Lolu
 (Lobbava) Loluppayana, Loluppaithantha, Unrighteous Lust, Heterosexuality, Nikantiya,
-Nirvana, lust for desire, intense desire, lust, bhava
+Nibbana, lust for desire, intense desire, lust, bhava
 Lust, image lust, formless lust, restraint lust, sound lust, smell
 Lust, Taste of Taste, Tactile of Touch, Lust of Dhamma, Ogha, Yoga, Book,
 Upadana is the cover, the inhibition, the closure, the bondage, the filth, the suppression of the remaining desire
@@ -427,11 +427,11 @@ Does. Swimming exceeds.
 [APZ 6.18] (# apz6.18) ෙහි # apz6.18 .ref .apz ෙහි "Lighten the ship and go overseas"
 The yacht-laden ship sank and sped off, and the light ship quickly and swiftly
 Goes abroad. And excluding the filthy lusts known as material lusts (here
-Paragraph 17 (iii) should be applied) to the immortal Nirvana which is said to be the gap here
+Paragraph 17 (iii) should be applied) to the immortal Nibbana which is said to be the gap here
 Says.
 
 Whether all edits are appeasement, all defilements are excluded,
-Nirvana is the payment of lust, the cure or the prevention. Abroad
+Nibbana is the payment of lust, the cure or the prevention. Abroad
 Going means going into the distance and touching the distance. Distance reflection
 Does. Paragu is someone who wants to go abroad if he wants to
 Is. Someone who goes abroad is called Paragu. Someone went abroad
@@ -453,8 +453,8 @@ Went to the corner, went to the terminal, went to the terminal
 The aspirant went to the end, the final aspirant went to the asylum
 Achieved went to safety Safe took refuge in Sarana
 Absolutely Absolute Absolute Absolute Absolute Absolute Absolute Absolute Absolute Absolute Absolute Absolute Absolute
-Achieved went to nectar Nectar went to Nirvana
-Nirvana was the end of the rain, the end of the journey, the end of the journey
+Achieved went to nectar Nectar went to Nibbana
+Nibbana was the end of the rain, the end of the journey, the end of the journey
 The enemy ended up going to the edge and the controlled Bambasara is the greatest
 The view is that cultivated roads have vulnerable defilements unchanged
 The realization is the perceived restraint that He understood the suffering.

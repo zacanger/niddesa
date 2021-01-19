@@ -203,7 +203,7 @@ Tells stories of Santota. About Disintercourse of Noble Leisure
 On the prophecy about the predisculation of the scurvy,
 Stories of the Liberation Philosophy of Liberation A Satipatthana Tales
 Main stories straight foot stories Indiya stories power stories Bojtingstory story path stories
-The stories tell Nirvana stories. Protected Protections of Hikmunu from Word
+The stories tell Nibbana stories. Protected Protections of Hikmunu from Word
 Sentence was made. MuniThe monahe tells the Gness. Any signal
 Pajana names ((3-4) (iii) should be used from where any pledges go) Amoha
 Names Vedi Dhammaruwara Samaratthththi Beyond Vedi Cravsha Network
@@ -536,7 +536,7 @@ Knownalah with consciousness. The doctrine which was prophesy to himself to anot
 A Brahman or God or Leave or Brahman or anyone
 RetireesNot this was dispatched by the chapters.
 Physicality, Sirath Indiriya was most commonly practiced
-Was taken down into the shadow. Nirvana has been stabbed. Nirvana Ends
+Was taken down into the shadow. Nibbana has been stabbed. Nibbana Ends
 What Wei Is What You Thou Thou Thou Weryindiya, Phrases,
 Practices of pannage were most commonly practiced
 Slowed. The house is located in the house. The house will be dissipated.
@@ -552,10 +552,10 @@ The plentiful habitation of the ditches is taken into the shelter. Home Knife
 What is being done. The house is turned over. Lord, by someone
 This is known by the prognotizing, touches,
 They were not suspicious of it. Abundant habits of the genitoural incarnate
-Nirvana was located in Nirvana. Nirvana
+Nibbana was located in Nibbana. Nibbana
 The ends are made. Voriyindiya Sitindiya
-Pancavinia was commonly practiced, descended to Nirvana
-Wei. Nirvana has been stabbed by Lord WeiThis doctrine is discreet
+Pancavinia was commonly practiced, descended to Nibbana
+Wei. Nibbana has been stabbed by Lord WeiThis doctrine is discreet
 Known. It was seen, the reflexes were touches.
 
 I am a skeptical of it (i) Siri Indiriya

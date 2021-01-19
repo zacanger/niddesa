@@ -1,116 +1,20 @@
-“The immortal people, people who rely on what”: “relying on, relying on,
-sticking, entering, dyeing, and putting the heart toward what. “Immortals”,
-named fairy people, whoever came out into hermit (fairy), out of the house,
-wicked outdoers, Nigantas, the hair of the hair, the bitter. “People” are called
-human. To rely on what fairy people, people.
 
-“The Chaldiriers and the Brahmen to the angels”: “The Chaldiriers,” whosoever is
-born of the Ch “Brahmen,” whoever calls a gentleman to someone else. “To the
-angels”, the wicked outskies of the wicked outskies, the Nigantas of the
-disciples of Nigantas, the hair of a disciple, the parade of the parade of the
-parade, the exiled angels of the disciples. (Thailand Version)、Elephant
-Railer's Elephant God, Horse Tenjin of Horse Ringers, Cattle Tenjin of the
-Ringers, Dog Ringers, Raven Angel of the Raven Keeper, The Power of the Power of
-God Renders, Tenjin of the Wins of the Wise, the Evex of the Guardian, the Fire
-Tenjin of the Guard, the Dragon Tenant of the Dragon Guard, Goldwingbird Angel
-of the Goldwingbird Ring, Guardian The angel of the Yasha Raider, Ashura of the
-Guardian of Asurah, the Ganda of the Guardian of Kanda, the King of the Lord of
-the Lord of the Ring, the Lunar God of the Moon Guardian, the Day of the
-Guardian, The indra angel of the indra, the god of the watchman, the angel of
-the guardian, the angels of the guardian, the angels of the guardian, the angels
-of the retakers, and those which are worthy of support for them are their
-angels. ” For the Chamdiriers and the Brahmen to the angels.
 
-“There are many sacrifices here in the world”: “The sacrifice is called a
-sacrifice: clothes, food, shelter, patients' needs, medical necessities, food,
-drinks, cloth, transportation, garland, Spices, oiled, bed, house, light
-candles. “For sacrifice,” whoever they seek, pursue and seek the sacrifice of
-clothing, food, shelter, patient's needs, medical necessities, food, drinks,
-cloth, transportation, garlands, spices, oiling, bed, Houses and candles, they
-make a sacrifice; and whoever they prepare the clothing of the sacrifice, to
-feed, shelter, the needs of the patient, the necessities of medicine, food, and
-drinks... Sacrifice: those who give, feed, and make alms of their clothing, give
-food, dwellings, the necessities of the sick, the necessities of medicine, food,
-and drink... (middle) bed, house, and candles, they also make sacrifice. “Many,”
-these sacrifices are many, or the priests of these sacrifices are many, or many
-of these worthy providers. How are these sacrifices are many? These sacrifice
-clothing, feeding, shelter, patient needs, medical necessities, food, beverages,
-cloth, transportation, garlands, spices, oiling, bed, premises, light candles
-belong to many, so are These sacrifices are many.
 
-How are the priests or priests of these sacrifices are many? The priests of
-these sacrifice are many: Chadriel, Brahmen, Bisha, and the Gundala, in their
-families, and from their families, and in heaven, and men, and so many are the
-priests of these sacrifices.
 
-How are these worthwhile providers are many? These worthy salmon, brahmen,
-beggars, travelers, wanderers, beggers are many, so is or these worthwhile
-providers are many. “This is in the world,” in the world of men.” To make
-sacrifices for many here in the world?
 
-“Worldworld I ask you, please tell me this”: “Inquire”, there are three kinds of
-inquiries: an inquiry of unseen description, interrogations of the seen, and the
-intermittent inquiry. What is an unseen description inquiry? It was an unknown,
-unseen, unmeasured, unjudged, unclear, unknown, unknown, for his wisdom, seeing,
-measuring, judging, clear purpose, and clear purpose, he asked questions, this
-is not Inquire of the description of the seen.
 
-What is the interrogations of the Seen Conflux? It was a known, seen, measured,
-judged, clear, and understood special feature. He asked questions for the
-purpose of co-flow with other wise people, which was seen.
 
-What is the interrogations of the cut off of doubts? It was a leap into (Sri
-Lanka version) skeptics, leapfrogging into doubters, born doubts: 'Is it so? Is
-it not like that? What is it? How is it? He asked questions for the purpose of
-disconnection of doubts, which is the question of the cut off of doubt. This is
-three kinds of inquiry. The next three kinds of inquiry: human inquiry,
-non-human inquiry, inquire of the person. What is a human inquiry? People go to
-see Buddha, worldom ask [question]: Zhubichu asked, Zhubichuni asked, Zhu Youzai
-asked, Zhuu Youbou asked, the kings asked, Zhuchar Dili asked, Brahman asked,
-Zhuvisha asked, the capital of the Dala asked, Those who are in the house ask,
-and those who came out of the house ask, this is
 
-What is a non-human inquiry? The people went to see Buddha, worldom asked
-questions: dragons asked, Goldwingbirds asked, all Yashura asked, Asurah asked,
-Zhu Kandah asked, the great kings asked, the Indra asked, the gods asked, the
-angels asked, this is inhumane Asked.
 
-What is a Questioning? Where the color of Worldom's creative ideas, all limbs
-and limbs, there is no shortage of roots, the man went to see the Buddha,
-worldom after asking questions, worldom answer [he], this is the inquiring man's
-inquiry. This is three kinds of inquiry.
 
-The next three kinds of inquiries: inquiries for their own interests, for the
-benefit of others, and for the benefit of both. The next three kinds of
-inquiries: when the interest of life, the interest of the future, the supreme
-interest inquiry. The next three types of inquiry: no fault interest inquiry,
-non-pollution-free interest inquiry, clear interest inquiry. The next three
-kinds of inquiry: [about] past inquiry, future inquiry, current inquiry. The
-next three kinds of inquiry: [about] inquire within itself, inquiry outside
-itself, inquire inside and outside of itself, of. The next three kinds of
-inquiry: [about] good inquiry, bad inquiry, unbearable inquiry. The next three
-kinds of inquiry: [about] Inquiry of Yun, inquiry of the community, inquiry at.
-The next three kinds of inquiry: [about] enquiry of reckless, inquiry of
-honorable, inquiry of divine foot. The next three kinds of inquiry: [about]
-inquiry of root, inquiry of force, inquiry of Kakusui. Next Three kinds of
-inquiry: Inquiry of the Road, Inquiry of Fruit, Inquiry of Nirvana.
 
-I ask thee, 'I ask thee; I beg thee; I beg thee; thou shalt make me clear; tell
-me, tell me. ' “Worldworld,” this is synonymous with respect... Anrai (Kana),
-the testimony of “Worldworld.” “Please tell me this,” please say, please
-explain, please tell you, please tell, please build, please uncover, please
-explain, please explain, please explain, please explain.” For Worldhotel I ask
-you, please tell me this.
 
-Because then, the Brahman said:
 
-“[Like this, the Rich House of His Holiness:] Those who do not disturb, and the
-Seeing of the Root, have the need come in question,
 
-And what immortal people, people, the Cartilis, and the Brahmen to the angels,
 
-There are many sacrifices here in the world? Worldworld, I ask you, Tell me
-this.”
+
+
 
 13. [Worldroom: “Rich Nagar!”] And any of these fairy people, people, the
     Chadirites, and the Brahmen to the angels,
