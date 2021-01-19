@@ -190,64 +190,37 @@ The immortals, people, Kshatriyas, Brahmins,
 Are there many sacrifices in the world here? Lord, I ask you, please tell me
 this.
 
-----
-CHECKPOINT
-----
+TODO: "I look forward", or "looking forward"? Check with the Pali.
+13. [Blessed One: "Fu Lou Na Ge!"] Any of these immortals, people, Kshatriyas,
+Brahmins and gods,
+There are many sacrifices here in the world! Looking forward to
+this state of [reincarnation], relying on their aging as sacrifices (???).
 
-13. [World Zun: "Fu Lou Na Ge!"] Any of these fairies, people, Kshatriyas,
-    Brahmins and gods,
+"Any of these immortals, people": (omitted, see previous)...
+"Kshatriyas, Brahmins to the gods": (omitted, see previous)...
+"There are many sacrifices in the world": (omitted, see previous)...
 
-There are many sacrifices here in the world, Fu Lou Na Ge! Looking forward to
-this state of [reincarnation], relying on their aging as animal sacrifices.
-
-"Any of these immortals, people": ""everything", all completely, completely in
-every aspect, without surplus, the whole earth, this is the word used
-everywhere, it is "anything". "Fairy people" , The name of the immortal, any
-monk who becomes a hermit (immortal), a monk, an evil man, Ni Qiantuo, a
-knotter, and an ascetic. "People" are called human beings." It is [世尊: "富"
-Lou Na Ge!"] Any of these immortals, people.
-
-"Kshatriyas, Brahmins to the gods": "'Kshatris,' everything that is born of
-Kshatriya.'Brahmins', whoever calls others gentlemen.'To the gods', evil fate
-The evil destiny of the disciples outside the gods... (omitted) The location
-gods of the guardians of the direction ring, and those who are worthy of
-offering to them are their gods." For the Kshatriya, the Brahmins and the gods.
-
-"There are many animal sacrifices in the world": ""Sacrifice" is called donation
-(casting method): clothing, food, shelter, necessities of the patient, medical
-necessities, food, beverages... (abbreviated) , Houses, lamps and candles. "As
-animal sacrifices." Anyone who seeks, pursues, and begs for animal sacrifices
-all over... , All over the clothing, food, shelter, necessities of the sick,
-medical necessities, food, drinks... (omitted) those who lie in bed, house, lamp
-and candle, they also make animal sacrifices. "Many", these animal sacrifices
-are many, or the priests of these animal sacrifices are many, or these are
-worthy of support are many... (omitted) This is or these are worthy of support
-are many. "Here is in the world", in the human world. "For many sacrifices in
-the world here.
-
-"Fu Lou Na Ge! Looking forward to thisThe state of [reincarnation]": ""Looking
-forward", looking forward to the acquisition of coloring; looking forward to the
-acquisition of sound; looking forward to the acquisition of smell; looking
-forward to the acquisition of taste; looking forward to the acquisition of
-touch; looking forward to the acquisition of his son; Looking forward to the
-acquisition of his wife; looking forward to the acquisition of property; looking
-forward to the acquisition of fame; looking forward to the acquisition of
-sovereignty; looking forward to the acquisition of individuals in the Kshatriya
-home with the Great Hall; looking forward to the acquisition of individuals in
-the Brahmin home with the Great Hall ; Looking forward to the acquisition of
-individuals in the homes of the homeowners with the Great Hall; Looking forward
-to the acquisition of individuals in the four kings of heaven; Looking forward
-to being in the sky...In the sky of night...In the sky of Tusita...In Hua In
-optimism...in the heavens of others...in the Brahman heavens the individual
-gains, wanting, accepting, aspiring, eagerly looking forward, and praying." For
+"Looking forward to the state of [reincarnation]": ""Looking forward", looking
+forward to the acquisition of form; looking forward to the acquisition of sound;
+(omitted)...of smell; ...of taste; ...of touch; ...of his son; ...of his wife;
+...property; looking ...fame; ...sovereignty; ...of individuals in the Kshatriya
+home with the Great Hall; ...of individuals in the Brahmin home with the Great
+Hall; ... ofindividuals in the homes of the homeowners with the Great Hall;
+...of individuals in the four kings of heaven; looking forward to being in the
+sky... in the sky of night...in the Tusita heaven... In wisdom... in optimism...
+in the heavens of others... in the Brahman heavens; the individual gains,
+wanting, accepting, aspiring, eagerly looking forward, and praying." For
 anticipation.
 
-"Fu Lou Na Ge! [I look forward to] such a state of [reincarnation]": "I look
+"Looking forward to such a state of reincarnation": "Looking
 forward to the rebirth of the individual here; I look forward to the rebirth of
-the individual here in the Kshatriya home with the Great Hall... (omitted)
-Looking forward to the rebirth of the individual here in the Brahma Heaven,
-wanting, receiving, aspiring, eagerly looking forward, and praying." For Fulou
-Nage! Looking forward to this state of [reincarnation].
+the individual in the Kshatriya home with the Great Hall... (omitted)
+...wanting, receiving, aspiring, eagerly looking forward, and praying."
+Looking forward to this state of [reincarnation].
+
+----
+checkpoint
+----
 
 "They depend on aging as animal sacrifices": "Those who depend on aging, those
 who are sick, those who depend on death, those who depend on sorrow, grief,

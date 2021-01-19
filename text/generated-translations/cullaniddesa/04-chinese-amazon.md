@@ -15,57 +15,6 @@
 
 
 
-
-13. [Worldroom: “Rich Nagar!”] And any of these fairy people, people, the
-    Chadirites, and the Brahmen to the angels,
-
-There are many sacrifices here in the world, Fu Lou Nagar! I look forward to the
-“reincarnation] state and make sacrifice in accordance with the aging of them.
-
-“All these fairy people and people”: “Whom whatsoever, all completely, in every
-aspect, without any surplus, the whole land, this is the word of all, for
-“whosoever.” “Immortals”, named fairy people, whoever came out into hermit
-(fairy), out of the house, wicked outdoers, Nigantas, the hair of the hair, the
-bitter. “People” are called human. For [Worldhotel: “Rich Nagar!”] Where any of
-these fairy people, people.
-
-“The Chaldiriers and the Brahmen to the angels”: “The Chaldiriers,” whosoever is
-born of the Ch “Brahmen,” whoever calls a gentleman to someone else. “To the
-angels,” the wicked outdoers of the wicked aisterways the angels... (middle) the
-position of the retakers, the angels who are worthy of support for them are
-their angels.” For the Chamdiriers and the Brahmen to the angels.
-
-“There are many sacrifices here in the world”: “The sacrifice is called a
-sacrifice: clothing, feeding, shelter, patient needs, medical necessities, food,
-drinks... (middle) bed, premises , lamp candles. “For sacrifice”, whosoever they
-seek, seek, and seek for a sacrifice... they bedridden, houses, and candles,
-they also make sacrifice: whosoever they give, feed, and dwellings, give, feed,
-and dwellings, Patients whose needs, medical necessities, food, drinks...
-(medium) bedridden, premises, light candles, they also make sacrifices. “Many,”
-these sacrifices are many, or the priests of these sacrifices are many, or these
-are many worthy of the breadwinner... “This is in the world,” in the world of
-men.” To make sacrifices for many here in the world.
-
-“Rich House Nagar! Looking forward to this[Reincarnation] State”: “Looking
-forward”, looking forward to coloring; looking forward to the acquisition of
-sound; looking forward to the acquisition of smell; looking forward to the
-acquisition of taste; looking forward to the acquisition of the son Looking
-forward to the acquisition of his wife; Looking forward to the acquisition of
-property; to the acquisition of prestigious reputation; Looking forward to the
-acquisition of sovereignty; looking forward to the acquisition of individuals in
-Chatilee's home in the General Assembly Hall; The individual access of Brahmen
-family; looking forward to the individual acquisition of the house owner's home
-in the City Hall; looking forward to the acquisition of individuals in the four
-kings heaven; looking forward to the day... in the night in the sky... ... In
-Rakuten... in his comfort... in the Heavens of the individual gain, want,
-accept, hope, pray for, pray.” Looking forward to.
-
-“Rich House Nagar! [Looking forward to] this [reincarnation] state”: “Looking
-forward to the regeneration of the individual here; looking forward to the
-regeneration of the individual in Cha Tirie's home with the City Hall... The
-regeneration of the individual, wanting, accepting, hoping, looking for, pray.
-For the rich building Naga! I look forward to such [reincarnation] state.
-
 “They make a sacrifice according to the aging of them”: “Stop the aging, the
 sick, the dead, by sorrow, sorrow, bitterness, worries, and despair. When they
 are born, then they are those who stop aging, and when they are in the order of

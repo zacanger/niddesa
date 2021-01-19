@@ -32,7 +32,12 @@ This translation prefers Pali over Sanskrit terms (Dhamma vs. Dharma, kamma vs.
 kamma, etc.), and chooses to forgo diacritics and accents, as those are both
 difficult to work with in English-language software, and difficult for most
 native English speakers to understand. To paraphrase Engels, changing the words
-we use a bit won't change the things themselves.
+we use a bit won't change the things themselves. I have also omitted and
+abbreviated stanzas which were repeated verbatim. The repetitious style is
+common in the ancient sources because it was an aid for memorization and
+recitation, but it is the translator's opinion that this tends to harm
+readability in printed text. The reader is assumed to be able to fill in the
+gaps.
 
 ### Credits and Licenses
 
