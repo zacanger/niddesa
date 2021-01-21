@@ -1,99 +1,40 @@
 ## 5
 
-4. Explanations asked by the Brahmin of Mairegu student
+4. Explanations asked by student Mairegu
 
 18. [Venerable Maitreya like this:] Lord, I ask you, please tell me this. I
-    think you are a person who knows the Vedic and has personally practiced.
-
+  think you are a person who knows the Vedas, and has personally practiced.
 From where did these sufferings come into being: all kinds of different forms in
-any world?
+any world? (??)
 
 "Master! I ask this, please tell me this": ""I ask", there are three kinds of
-queries: the query of the explanation of the unseen, the query of the confluence
-of the seen, and the query of the cut-off of doubt. What is unseen The question
-of the explanation of the question? It was originally an unknowed, unseen,
-unmeasured, unjudged, unclear, unclear characteristic, for the purpose of his
-wisdom, seeing, measuring, judging, clear, and understanding Purpose, he asked a
-question, which was an inquiry of unseen explanation.
+queries: the query of the explanation of the unseen (...omitted, see previous).
 
-What is the confluence of what you see? It was originally a characteristic that
-was known, seen, measured, judged, clear, and understood. He asked questions for
-the purpose of confluence with other wise men. This is a question of confluence
-of seen.
+"I ask you", (...omitted).
 
-What is the question of cutting off doubt? It was originally a jump-in (Sri
-Lanka version) doubter, jump-in doubter, and doubter: "Is that so? Isn't it
-true? what is it then? How is it? He asks questions for the purpose of severance
-of doubt. This is an inquiry of severance of doubt. These are three types of
-queries.
-
-The next three kinds of inquiry: human inquiry, non-human inquiry, and human
-inquiry. What is a human inquiry? Everyone asked questions after they went to
-see the Buddha and the World-Honored One: asked bhikkhus, bhikuni, yobosai,
-yoboyi, kings, kshatriya, brahmins, and vishas, The heads of the dhara asked,
-the lay people asked, the monks asked, this is a human question.
-
-What is an inhuman inquiry? The non-people asked questions after they went to
-see the Buddha and the Blessed One: asked the dragons, asked the golden-winged
-birds, asked the yasha, asked the asuras, asked the gandapo, asked the kings,
-asked the Indra, asked the Brahmas , Asked the gods, this is an inhuman inquiry.
-
-What is the inquiry of the huaren? [Fan] The physical body produced by the
-creation intention of the Blessed One, all the limbs and limbs, do not lack all
-the roots. The transfiguration went to the Buddha and the Blessed One to ask
-questions, and the Blessed One answered [him]. This is a transhumanistic
-inquiry. These are three types of queries.
-
-The next three kinds of inquiry: inquiry for one's own benefit, inquiry for the
-benefit of others, and inquiry for the benefit of both. The next three
-inquiries: inquiries about current interests, inquiries about future interests,
-and inquiries about highest interests. The next three kinds of inquiry: inquiry
-of the benefit of no fault, inquiry of the benefit of no pollution, and inquiry
-of the pure benefit. The next three types of queries: [about] past queries,
-future queries, and current queries. The next three inquiries: [about] inquiries
-within oneself, inquiries outside oneself, and inquiries within and outside
-oneself. The next three inquiries: [about] good inquiries, unkind inquiries, and
-non-remembering inquiries. The next three types of queries: [about] Yun, Jie,
-and Chu. The next three inquiries: [About] Inquiry about Mindfulness, Inquiry
-about Diligence, Inquiry about Spiritual Content. The next three kinds of
-inquiry: [about] the root inquiry, the strength inquiry, the enlightenment
-inquiry. The next three kinds of inquiry: inquiry of Tao, inquiry of fruit,
-inquiry of Nibbana.
-
-"I ask you", I ask you; I beg you; I ask you; you make me clear; "Please tell
-me," ask you for me. "World Zun", "This is a synonym for respect...
-(abbreviated) Anri (pseudonym) who testified, namely World Zun." "Please tell me
-this", please say, please explain, please teach, please inform, please build,
-please uncover, please analyze, please clarify, please explain. "For the Lord, I
-ask you, please tell me this.
-
-"[Like this Venerable Maitreya]": "Like this, the continuation of sentences...
-(Omitted)" is [Like this Venerable Maitreya].
+"[Like this Venerable Maitreya]": (...omitted).
 
 "I think you are a person who knows the Vedas and who have personally
-practised": I think you are a "vedic acquaintance", I think you are a "person
-who has practised myself", I know so; I know so; I agree ; I am so thorough. "A
-person who knows the Veda, who has already practiced himself", but how is the
-Blessed One who knows the Veda? The Veda is called wisdom, wisdom, root of
-wisdom, power of wisdom, dhamma enlightenment, investigation, vipassana, right
-view in the four realms. The Blessed Ones are those who have reached the
-ultimate (target) who have life, old, and died in the Vedic; those who have
-reached the ultimate, those who have reached the end; those who have reached the
-end, those who have reached the boundary (ultimate); those who have reached the
-boundary, have reached the end ; Those who have reached the end, those who have
-reached the rescue center; those who have reached the rescue center, those who
-have reached the refuge; those who have reached the refuge, those who have
-reached the refuge; those who have reached the refuge, those who have reached no
-terror; have reached There is no terror, there is no dead; there is no dead,
-there is no dead; alreadyThose who reach the undead are those who have reached
-Nibbana; those who have reached Nibbana. Or "the one who has reached the Vedas"
-is the one who knows the Vedas, or "the one who has reached the Vedas" is the
-one who knows the Vedas, or the known state of the Seven Dhamma is the one who
-knows the Vedas: see and be known , Suspicion of being known, refraining from
-being known, greed [being known], anger [being known], ignorance [being known],
-slow being known, and its evil and unwholesome methods are known: succumbing to
-polluting, recurring, fearing It's hard to pay, and it will live and die in the
-future.
+practised": I think you are "aware of the Vedas". I think you are a "person who
+has practised yourself", I know so; I agree. "A person who knows the Vedas, who
+has already practiced himself", How is the Blessed One one who knows the Veda?
+The Vedas are called wisdom, the root of wisdom, power of wisdom, dhamma
+enlightenment, investigation, vipassana, right view of the four realms. The
+Blessed Ones are those who have reached the ultimate (target), who have lived,
+aged, and died in the Vedas; those who have reached the ultimate, those who have
+reached the end, those who have reached the boundary;  those who have reached
+the refuge; those who have reached the shelter, those who have reached no fear;
+have arrived without being dead; those who reach the undead are those who have
+reached Nibbana. Or "the one who has known the Vedas" is the one who knows the
+Vedas, or the known state of the Seven Dhammas is the one who knows the Vedas:
+to be seen and known, suspicion being known, refraining from being known, greed
+[being known], anger [being known], ignorance [being known], sloth being known,
+and its evil and unwholesome methods are known: succumbing to polluting,
+recurring, fearing, and it will live and die in the future.
+
+----
+CHECKPOINT
+----
 
 [World Zun: "Sexy!"][Sn.3.6, 534偈]
 
