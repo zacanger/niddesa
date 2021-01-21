@@ -1,185 +1,1031 @@
 4. Statement by Maitregus student Brahman
- 18. [Like this, His Holiness Maitrekus:] Worldly I ask you, Tell me this, I think you are the Vedas, and have been practiced in person,
- From where are these bitterness generated: Where in any world of all sorts?
- “Worldworld! I ask this, please tell me this. “I ask, “I ask,” there are three kinds of inquiries: an inquiry of the unseen description, an inquiry of the intercourse of the seen, and the intermittent inquiry. What is an unseen description inquiry? It was an unknown, unseen, unmeasured, unjudged, unclear, unknown, unknown, for his wisdom, seeing, measuring, judging, clear purpose, and clear purpose, he asked questions, this is not Inquire of the description of the seen.
- What is the interrogations of the Seen Conflux? It was a known, seen, measured, judged, clear, and understood special feature. He asked questions for the purpose of co-flow with other wise people, which was seen.
- What is the interrogations of the cut off of doubts? It was a leap into (Sri Lanka version) skeptics, leapfrogging into doubters, born doubts: 'Is it so? Is it not like that? What is it? How is it? He asked questions for the purpose of disconnection of doubts, which is the question of the cut off of doubt. This is three kinds of inquiry.
- The next three kinds of inquiry: human inquiry, non-human inquiry, inquire of the person. What is a human inquiry? People went to see Buddha, worldom asked questions: Zhubicchu asked, Zhubichuni asked, Zhu Youzai asked, Zhu Youbai asked, the kings asked, Zhuchar Dili asked, Brahman asked, ZhuBisha asked, the capital of the Dala asked, those who were in the house Ask, those who came out of the house asked, this is a man's inquiry
- What is a non-human inquiry? The people went to see Buddha, worldom asked questions: dragons asked, Goldwingbirds asked, all Yashura asked, Asurah asked, Zhu Kandah asked, the great kings asked, the Indra asked, the gods asked, the angels asked, this is inhumane Asked.
- What is a Questioning? [Where] the color of Worldzum creative ideas, all limbs and limbs, there is no shortage of roots, the man who went to see Buddha, Worldom asked questions, Worldom answered [he], this is the inquiring man's inquiry. This is three kinds of inquiry.
- The next three kinds of inquiries: inquiries for their own interests, for the benefit of others, and for the benefit of both. The next three kinds of inquiries: when the interest of life, the interest of the future, the supreme interest inquiry. The next three types of inquiry: no fault interest inquiry, non-pollution-free interest inquiry, clear interest inquiry. The next three kinds of inquiry: [about] past inquiry, future inquiry, current inquiry. The next three kinds of inquiry: [about] inquire within itself, inquiry outside itself, inquire inside and outside of itself, of. The next three kinds of inquiry: [about] good inquiry, bad inquiry, unbearable inquiry. The next three kinds of inquiry: [about] Inquiry of Yun, inquiry of the community, inquiry at. The next three kinds of inquiry: [about] enquiry of reckless, inquiry of honorable, inquiry of divine foot. The next three kinds of inquiry: [about] inquiry of root, inquiry of force, inquiry of Kakusui. Next Three kinds of inquiry: Inquiry of the Road, Inquiry of Fruit, Inquiry of Nibbana.
- I ask thee, I ask thee; I beg thee; I beg thee; thou hast made me clear; tell me, tell thee for me. “Worldworld,” “This is synonyms of respect... Anli (Kana), the testimony of (middle).” “Please tell me this,” please say, please explain, please tell you, please tell, please build, please uncover, please explain, please explain, please explain, please explain.” For Worldhotel I ask you, please tell me this.
- “[As His Holiness such as Maitrekus]”: “Like this, the continuation of the sentence... (middle)” is [His Holiness such as Mailecus].
- “I think you are the Vedas and have been practiced in person”: I think you are a “Veda-aware”, I think you are “personally practiced”, I know so; I know so; I agree so Throughout. “The Vedas know, have practiced in person”, and how is Worldworld who knows the Vedas? Vedas are called in four ways of wisdom, wisdom, Wagan, witty, choice of approach, study, Bishana, positive view. Worldworld is to those who have lived and die of Vedas have reached the ultimate (target); who has reached the ultimate, has reached the end; those who have reached the border (exactly); those who have reached the border, have reached the end; has reached the end; Reach the terminator, has arrived at the ambulance; has arrived at the shelter, has arrived at the refuge, has arrived at the place of return, has arrived at the place of return, has arrived no terrorist; has arrived the person without terror, has arrived No dead; has arrived without dead, has arrived to the undead;To the undead, to the Nibbana; has reached the Nibbana. Or “the ultimate in the veda” is a vedic, or “to the ultimate of the veda” as the veda is known, or the seven laws of the know state of Vedas are known, suspected to be known, forbidden Knowing, greedy [be known], [known], devil [be known], slow to be known, its evil laws are known: the polluted, then there, fear, bitter fruit, the future will live and die.
- [Worldworld: “Color Forced Asia!”] [Sn.3.6, 534]
- “Choose all the vedas, whosoever belongs to Salmon and Brahman, which exists here,
- He is a vedic who knows everything from greed, beyond all Vedas.”
- This is Worldom is the Vedas know.
- How is Worldship a person who has been practiced in person? Worldship is a person who has been practiced, a person who has practiced the heart, has practiced the wisdom, the person who has practiced, has studied the gods, has learned the root, the person who has learned the strength, the person who has learned, the person who has learnt, the person who has practiced. Those who have cut off the polluter, the one who has passed unshaken, has testified to him that bitterness has been known, set off, the way has been practiced, has testified, has been known, known to be known, has been cut off Those who have been dismissed, and who have been practiced, and have testified should be testified, a few, large, very deep, immeasurable, difficult to understand in depth, and many treasures, such as the sea, are those who possess six calmness:
- After seeing color, neither happy nor sad and live in calm, mindfulness, mindfulness; ear listening to the sound... after the smell of the nose... after taste the tongue... after touching the touch... after the touch of consciousness, neither Happy is not sad and live in calm, mindfulness, knowledge [DN.33 six permanent residence].
- After seeing color, the consensual color he does not seek, dislike, do not make greed, his body is already standing, the heart is already established, and his heart is built up, liberated, and, after seeing the unintended color, does not become The discouraged, untenable heart, sorrow without mind, and unintentional malice, his body is abated, and his heart is established, and his heart is righteously built and liberated.
- After seeing color, in the color of consensual and unconsensual are standing, the heart has been established, good relief within itself; after listening to the voice... (middle) in consciousness after knowledge law, in the consensual and unconsensual The law of this is a man who has lived, the heart has lived, and is established by good faith and relief [SN.46.6].
- To see color, will not be dyed on the dye, will not be angry on the angry, will become stupid on the same idiot, in the anger will not be angry on the drunken, in the polluting on the polluted; Ear listening to the voice... (middle) after consciousness law, will not be dyed on the dyed, will not be angry on anger, will become stupid on the will become stupid, not angry on the angry will not be drunk , Do not pollute on polluting.
- There is only so much in what you see; in what it is only heard so much; in the perception only perceive so much; in what we know so much [SN.35.95], not seen Contamination; It is not contaminated in what it is known; it is not contaminated in what we know, it is no obsession, [morality] undetrimental, unrestrained. He has been freed from the bound, and he dwells away from the restrained heart; in what he heard... (medium) is known to be the unobsession, the undestructed, the unbound, the unbound. He has been freed, and he dwelt away from the restrained heart.
- Worldemn has (exist) eyes, worldly eyes, worldly no greedy, worldly heart relief; worldrone has ears, worldly ears listening, worldly no greedy, worldly heart free; worldly nose, worldly smells with nose, Worldless greedy, worldrespect good relief; worldly tongue, worldly tongue taste, worldly no greedy, worldly good relief; worldly body, worldly touch, worldly no greedy, worldly heart free; worldrespect Witful, Worldworld with the law of consciousness, worldly no greed, worldly heart relief [SN.35.232].
- Eyes joy in color, joy in color, joy in color, Worldhotel has relegated, guarded, guarded, protected, and taught to it's homemade law; ears joy in the sound... (medium) nose in the smell Joy... tongue joy in the taste, joy in the taste, joy in the taste, such as to be relegated, guarded, guarded, protected, and taught about its homemade law, in the touch of joy, in the touch Joy in the middle, and joy in the touch, if it is relegated, guarded, protected, guarded, and guarded,And teach its own law, intended to rejoice in law, joy in law, joy in the law, such as revolved, guarded, guarded, protected, and taught about it [MN.75].
- “They guide [the dragon elephant] which has been reigned into the rally, and the king ascend to the re
- He who has been reconciled is the most victorious among men, and reproach him
- And the horse of the donkey that has been revolved is a great victory, and the ste
- And Kungalah (elephant) is a dragon elephant, and the self-reign is even better.
- It is true that you do not take these cars, can go to the unreached direction,
- According to self-regulation, the reordinate to the reordinate to go. [Dhp. 321-323]
- They are unwavering in all kinds of slowness and become freed regenerators,
- They have reached the revolt, they are the winners in the world. [SN.22.76]
- Whosoever whose roots have been practiced, both inside and outside: in the world,
- Piercing this with His world, and he is a trainee waiting for death: He is the one who has reordinated. [Sn.3.6, 521]
- Worldship is a person who has been personally practiced.
- “I think you are a vedic, a person who has personally practiced, from where these bitterness was born”: “From where”, questioning of doubts, confusion questions, doubts, and more than one question, so is a counter-question , questioning the anti-speech, exactly why, in the end why?” For where. “Bitter”, bitterness, old, sickness, death, sorrow, grief, despair, loss, the bitterness of hell, the bitterness of the animal world, the bitterness of the evil world, human suffering, rooted in the birth of the bitterness, rooted in the womb , rooted in the bitterness of the birth, the living dependent, the living by others (placed) the suffering of others, the suffering of their own actions, bitterness, suffering, suffering, suffering, easy suffering, eye disease, ear disease, nose disease, tongue Disease, Body Disease, Head Disease, External Ear Disease, Mouth Disease, Tooth Disease, Cough, Asthma, External Nose Disease, Fever, Old, Abdominal Disease, Coma, Dysentery, Abdominal Pain, Cholera, Leprosy, Tumor, Ringworm, Lung Disease, , Scratching (a kind of disease), cracked skin, blood-bladder disease, diabetes mellitus, hemorrhoids, rash (boil blisters), hemorrhoid fistula (ulcer), bile disease, diseases such as phlegm, diseases such as wind Collection of diseases, diseases born from seasonal changes, diseases born from improper posture, sudden strikes, diseases of the industry, cold, heat, hunger, thirst, dung, urine, with fly mosquitoes The suffering of contact, the death of the mother, the death of the father, the death of a brother, the death of the sister, the death of the son, the death of the daughter, the loss of the family [, the loss of wealth], the loss of disease, 、See the suffering of the decay。 From the very beginning of these laws, they were known; from extinction and extinction was known, the fruit report is based on the industry; the trade is based on the fruit newspaper, the name is based on color, and the color is based on name. Being followed by life, being accompanied by life, followed by old, conquered by illness, by death, in bitterness to live, no shelter, no refuge, no return, no return, these are called bitter. Where are these bitterness generated from? Where was born? From where is it generated? From where is it happening? Where was born? From where is it appeared? What is the cause? What is its set? What is its life? What is its root? He inquired about the root of these bitterness; he asked why; he questioned why; he asked about birth; he asked about it; he asked about food; he asked about his fate; he asked about the fate; he asked the set, he asked, he asked, begging, Request, make it clear.” For from where these bitterness is generated.
- “Whosoever is in every world of different kinds”: “Whosoever, all completely, in every aspect, completely, without residue, the whole land, this is the words of all over, for “whatsoever.” “In the world,” in the worlds of bitterness, in the world of mankind, in the world of heaven, in the world of the world, in the world of worlds, in the world. “A variety of different kinds”, various kinds of bitterness. For all kinds of different shapes in any world.
- Because then, the Brahman said:
- “[His Holiness such as this, Maitrekus:] Worldly I ask you, Tell me this, I think you are the Vedas, and have practiced himself,
- From where are these bitterness generated: where in any world of all sorts?”
- 19. [Worldplace: “Mylagus!”] You ask me about the occurrence of my bitterness, and I will say it for you as the know:
- For reasons of suffering occurs: all kinds of different kinds in any world.
- “Ask me about the occurrence of bitterness”: “The bitter, the bitter, the old, the sick, the dead, the sorrow, sorrow, sorrow, the desperate. 『You askAsk Hit, you ask the root of the bitterness; you ask why; you ask why; you inquire about birth; you ask what happens; you ask the food; you ask the origin; you ask about the origin; you ask the set, you ask, you ask, Begging, asking, and making it clear.” For you do ask me about the occurrence of bitterness. “Maitregus,” Worldman named the Brahman by name. “Worldworld,” this is synonymous with respect... Anri (Kana), the testimony of (medium), that is Worldworld.” for [Worldhotel: “Mylagus!”].
- “I will say it as the one who knows for you”: 'That 'I will say the cause of the bitterness; I will say cause; I will say birth; I will say it; I will say it; I will say it; I will speak; I will say what I will say; I will speak. ; I will say set, I will explain, I will teach, I will tell, I will build, I will uncover, I will interpret, I will clarify, I will explain.” For me will say that for you. “Such as the Knower,” such as the Knower, the Knower, the other, the know, the interviewer, non-rumor, not from the wind smell, not from inheritance, not from the teachings of the Book, not from logic, non-reasoning, not due to theoretical reflection, I will say that the opinion accepted after meditating is self-proof and self-evidenced by myself.” I will say that to you as you know.
- “On the basis of the cause of suffering”: “Follow”, there are ten bases: the basis of thirst love, the attachment to see, the basis of the pollution, the attachment of the industry, the basis of evil, the basis of the food, the evil, the four The basis of the six, the basis of the six types of knowledge, and all the bitterness of heart, these are ten. “Suffering”, suffering, old, sickness, death, sorrow, sorrow, sorrow, despair suffering... (medium) see the erosion of the suffering. From the very beginning of these laws, they were known; from extinction and extinction was known, the fruit report is based on the industry; the trade is based on the fruit newspaper, the name is based on color, and the color is based on name. Being followed by life, being accompanied by life, followed by old, conquered by illness, by death, in bitterness to live, no shelter, no refuge, no return, no return, these are called bitter. These bitterness occurs, generated, born, born, born, born on the basis of the reason, according to the reason, according to the cause of the link.” For the reason for the cause of suffering occurs.
- “Whosoever is in every world of different kinds”: “Whosoever, all completely, in every aspect, completely, without residue, the whole land, this is the words of all over, for “whatsoever.” “In the world”, the worlds of bitterness, the world of mankind, the world of heaven, the worlds of the world, the world of worlds, in the world “A variety of different kinds”, various kinds of bitterness. For all kinds of different shapes in any world.
- Because then, Worldman said:
- “[Worldmark: 'Milagus! '] You ask me about the occurrence of my bitterness, and I will say it for you as the know:
- The suffering happens for reasons: all kinds of different kinds in any world.”
- 20. whosoever is unwise to follow, bitterness and again reach the foolish,
- Therefore, those who know should not follow: the birth of bitterness, and the followers of the generation.
- “Whosoever is unwise”: “Whosoever is like, such as an effort, such as arrangement, as the kind, where he has arrived, and every Brahman, or Bisha, or the Godala, or who is at home, Or out of the house, or days, or people. The Unwise are those who have entered the unwise, the unwise, the indifferent, the inferior. “Deeds”, the basis for thirst love, the basis of the opinion, the basis for pollution, the basis of the operation, the basis for evil deeds, the basis of food, the act of evil, the attachment of the four, the foundation of the six To make the basis of six kinds of knowledge, to produce it, make it produce, make it live, and make it born. For whosoever bears the unwise.
- “The bitter and again reach the foolish”: “'suffer, old, sick, death, sorrow, sorrow, sorrow, sorrow, despair and bitterness come again and again, complete arrival, arrival, hold, take, persistence.” For bitter arrives repeatedly. The foolish, the foolish, the obscurred, the unwise, the unwise, the unwise, the unwise, the unwise, the unwise, the unwise For bitter and again to reach the foolish.
- “Therefore, those who know should not follow”: “Therefore, that reason; that cause; that cause; that cause, when seeing this oversuffering on the basis.” For that. The Knower, the Knower, the Knower, the others, the know, the know, and the interviewer: 'All doings are indefin'... (medium) 'All doings are no me'... (medium) 'All works are extinct. ' Knower, Knower, Someone else, the Knower, the Intermediate. “Should not be followed”, should not be the basis of thirst love,The basis that should not be seen, should not be polluted, should not do evil, should not be food, should not be evil, should not be used as a basis for four enforcement circles, should not be six internal According to, should not be the basis of six types of knowledge, should not be produced, should not make it produce, should not make it born, should not be born.” For that reason those who know should not follow.
- “The bitter: the bitter, the old, the sick, the dead, and the sorrow of sorrow, the desperate. “The generation of the followers”: the root of bitterness, the cause of the followers, the reason of the followers, the birth of the followers, the generation of the followers, wait for the followers, the eaten followers, the followers of the Spectator. Observation is called wisdom, that is Hui, understanding... (medium) insane, choice, positive. Having, fully having, arriving, fully arriving, fully sufficient, fully sufficient, with this beacon, he is called a follower.” For the birth of bitterness, the generation of followers.
- Because then, Worldman said:
- “Whosoever is unwise to follow, and come to the foolish again and again,
- Therefore, those who know should not follow: the birth of bitterness, and the followers of the generation.”
- 21. whoever we ask you you tell for us, we will ask you the other, come! Please tell you about that,
- How are the wise men who are born, old and sorrow, and sorrow, and sorrow?
- Please Muni explain this thoroughly for me, because like this you are the knower of these laws.
- “Whosoever we ask thee thou speak for us”: “Whosoever we ask thee, and whosoever we beg, we ask, make us clear. “You tell us” is told, explained, explained, taught, taught, built, uncovered, parsed, articulated, illustrated.” For whosoever we ask you you tell for us.
- “We have to ask you the rest, come on! Tell you about it”: “We will ask you other; we will beg thee for others; we will ask thee others; we want you to make others clear; and we will ask thee the better. 『Come on! Tell me about that, come on! Please tell you; please explain; please teach; please inform; please you build; please you uncover; please interpret; please clarify; please explain.” For us to ask you the other, come on! Please tell you about that.
- “How do the wise people more and more plunge, birth, aging and sorrow, grief”: “how”, “questioning of doubts, confusion questioning, questioning doubts, more than one question, so as to be counter-questioning, doubt Reflection, why, in the end why?” For how it is. “Wise” is the wise, the wise, the wise, the wise, the sense, the wise, the difference, the wise. “Storm”, the flow of desire, some of them, see the storm, an unclear storm. “Birth”, in all living beings, about each kind of life, birth, birth, entry into [fetus], birth, all present, get to the place. “Aging”: all beings, about the aging, aging, tooth fall, whitening, wrinkles, life decline, degradation of the roots. “grief”, by the loss of relatives (unfortunate) touching, or loss of property, or loss of disease reached, or loss of ring (loss) touch, or see the loss of contact, have (encounter) certain losses, Contact some of the bitterness grief, grief, state of sorrow, internal sorrow, internal sorrow, internal burning, internal burning, burning heart, sorrow. “Sadness”, by the loss of relatives touched... (middle) or see the loss (loss) touch, have (encounter) certain loss (unfortunate), contact with certain bitterness people have sadness, sorrow, weeping, weeping, lament state of sorrow, state of sorrow, words, useless words, mumbling, weeping, weeping, cry.
- “How are the wise men who are born, aging and sorrow, and grief?”: “How do the wise men spend, transcend, pass, pass through, overcome, overcome the flux, birth, aging, sorrow, grief and sorrow?” For the wise, how are the more torrents, born, aging and sorrow, and sorrow?
- “Let Moni explain it thoroughly for me”: “That, whosoever I ask; whosoever I beg; whosoever I ask, and whosoever makes me clear. “Muni”, Mun is known as wisdom, that is Hui, understanding... (medium) insane, choice of method, positive view, worldhotel has that wisdom for Mune, to reach Mune. There are three types of Muni bits (perfect virtue): Muni-bit, Muni-language, imuni bit.
- What is a Muni-bit? Three kinds of evil deeds to be the Muni; three kinds of good acts of the Muni; in the body of wisdom for the Muni; the body is known as the Muni bit; and the way to travel with all known as the Muni; About the bodyDetermination of desire and greed to be a Muni position; the fourth Zen of [income] extinguished, and so on to be the Muni, which is the position of Muni.
- What is the language Muni bit? The four words of evil deeds are the word Muni bit; four languages of good deeds; in the language of wisdom is the language of the Muni bit; the word is known as the muni bit; and the word is the muni bit; about the desire and greed The break is the word Muni bit; the word line [seek servo] extinguish the second Zen and so on to the word Muni, this is the language of the
- What is Imuni Bit? Three kinds of evil deeds are cut off for Munii; Three kinds of good deeds imony; in the heart of the wisdom of the Munii position; the heart is known as Munii position; and all know the way to Muni; About the desire and greedy of the heart The disconnection is meant to be the Muni; the desire of the heart of extinction is imuni, this is the imuni.
- “Muni, language Muni, Yimuni for no worries,
- Munies had a foot in the place of Munies, and they said they were all the
- Muni, language Muni, Yimuni for no worries,
- Muni is full of the place of Muni, and they say that evil is cleansed.
- There are six types of Munii with these three methods: “Munii at home, homeless muni, learnless muni, no school Muni, Luchimuni, Muni [of the middle] Muni.” Which are at home Muni? Those who saw the footsteps, and had known the commandments in their families, these were in the house of Muni. Which are homeless Muni? These are those who see their footsteps, and who have known the commandments, are in the house of Muni. Seven kinds of learning to learn Munii, Arrohan for no school Muni, Buddha for a womuni, such as to, arohan, all the way for the Muni-Muni.
- “Not to Mune (silence) as a Mune, an unwise man of disshape,
- After lifting the scale, take the top and become a wise person.
- Avoiding the evil, the Muni, because of that, he became Muni,
- Whosoever understands both [inside and outside] in the world, because that is said to be Muni.
- Knowing the law of the bad and the good in all the world, both inside and outside,
- He is Muni after being fed by heaven and man, and beyond the dyed net.”
- “Thorough explanation”, please explain it thoroughly; please teach, please inform, please build, please uncover, please explain, please clarify, please explain.” To ask Muni to explain it thoroughly for me. “For like this you are the know of these laws”: “For like this you are the know, the measure, the judge, the clear, the clear, the clear.” Because like this you are the know of these laws.
- Because then, the Brahman said:
- “Whosoever we ask thee you tell for us, we will ask you the rest, come! Please tell you about that,
- How are the wise men who are born, old and sorrow, and sorrow, and sorrow?
- Please Muni explain this thoroughly for me, because like this you are the knower of these laws.”
- 22. [Worldplace: “Mylagus!”] I will tell you the law, in the life and not the rumor,
- Whosoever knows after the mind of the walker, can live through the love of the world.
- “I will tell you the law”: “Law”, the beginning is good, the middle is good, the end is good; meaning is correct, the words are correct; only complete, clean, all the way: four mindfulness, four gods, five Force, Seven Signs, Eight Sacred Trails, Nibbana and the Traces of Nibbana, I will tell, I will teach, I will tell, I will build, I will uncover, I will interpret, I will clarify, I will explain.” For me will tell you the law. “Maitregus”, Worldman named the Brahman by name.
- “When born and not rumors”: “In the life,” in the law which is seen (in the life); in the law known; in the law being measured; in the law which is made clear: “All things are unconstant”... “Any set of law is extinction” is in the law seen (in the law of life); in the law known; in the law of measure; and in the law that is made clear, so I shall speak in the living. Or I will tell you the bitterness of what is seen; and We will tell you the set of which is seen; and We will tell you the way which is seen, and I will tell you the destruction of what is seen, This is also what I will tell in life. Or, when born as “directly visible, immediate, you are invited to see, able to guide, the wise man should experience himself.” This is what I will talk about when I am living.” To be born in. “Non-rumor”, non-rumor, not from the wind smell, not from the inheritance, not from the teachings of the Bible, not from logic, non-reasoning, not because of theoretical reflection, not because of contemplation of the opinion received, is personally known, The law of self-proofing, I will talk about that.”For when born rather than rumors.
- “All walkers who know after the knowledge, after measurement, after judgment, after division, after the clear: 'All lines are indefinate' after the known, measured, judged, after separation, after figuring out; Everything is bitter... “All law is without me”... (middle) “Any collection is extinction method” after being known, measured, judged, after separation, and after figuring out. “Mindful” is mindful in four ways: when practicing in the body is mindful... (middle) he is called the mindful. “Passer”, when you go, live, act, turn up, guard, make survival, make survival. For whosoever knows after the mindful walker.
- “Can live through the world of love”: “love” is called thirsty love, that is greed, lust (total greed)... (medium) greed, greedy, bad roots. “Love”, what is love? “Dispersed” for love; “vast” for love; “widespread” for love; “wrong” for love; “it forcibly” for love; “it seize” for love; “fraudulent” for love; “poison” for Love; “poison” for love; “poison used” for love; or, “the vast thirst love: in color... voice... smell... touched... home... housing... benefits... Fame... praise... happy... clothes... feeding... sitting equipment... patient needs and medical necessities... desires circles... color circles... colorless... want to have... colorless... want to have... ... I don't want to have... just want to have... there is... four has... five endowments... past... future... now... see, smell, feel, can be enlarged in the methods of knowledge” for love . “In the world”, in the worlds of bitterness, in the world of mankind, in heaven, in the worlds of the world, in the world of worlds, in the world. “Can live through the love of the world”: “The love in the world, or the world should love [Ni.1], he can spend, transcend, pass, overcome.” To be able to spend love in the world.
- Because then, Worldman said:
- “[Worldmark: 'Milagus! '] I will tell you the law, in the life and not the rumor,
- “Whosoever knows after the mindful walker can live through the love of the world.”
- 23. I rejoice it, Daisen! The supreme law,
- Whosoever knows after the mind of the walker, can live through the love of the world.
- “I rejoice that”: “That,” your words, your way, teaching, admonition, admonition. “I rejoice,” I rejoice; I rejoice; I rejoice; I want, I take, I beg, I beg, I hope, I pray. I rejoice that for me.
- “Daisen! Supreme Law: “Tai Sin”, why is Worldplace a Tai Sin? “Seeker, Seeker, Seeker, Seeker” is Tai Sin; Tai Ding Yun... (Central) Dahui Yun... Great Escape... “Seeker, Seeker, Seeker, Seeker” is Tai Sin; “Darkness The Seeker of Broken Broken, Seeker, Seeker, Seeker, Seeker of the Overturned Destruction is Daisin; “Seeker of Broken, Seeker, Seeker, Seeker, Seeker, Seeker” Daisin; “The Seeker, Seeker, Seeker, Seeker, Seeker of Great Slow Banner” is Daisin; “The Seeker, Seeker, Seeker of the Great Slow Banner” is Daisin; “The Seeker, the Seeker of “The Seeker” is Tai Sin; “The seeker, the seeker, the seeker, the seeker of the Great Storm” is Daisin; “The burden of lay down the seeker, the seeker, the seeker” is Tai Sin; “Big revolving of the sever Seeker, Seeker, Seeker for Dai Sin; “Endured Seeker, Seeker, Seeker” is Tai Sin; “Great Enthusiasm Seeker, Seeker, Seeker” is Tai Sin; “Make Daffa The Seeker, Seeker, Seeker, Seeker” for Daisin; “The Great Recall... (Medium) The Great Attendance... The Great Roots... Great Eighth Holy Road... Big Eight Sacred Trail... The supreme interest of the undead Nibbana Seeker, Seeker, Seeker” is Tai Sin; “Seeking, Pursuing, Seeking by the Great Power: Where is the Buddha? Where is Worldplace? Where is the Tenjin in Tenjin? Where is the Cow King in Man? For Tai Sin. “Top method”, the top method is known as immortal, Nibbana, that is the end of everything, all according to the judgment, thirst of love extinction, from greed, extinction, Nibbana “The top, the first, the most winning, the winning, the first, the top, the highest, the most of the most.” For Daisen! The supreme law.
- “Whosoever knows after the mindful walker”: “[Where]After the known, measured, judged, after the difference, after the clear: “All lines are impermanent” after known, measured, judged, after separation, after figuring out; “All works are bitter”... 'All law is “No I” after the known, measured, judged, after the difference, after the clarification... (medium) “Any set method is extinguished” after the known, measured, after judgment, after the difference, after the identification. “Mindful”, in four ways: when the practice is mindful in the body, in the subject... (medium) in the heart... when practicing in the law follow the law to read... he was Called Mindful. “Passer”, when you go, live, act, turn up, guard, make survival, make survival. For whosoever knows after the mindful walker.
- “Can live through the world of love”: “love” is called thirsty love, that is greedy, lust... (medium) greed, greedy, bad roots. “Love”, what is love? “... (medium) is enlarged obsession” for love. “In the world”, in the worlds of bitter worlds... “Can live through the love of the world”: “He can spend in that loving world or in the world in which he is in love, can spend, transcend, can pass, overcome.” To be able to spend love in the world.
- Because then, the Brahman said:
- “I rejoice that, Daisen! The supreme law,
- “Whosoever knows after the mindful walker can live through the love of the world.”
- 24. [Worldplace: “Mylagus!”] Whosoever Thou knoweth, in the upper and lower, and in the middle,
- Rejoice and live in these, after removing the knowledge will not live.
- “Whosoever you know”: “Whosoever thou knowest, you know, and you know, you know, and you know it.” For whoever you know. “Maitregus”, Worldman named the Brahman by name. “Worldworld,” this is synonymous with respect... Anri (Kana), the testimony of (medium), that is Worldworld.” for [Worldhotel: “Mylagus!”].
- “On the top, down and in the middle”: “Upper” is the future, “Down” for the past, the “Middle Quartet” is the present; “Upper” is the world of heaven, “Down” is the world of Hell, and the “Middle Quartet” for mankind Worlds. Or, “upper” is good law, “lower” is bad law, the “middle four” is no remembered; “upper” is no color, “lower” is the boundary of desire, the “middle four” is the boundaries of color; “upper” is joy, and “down” is suffering, The “Middle Quartet” is not afflicted; “Above” is above the soles of the feet, “Down” is under the hair, and the “Middle Quartet” is in the middle. For the upper, bottom and middle Quartet.
- “Rejoice and dwell in these, and the knowledge removed will not dwell in there”: “On these”, in which they are explained, taught, told, built, uncovered, parsed, articulated, illustrated. Rejoice is called thirsty love, it is greed, lust... (medium) greed, greed, bad roots. There are two types of dwellings: the thirst of love dwelt and see dwell. How is thirsty love to live? All with thirsty love... (medium) It is thirsty to live in love. What is see live? There are twenty people who have seen... (medium) This is the living.
- “Knowledge after removal”: “The knowledge of the Fukke's trip, the knowledge of non-Fu line, the knowledge of the inaction trip [SN.12.51]. In these rejoicing with the living line (making) the knowledge of the trip removed, removed, after breaking, after exclusion, please give up, discard, dispel, end, make it come to absent.” To rejoice and live in these, after removing the knowledge.
- “Will not live in there”: “Yes”, there are two kinds: there are industry and life again. What is the industry? Fuxing, non-Fu line, no action, this is the industry. What is the cone again there? Born color, subject, want, line, knowledge, which is born again there. “Will not live in there”: “Rejoice with living line of knowledge and industry and life again have to break, depart, end, make it go to the non-existent, will not live in the industry; in life there will not live Stand, will not set.” For the removal of knowledge on there will not live.
- Because then, Worldman said:
- “[Worldmark: 'Milagus! '] You know all that is in the upper and lower, and in the middle,
- Rejoice and dwell in these, the knowledge after removal will not live in there.”
- 25. such dwelt, remembrance, and do not relax: the Picchu trailers forsaken after I
- Born, aging and sorrow, and grief, here the wise man can give off suffering.
- “Those who live in this way, take a mind, do not relax”: “'live like this (person) ', 'rejoice and live in the line of knowledge and industryAnd to be born again, dispel, dispel, and end, and make it to the non-existent.” For such dwellers. “Mindfulness” is a mindful in four ways: when the practice is on the body to take a look... (middle) he is called the mindful. “Unrelaxed” is a respectful author, a regular author, a nonstop author, a person who has not been adhered to, who does not neglect his will, who is not negligible in good law and unrelaxed; “How can I complete the unfinished ring Wun, or completed Wings can be funded everywhere?” Where he has the will, refined, courageous, hard, do not want, reckless, mindfulness, zealous, diligent, established, practiced, uncomfortable, not relax in good law; “How can I complete the unfinished destinations... (SILE) Hui Yun... How can I complete the unfinished liberation of wisdom, or a completed relief Wise can be funded everywhere?” Where he has the will, refinement, courage, hard work, do not fear, reckless, mindfulness, zealous, diligent, established, practiced, uncomfortable, not relax in good law; “How can I know the untold suffering, or can give away Can I break off uninterrupted pollution, practise an unlearned path, or testify against the destruction of the untestation?” Whosoever is there with the will, refinement, courage, hard work, not fear, reckless, mindfulness, zealous, diligent, established, practiced, uncomfortable, not in good law.” For such a living, mindful, not relaxing.
- “Bichu Stalker gave up after me”: “Bichu,” Zenvan Picchu, or learn Picchu. “Passer”, “When you go, live, act, turn up, guard, make survival, make survival.” “I do”, there are two kinds of things that I do: [for] the thirsty I do with the [because] I see... This is what I do... This is what I do... I have to give off thirst for love, after I have dismissed my longest love; After what I have done, after what I have done, after forsgiving, after forsgiving, after disconnection, after deportation, after the end, and after the end, that it may come to absent. and forsaken me for the Bichu Parker.
- “Birth, aging and sorrow, and sorrow, where the wise man can give off suffering”: “Born”, among all beings... (cum). “Aging”: among all beings... (medium slightly). “Grief”, was touched by the loss of the relatives (unfortunately)... (medium). “Sadness”, touched by the loss of relatives... (medium). “Here” belongs to this see... (medium) in this man's world. “The Wise” are those who have reached the clear, the wise, the wise, the wise, the wise. “Bitter”, bitterness... (medium) worry despair bitter. “Born, old and sorrow, and sorrow, and grief, and here the wise man can give off distress”: “The man who has arrived, the wise, the wise, the wise, the wise is born here, aging and sorrow, and sorrow, and sorrow, he can be disconnected, and can depart Can end and make it non-existent.” For birth, aging and sorrow, and grief, here the wise man can give off distress.
- Because then, Worldman said:
- “Those who dwelt in this way, and are mindful, and do not relax: and the Pichu trailers
- Born, aging and sorrow, and grief, here the wise man can give off his suffering.
- 26. I rejoice in the words of Daisen, which is well told: Qiao Tamo is a man who has no authority,
- Worldworld! For indeed you have given off the bitterness, for these laws like this have been known to you.
- “I rejoice the words of Daisin”: “This, your words, your way, teaching, admonition, admonition. “I rejoice,” I rejoice; I rejoice; I rejoice; I want, I take” [, I beg], I hope, I pray, I pray. “Tai Sin”, why is Worldplace Tai Sin? “Seeker, Seeker, Seeker, Seeker” is Daisin... Where is the cow king among the people?” For Tai Sin. I rejoice the words of Daisen.
- “The Good Testier: Joe is the Unfounded”: ““The good to tell, the good to tell, the good to preach, the good teaches, the good to teach, the good built, the good unveiled, the good interpreter, the good interpreter, the good Explanation, good explanation. Tarring for good. “Jo Tamo is the unfit”, according to what is known as the pollution and the creation of the creations. According to the break, according to the calm, according to the conception, according to the stop, undead, Nibbana. To be told for good: Jo Tamo is the unbearable.
- “Worldworld! Because it is true that you have cut off the bitterness”: “Yes”, this is the decisive (always) word, a word of doubt, a word of confidence, no doubt, a word of instruction, a word without error [, the words of no failure ], this is the word of sure, is “true.” “Worldworld,” “This is synonyms of respect... Anli (Kana), the testimony of (middle).” “You have cut off the bitter, bitter, old bitterSickness, death, sorrow, sorrow, and sorrow, despair, you have left off, forsaken, depart, and put an end, and made it to not exist.” For Worldworld! Because indeed you gave off the bitterness.
- “For like this you are the know of these laws”: “For like this you are the know, the measure, the judge, the clear, the clear, the clear.” Because like this you are the know of these laws.
- Because then, the Brahman said:
- “I rejoice in the words of Daisen, which is well told: Qiotamo is the unwary.
- Worldworld! For indeed you have given off your bitterness, for you know these laws like this.”
- 27. Indeed, they can also give off their suffering: Whoever you will constantly teach the commandment,
- I salute you after meeting you: dragon elephant! Perhaps Worldworld will constantly teach me.
- “Indeed, they can also give off their suffering”: “They are for Chthalie, Brahmen, Bisha, the Sudala, in the family, out of the family, the heavens, and men. “Can give off suffering, old, sickness, death, sorrow, sorrow, sorrow and sorrow, despair, they can discard, dispel, end, and make it to absent.” It is true that they can also be cut off.
- “Whomoney, you will constantly teach the commandments”: “Whosoever is the Chatriel, Brahmen, Bisha, the Sudala, in the family, out of the family, the heavens, “You,” he said Worldworld. “Muni”, Munna is known as Wisdom... (in the middle) after he was a muni after dyed net. “The commandments will be constantly taught, will be taught thoroughly, will be taught continuously, will be taught repeatedly, and will admonition.” For whomoney you will constantly teach the commandments.
- “After I met you, I salute you: Dragon Elephant”: “You,” he said Worldworld. “I salute”, I salute the body, or I salute in words, or with my heart, or I salute as it means, or I salute, respect, respect, respect, respect, respect [, respect]. “After meeting”, after meeting, fully met, met, met completely, fully met, I salute from before you. “Dragon Elephant”, “Dragon Elephant and Worldom do not sin” is a dragon elephant; “Do not go” is a dragon elephant; “Do not How is Worldnot to Do a Crime for a Dragon Elephant? Crimes are called the law of evil: polluted, re-existing, fearful, bitter, future life and death.
- [Worldworld: “Color forced Asia!”] [Sn.3.6, 527]
- “Do not commit any crime in the world, after leaving all bondages and bondages,
- Those who do not adhere to all things, which have been freed, are truly called dragon elephants.
- This is “no crime” for the dragon elephant.
- How is “Worldless Go” for a Dragon Elephant? Worldworld should not want to do; do not go away should not go anywhere; not obsession should not go anywhere; do not go horror should not go; not because of greed; not by obsession; not by obsession; not by slow; no Because of seeing; do not go because of the fall; not for doubt; not to worry about the potential trend to go; not to be quarrel (not and legal) law carry away, take away, carry, carry, carry. This is the Dragon Elephant.
- How is “Worldless Come” for a Dragon Elephant? Where to be cut off by the road of the pollution, those polluted he no longer experience, do not return, do not go back; by a way... (middle) is not rewarded... where the pollution is cut off by Arrohan Road, those polluted he no longer experience, Do not return, do not go back. This is “worldly not come” as a dragon elephant. I salute you after I met you: Dragon Elephant.
- “Perhaps Worldworld will constantly teach me”: “Maybe Worldworld will teach, teach thoroughly, teach continuously, and will teach me again.” For perhaps Worldworld will continue to teach me.
- Because then, the Brahman said:
- “Indeed, they can also give off their suffering: Whosoever you will constantly teach the commandments,
- I salute you after meeting you: dragon elephant! Perhaps Worldworld will constantly teach me.”
- 28. All that Brahmen can prove to be the knowledge of the vedas, who has no owner, desire and no obsession,
- Indeed, he has passed through the riot, and has passed the other side to be a desolate, no doubt.
- “Where Brahmen can prove to know the Vedas”: “Brahmen”, seven laws have been excluded from Brahmen: have been excluded, suspected excluded, forbidden is excluded, greedy excluded, ruled out, obsession excluded 、Slow to be excluded, those evil and bad laws are excluded: Shun polluted, then there, fear, bitter fruit, the future will live and die.
- [Worldworld: “Color forced Asia!”] [Sn.3.6, 524]
- After excluding all evil, the state of residence of the good entrant from the scale,
- He went beyond his reincarnation and became the perfect man, and something like this could be called himBrahmen.
- “Vedas know”: “Vedas are called the wisdom of the four ways... He is a Vedas who knows the Vedas after (medium) beyond everything.” “Be able to testify, know, know, be able to do not, be sure, be able to pass through.” For all Brahmen can prove to be the Vedas.
- “No owner, desire and no obsession”: “No owner”, greed is something; is a thing; stupid is a thing; slow is something; see is something; pollution is something; evil deeds are something, Whosoever for him has been cut off, cut off, calmed down, stopped, unable to be born, and burned by a wisdom fire, he is called the one who has no ownership. “Wills”, there are two kinds of desires: the desire of things and the desire to pollute... (middle) these are called the desires of things... (middle) these are called the desires of pollution. There are two kinds of “there are”: there are industry and life again... (medium slightly) This is the congenius again. “No owner, in the desire to be there is no obsession”: “A person who has no one who desires [and] to have a clutter, not attached, unobstructed, unobstructed, departed, laid down, freed, departed Bound, he dwelled away from the restricted heart. For those who have no owners, who want and have no adhesion.
- “Indeed, he spent on the storm”: “Indeed, it is a decisive (always) word... (middle) this is the word of certainty, it is “true.” “Storm”, the riot of desire, some of them, the riot of sight, an unclear storm. “Having passed,” he overtook, passed, passed, passed, passed through. To be sure he spent on the storm.
- “And they have passed through the other side as the desolate, no doubt”: “Have passed, the riot of desire has passed; some of them have passed; the riot of sight has passed; and the riot of unclear has passed; and the riot of reincarnation has passed, Transcendent, Crossed, Crossed, Overcome, He is Descended, Actor Actor, Completed Journey, Has Arrived, Has Arrived, Has Arrived, Has Been Ganswalker, Has Been Ganswalker, Reach Highest Seekers, those who have practiced, those who have cut off the polluters, those who have passed unshaken, and who have testified, for whom the bitterness is known, set off, the way has been practiced, and has testified, has been known to be known It is known that those who have been cut off shall be discarded, and those who have been practiced shall be practiced, and testify shall be testified. He is the one who has been removed, the ditch is filled, the column has been pulled up, the latch, the saint flag has fallen, the burdens have been removed, the separated, five disconnected, six possesses, one guardian, four Trust is those who have removed their own truths, those who seek to be outraged and completely decimated, those who have no intention of turbid, those who have done serenity, those who are liberated in good faith, the supreme who have been fully completed, the supreme, the supreme, the supreme, the proven With great achievements, he is neither composed nor disassembled, does not build up, does not stand after stacking up; neither dissipates nor performs, and does not disperse (Thailand version) nor accumulate, dispersed after standing; neither extinguishes nor ignites, After extinguishing [SN.22.79], is a state with no school absentee... (middle) [no school] Ding... [no school] Hui Yun... [no school] escape... See the Yun state of the already established, completed, through the true (meaning) after the already established, over disturbance (embezzlement) after the already established, the polluting fire extinguished after the extinguishment of the flame, the person who has no longer come to the state of standing, has For [victory] after the grasp has already lived, by the state of relief has already lived, the mercy of pure already standing, sadness... (medium) joy... calm all over the pure has been established, the pure has already lived No equivalent state (Ceylon version) all over the pure resident, the liberated state of the resident, the satisfied state of the already established, the already established on the boundary (exactly), the already standing on the boundary (what), the already standing on the boundary A person who has stayed at the border, a person who has been erected at the border of the place (fun), a person who has been established on the boundary of the past, the person who has lived on the boundary of birth, the person who has been established at the boundary of existence, the person who is in a revolving The man who has stayed on the border, the one who has stayed on the rotational border, the one who has stayed above the last, the man who has stayed on the last assembly (body), Arrohan with the last body.
- “This is his last, this is the last gathering (body),
- Life and death reincarnation, without his regeneration.
- “Have passed the other side”: the other side is called immortal, Nibbana, that is all done, all according to the judgment, thirst for the extinction of love, away from greed, annihilation, He is the one who has arrived on the other side; He who has reached the other side, has reached the ultimate (target); He who has reached the end; He who has reached the end of the border; He who has reached the border, has reached the terminator; has reached the terminator, has arrived at the rescue home; has arrived at the shelter, has arrived at the refuge, has arrived at the place of return, has arrived at the place of return, has arrived the person without terror; Arrived without terror, has arrived no dead; has arrived no dead, has arrived to the undead, has arrived the undead, has arrived the Nibbana; He has reached the Nibbana, he is a person who has descended the state, has practiced the act... Life and death reincarnation, without his regeneration. For having spent the other shore.
- “No desolate”: greedy barren, barren, barren, angry barren, resentment barren... (middle) all bad creation of the barren, for him these desolation has been cut off, cut off, was Calm down, stopped, could not be born, burned by wisdom fire, he was called a non-deserted man. “Undoubted”: Doubt in bitterness, doubt in bitterness, doubt in bitterness, suspicion in the path of bitterness, suspicion in the foreground, suspicion in the background, in The law of suspicion of certain conditions, such as such doubt, doubts, doubts, doubts, confusion, hesitation, doubts, intersections (doubts), doubts, not always clenched, doubtful, hesitant, ununderstood, stiff The state, the heart is confused, for him these doubts have been cut off, severed, calmed down, stopped, unable to be born, burned by wisdom fire, he is called the unskeptical.” For those who have passed across the other shore are not desolate, no doubts.
- Because then, Worldman said:
- “Whosoever is known to Brahmen who know the vedas, who has no owner, and who has no obsession in desire and with
- Indeed, he has passed through the riot, and has passed the other side as a desolate, no doubt.”
- 29. the wise men and those who know the veda are here, after all kinds of dyed and discarded,
- He is a man of thirst, no distress, no desire, and I say he spent “birth, aging.”
- “Here are all the wise, and those who know the vedas”: “The wise man is [the wise,] who has come to the wise, the wise, the wise, the wise, the wise. “Where”, whoever is like... or a person. “Known Vedas”, Vedas are known in four ways of wisdom, wisdom, Wagan, Wise, choice of approach, study, Bisherna, positive view. To those who have lived and died in Vedas have reached the end (target); who has reached the ultimate, has reached the end point, has reached the border (exactly); those who have reached the border, has reached the end; has reached the end (b) Persons who have arrived at the shelter; those who have arrived at the shelter; those who have arrived at the refuge, have arrived at the place of return, have arrived at the place of return, to the person without terror; he has reached the person without terror, no dead; Has arrived the undead, has arrived the undead; has arrived the undead, to the Nibbana; has reached the Nibbana. Or “to the ultimate of the veda” is a vedic who knows the veda, or the Vedas has been known as the Vedas to the ultimate, or the seven laws of the already known state of Vedas: have known, suspected... (medium) forbidden Take... greedy... devil... slow to be known, its evil law is known: Shun polluted, then there, fear, bitter fruit, the future will live and die.
- [Worldworld: “Color forced Asia!”] [Sn.3.6, 534]
- Select all the Vedas, whosoever belongs to the existence here of Salmon, Brahmen,
- In all feelings of greed, beyond all Vedas he is a familiar Vedas.
- Human beings, human beings, students Brahmen, people, individuals, lives, to born, affection, to Indra, Monu born. “Here,” belongs to this see... in this man's world.” Here is for the wise and those who know the veda.
- “After the dyed of the kind”: “In the seed,” in the seed of the trade, in the desire to have, in the etiquity of desire, in color; in the colourless Then there; in the colorless industry, in there is a time and again; in the fun, in the past, in the birth of a repeated life, in the birth of a repeated individual. “Dyed”, there are seven kinds of dyes: greedy dyed, dyed of skepness, slow-dyed, stained in sight, polluted stained, dyed of evil deeds. “After discarding”, after giving up on dyed, or in dyeing, in bondage, on enlarged bondage, on entangled, attached, on the hindrance, on the obstructed, in a tie On being shocked behind (?) To be discarded, such as car ride, or car, or carriage, or wagon, or chariot, or chariot should be transported [people, objects] released (discarded) after they are placed, destroyed. In the same way, after giving up on the dyed, after abandoning, or in the dyed,After the bondage, on the enlarged bondage, on the entangled, on the attached, on the one that is fixed, on the one that is obstructed, and after being shocked on the binding. To be separated on a kind of dyed.
- “He is a man who is away from thirst, no distress, no desire, I say he spent “birth and aging”: “thirsty love” as the color of “thirsty love”... The thirst love of the law. Whoever for him thirst has been cut off, cut off, calmed down, stopped, incapable of being born, burned by wisdom fire, he is known as the one who desists from thirst, the one who has forsaken the thirst, the one who forsaken the thirst of the love, the The thirst loving, giving off the thirst lover, the detriment of the thirst, away from the greedy, abandon the greedy [, exclude the greedy, free from the greedy], dismiss the greedy, the unhungry, the cooled, the cooled, the feeling of happiness And dwelt himself as a man who has been born, he is a man from thirst. “No distress”, greed is distressed; He is distressed; Fury is distressed; Anger is distressed; resentment is distressed... The man who was cut off, calmed down, stopped, could not be born, was burned by wisdom fire, he was called the untroubled. “No desire”, the desire is called thirsty love, that is greed, lust... (medium) greed, greedy, bad roots. Whoever for him this desire is cut off, cut off, calmed down, stopped, unable to be born, burned by wisdom fire, he is called the unwilling. “Born”, all living beings... (medium) have been found. “Aging”, the degradation of all beings... (medium) roots, which is called old. “He is a man who is desperate from thirst, no distress, no desire, and I say he spent 'birth and aging. '”: “Whoever he is a man who is desperate from thirst, without distress, and without desire, “born, old and dead, he does spend, Transcend, pass, cross, overcome. ' I said, I explain, I teach, I tell, I build, I uncover, I interpret, I clarify, I explain.” For he is a man from thirst, no distress, no desire, I say he spent “birth, aging.”
- Because then, Worldman said:
- “Here the wise, and those who know the vedas, after they are dyed with all kinds,
- He is a man who is desperate, no distress, no desire, and I say he spent 'birth, aging. '
- At the end of the Ode... (medium) “Daedeu! Worldson is my teacher, I am a disciple.”
- The description asked by Maitregus student Brahman fourth [Completed].
+
+18. [Like this, His Holiness Maitrekus:] Worldly I ask you, Tell me this, I
+    think you are the Vedas, and have been practiced in person,
+
+From where are these bitterness generated: Where in any world of all sorts?
+
+“Worldworld! I ask this, please tell me this. “I ask, “I ask,” there are three
+kinds of inquiries: an inquiry of the unseen description, an inquiry of the
+intercourse of the seen, and the intermittent inquiry. What is an unseen
+description inquiry? It was an unknown, unseen, unmeasured, unjudged, unclear,
+unknown, unknown, for his wisdom, seeing, measuring, judging, clear purpose, and
+clear purpose, he asked questions, this is not Inquire of the description of the
+seen.
+
+What is the interrogations of the Seen Conflux? It was a known, seen, measured,
+judged, clear, and understood special feature. He asked questions for the
+purpose of co-flow with other wise people, which was seen.
+
+What is the interrogations of the cut off of doubts? It was a leap into (Sri
+Lanka version) skeptics, leapfrogging into doubters, born doubts: 'Is it so? Is
+it not like that? What is it? How is it? He asked questions for the purpose of
+disconnection of doubts, which is the question of the cut off of doubt. This is
+three kinds of inquiry.
+
+The next three kinds of inquiry: human inquiry, non-human inquiry, inquire of
+the person. What is a human inquiry? People went to see Buddha, worldom asked
+questions: Zhubicchu asked, Zhubichuni asked, Zhu Youzai asked, Zhu Youbai
+asked, the kings asked, Zhuchar Dili asked, Brahman asked, ZhuBisha asked, the
+capital of the Dala asked, those who were in the house Ask, those who came out
+of the house asked, this is a man's inquiry
+
+What is a non-human inquiry? The people went to see Buddha, worldom asked
+questions: dragons asked, Goldwingbirds asked, all Yashura asked, Asurah asked,
+Zhu Kandah asked, the great kings asked, the Indra asked, the gods asked, the
+angels asked, this is inhumane Asked.
+
+What is a Questioning? [Where] the color of Worldzum creative ideas, all limbs
+and limbs, there is no shortage of roots, the man who went to see Buddha,
+Worldom asked questions, Worldom answered [he], this is the inquiring man's
+inquiry. This is three kinds of inquiry.
+
+The next three kinds of inquiries: inquiries for their own interests, for the
+benefit of others, and for the benefit of both. The next three kinds of
+inquiries: when the interest of life, the interest of the future, the supreme
+interest inquiry. The next three types of inquiry: no fault interest inquiry,
+non-pollution-free interest inquiry, clear interest inquiry. The next three
+kinds of inquiry: [about] past inquiry, future inquiry, current inquiry. The
+next three kinds of inquiry: [about] inquire within itself, inquiry outside
+itself, inquire inside and outside of itself, of. The next three kinds of
+inquiry: [about] good inquiry, bad inquiry, unbearable inquiry. The next three
+kinds of inquiry: [about] Inquiry of Yun, inquiry of the community, inquiry at.
+The next three kinds of inquiry: [about] enquiry of reckless, inquiry of
+honorable, inquiry of divine foot. The next three kinds of inquiry: [about]
+inquiry of root, inquiry of force, inquiry of Kakusui. Next Three kinds of
+inquiry: Inquiry of the Road, Inquiry of Fruit, Inquiry of Nibbana.
+
+I ask thee, I ask thee; I beg thee; I beg thee; thou hast made me clear; tell
+me, tell thee for me. “Worldworld,” “This is synonyms of respect... Anli (Kana),
+the testimony of (middle).” “Please tell me this,” please say, please explain,
+please tell you, please tell, please build, please uncover, please explain,
+please explain, please explain, please explain.” For Worldhotel I ask you,
+please tell me this.
+
+“[As His Holiness such as Maitrekus]”: “Like this, the continuation of the
+sentence... (middle)” is [His Holiness such as Mailecus].
+
+“I think you are the Vedas and have been practiced in person”: I think you are a
+“Veda-aware”, I think you are “personally practiced”, I know so; I know so; I
+agree so Throughout. “The Vedas know, have practiced in person”, and how is
+Worldworld who knows the Vedas? Vedas are called in four ways of wisdom, wisdom,
+Wagan, witty, choice of approach, study, Bishana, positive view. Worldworld is
+to those who have lived and die of Vedas have reached the ultimate (target); who
+has reached the ultimate, has reached the end; those who have reached the border
+(exactly); those who have reached the border, have reached the end; has reached
+the end; Reach the terminator, has arrived at the ambulance; has arrived at the
+shelter, has arrived at the refuge, has arrived at the place of return, has
+arrived at the place of return, has arrived no terrorist; has arrived the person
+without terror, has arrived No dead; has arrived without dead, has arrived to
+the undead;To the undead, to the Nibbana; has reached the Nibbana. Or “the
+ultimate in the veda” is a vedic, or “to the ultimate of the veda” as the veda
+is known, or the seven laws of the know state of Vedas are known, suspected to
+be known, forbidden Knowing, greedy [be known], [known], devil [be known], slow
+to be known, its evil laws are known: the polluted, then there, fear, bitter
+fruit, the future will live and die.
+
+[Worldworld: “Color Forced Asia!”] [Sn.3.6, 534]
+
+“Choose all the vedas, whosoever belongs to Salmon and Brahman, which exists
+here,
+
+He is a vedic who knows everything from greed, beyond all Vedas.”
+
+This is Worldom is the Vedas know.
+
+How is Worldship a person who has been practiced in person? Worldship is a
+person who has been practiced, a person who has practiced the heart, has
+practiced the wisdom, the person who has practiced, has studied the gods, has
+learned the root, the person who has learned the strength, the person who has
+learned, the person who has learnt, the person who has practiced. Those who have
+cut off the polluter, the one who has passed unshaken, has testified to him that
+bitterness has been known, set off, the way has been practiced, has testified,
+has been known, known to be known, has been cut off Those who have been
+dismissed, and who have been practiced, and have testified should be testified,
+a few, large, very deep, immeasurable, difficult to understand in depth, and
+many treasures, such as the sea, are those who possess six calmness:
+
+After seeing color, neither happy nor sad and live in calm, mindfulness,
+mindfulness; ear listening to the sound... after the smell of the nose... after
+taste the tongue... after touching the touch... after the touch of
+consciousness, neither Happy is not sad and live in calm, mindfulness, knowledge
+[DN.33 six permanent residence].
+
+After seeing color, the consensual color he does not seek, dislike, do not make
+greed, his body is already standing, the heart is already established, and his
+heart is built up, liberated, and, after seeing the unintended color, does not
+become The discouraged, untenable heart, sorrow without mind, and unintentional
+malice, his body is abated, and his heart is established, and his heart is
+righteously built and liberated.
+
+After seeing color, in the color of consensual and unconsensual are standing,
+the heart has been established, good relief within itself; after listening to
+the voice... (middle) in consciousness after knowledge law, in the consensual
+and unconsensual The law of this is a man who has lived, the heart has lived,
+and is established by good faith and relief [SN.46.6].
+
+To see color, will not be dyed on the dye, will not be angry on the angry, will
+become stupid on the same idiot, in the anger will not be angry on the drunken,
+in the polluting on the polluted; Ear listening to the voice... (middle) after
+consciousness law, will not be dyed on the dyed, will not be angry on anger,
+will become stupid on the will become stupid, not angry on the angry will not be
+drunk , Do not pollute on polluting.
+
+There is only so much in what you see; in what it is only heard so much; in the
+perception only perceive so much; in what we know so much [SN.35.95], not seen
+Contamination; It is not contaminated in what it is known; it is not
+contaminated in what we know, it is no obsession, [morality] undetrimental,
+unrestrained. He has been freed from the bound, and he dwells away from the
+restrained heart; in what he heard... (medium) is known to be the unobsession,
+the undestructed, the unbound, the unbound. He has been freed, and he dwelt away
+from the restrained heart.
+
+Worldemn has (exist) eyes, worldly eyes, worldly no greedy, worldly heart
+relief; worldrone has ears, worldly ears listening, worldly no greedy, worldly
+heart free; worldly nose, worldly smells with nose, Worldless greedy,
+worldrespect good relief; worldly tongue, worldly tongue taste, worldly no
+greedy, worldly good relief; worldly body, worldly touch, worldly no greedy,
+worldly heart free; worldrespect Witful, Worldworld with the law of
+consciousness, worldly no greed, worldly heart relief [SN.35.232].
+
+Eyes joy in color, joy in color, joy in color, Worldhotel has relegated,
+guarded, guarded, protected, and taught to it's homemade law; ears joy in the
+sound... (medium) nose in the smell Joy... tongue joy in the taste, joy in the
+taste, joy in the taste, such as to be relegated, guarded, guarded, protected,
+and taught about its homemade law, in the touch of joy, in the touch Joy in the
+middle, and joy in the touch, if it is relegated, guarded, protected, guarded,
+and guarded,And teach its own law, intended to rejoice in law, joy in law, joy
+in the law, such as revolved, guarded, guarded, protected, and taught about it
+[MN.75].
+
+“They guide [the dragon elephant] which has been reigned into the rally, and the
+king ascend to the re
+
+He who has been reconciled is the most victorious among men, and reproach him
+
+And the horse of the donkey that has been revolved is a great victory, and the
+ste
+
+And Kungalah (elephant) is a dragon elephant, and the self-reign is even better.
+
+It is true that you do not take these cars, can go to the unreached direction,
+
+According to self-regulation, the reordinate to the reordinate to go. [Dhp.
+321-323]
+
+They are unwavering in all kinds of slowness and become freed regenerators,
+
+They have reached the revolt, they are the winners in the world. [SN.22.76]
+
+Whosoever whose roots have been practiced, both inside and outside: in the
+world,
+
+Piercing this with His world, and he is a trainee waiting for death: He is the
+one who has reordinated. [Sn.3.6, 521]
+
+Worldship is a person who has been personally practiced.
+
+“I think you are a vedic, a person who has personally practiced, from where
+these bitterness was born”: “From where”, questioning of doubts, confusion
+questions, doubts, and more than one question, so is a counter-question ,
+questioning the anti-speech, exactly why, in the end why?” For where. “Bitter”,
+bitterness, old, sickness, death, sorrow, grief, despair, loss, the bitterness
+of hell, the bitterness of the animal world, the bitterness of the evil world,
+human suffering, rooted in the birth of the bitterness, rooted in the womb ,
+rooted in the bitterness of the birth, the living dependent, the living by
+others (placed) the suffering of others, the suffering of their own actions,
+bitterness, suffering, suffering, suffering, easy suffering, eye disease, ear
+disease, nose disease, tongue Disease, Body Disease, Head Disease, External Ear
+Disease, Mouth Disease, Tooth Disease, Cough, Asthma, External Nose Disease,
+Fever, Old, Abdominal Disease, Coma, Dysentery, Abdominal Pain, Cholera,
+Leprosy, Tumor, Ringworm, Lung Disease, , Scratching (a kind of disease),
+cracked skin, blood-bladder disease, diabetes mellitus, hemorrhoids, rash (boil
+blisters), hemorrhoid fistula (ulcer), bile disease, diseases such as phlegm,
+diseases such as wind Collection of diseases, diseases born from seasonal
+changes, diseases born from improper posture, sudden strikes, diseases of the
+industry, cold, heat, hunger, thirst, dung, urine, with fly mosquitoes The
+suffering of contact, the death of the mother, the death of the father, the
+death of a brother, the death of the sister, the death of the son, the death of
+the daughter, the loss of the family [, the loss of wealth], the loss of
+disease, 、See the suffering of the decay。 From the very beginning of these
+laws, they were known; from extinction and extinction was known, the fruit
+report is based on the industry; the trade is based on the fruit newspaper, the
+name is based on color, and the color is based on name. Being followed by life,
+being accompanied by life, followed by old, conquered by illness, by death, in
+bitterness to live, no shelter, no refuge, no return, no return, these are
+called bitter. Where are these bitterness generated from? Where was born? From
+where is it generated? From where is it happening? Where was born? From where is
+it appeared? What is the cause? What is its set? What is its life? What is its
+root? He inquired about the root of these bitterness; he asked why; he
+questioned why; he asked about birth; he asked about it; he asked about food; he
+asked about his fate; he asked about the fate; he asked the set, he asked, he
+asked, begging, Request, make it clear.” For from where these bitterness is
+generated.
+
+“Whosoever is in every world of different kinds”: “Whosoever, all completely, in
+every aspect, completely, without residue, the whole land, this is the words of
+all over, for “whatsoever.” “In the world,” in the worlds of bitterness, in the
+world of mankind, in the world of heaven, in the world of the world, in the
+world of worlds, in the world. “A variety of different kinds”, various kinds of
+bitterness. For all kinds of different shapes in any world.
+
+Because then, the Brahman said:
+
+“[His Holiness such as this, Maitrekus:] Worldly I ask you, Tell me this, I
+think you are the Vedas, and have practiced himself,
+
+From where are these bitterness generated: where in any world of all sorts?”
+
+19. [Worldplace: “Mylagus!”] You ask me about the occurrence of my bitterness,
+    and I will say it for you as the know:
+
+For reasons of suffering occurs: all kinds of different kinds in any world.
+
+“Ask me about the occurrence of bitterness”: “The bitter, the bitter, the old,
+the sick, the dead, the sorrow, sorrow, sorrow, the desperate. 『You askAsk Hit,
+you ask the root of the bitterness; you ask why; you ask why; you inquire about
+birth; you ask what happens; you ask the food; you ask the origin; you ask about
+the origin; you ask the set, you ask, you ask, Begging, asking, and making it
+clear.” For you do ask me about the occurrence of bitterness. “Maitregus,”
+Worldman named the Brahman by name. “Worldworld,” this is synonymous with
+respect... Anri (Kana), the testimony of (medium), that is Worldworld.” for
+[Worldhotel: “Mylagus!”].
+
+“I will say it as the one who knows for you”: 'That 'I will say the cause of the
+bitterness; I will say cause; I will say birth; I will say it; I will say it; I
+will say it; I will speak; I will say what I will say; I will speak. ; I will
+say set, I will explain, I will teach, I will tell, I will build, I will
+uncover, I will interpret, I will clarify, I will explain.” For me will say that
+for you. “Such as the Knower,” such as the Knower, the Knower, the other, the
+know, the interviewer, non-rumor, not from the wind smell, not from inheritance,
+not from the teachings of the Book, not from logic, non-reasoning, not due to
+theoretical reflection, I will say that the opinion accepted after meditating is
+self-proof and self-evidenced by myself.” I will say that to you as you know.
+
+“On the basis of the cause of suffering”: “Follow”, there are ten bases: the
+basis of thirst love, the attachment to see, the basis of the pollution, the
+attachment of the industry, the basis of evil, the basis of the food, the evil,
+the four The basis of the six, the basis of the six types of knowledge, and all
+the bitterness of heart, these are ten. “Suffering”, suffering, old, sickness,
+death, sorrow, sorrow, sorrow, despair suffering... (medium) see the erosion of
+the suffering. From the very beginning of these laws, they were known; from
+extinction and extinction was known, the fruit report is based on the industry;
+the trade is based on the fruit newspaper, the name is based on color, and the
+color is based on name. Being followed by life, being accompanied by life,
+followed by old, conquered by illness, by death, in bitterness to live, no
+shelter, no refuge, no return, no return, these are called bitter. These
+bitterness occurs, generated, born, born, born, born on the basis of the reason,
+according to the reason, according to the cause of the link.” For the reason for
+the cause of suffering occurs.
+
+“Whosoever is in every world of different kinds”: “Whosoever, all completely, in
+every aspect, completely, without residue, the whole land, this is the words of
+all over, for “whatsoever.” “In the world”, the worlds of bitterness, the world
+of mankind, the world of heaven, the worlds of the world, the world of worlds,
+in the world “A variety of different kinds”, various kinds of bitterness. For
+all kinds of different shapes in any world.
+
+Because then, Worldman said:
+
+“[Worldmark: 'Milagus! '] You ask me about the occurrence of my bitterness, and
+I will say it for you as the know:
+
+The suffering happens for reasons: all kinds of different kinds in any world.”
+
+20. whosoever is unwise to follow, bitterness and again reach the foolish,
+
+Therefore, those who know should not follow: the birth of bitterness, and the
+followers of the generation.
+
+“Whosoever is unwise”: “Whosoever is like, such as an effort, such as
+arrangement, as the kind, where he has arrived, and every Brahman, or Bisha, or
+the Godala, or who is at home, Or out of the house, or days, or people. The
+Unwise are those who have entered the unwise, the unwise, the indifferent, the
+inferior. “Deeds”, the basis for thirst love, the basis of the opinion, the
+basis for pollution, the basis of the operation, the basis for evil deeds, the
+basis of food, the act of evil, the attachment of the four, the foundation of
+the six To make the basis of six kinds of knowledge, to produce it, make it
+produce, make it live, and make it born. For whosoever bears the unwise.
+
+“The bitter and again reach the foolish”: “'suffer, old, sick, death, sorrow,
+sorrow, sorrow, sorrow, despair and bitterness come again and again, complete
+arrival, arrival, hold, take, persistence.” For bitter arrives repeatedly. The
+foolish, the foolish, the obscurred, the unwise, the unwise, the unwise, the
+unwise, the unwise, the unwise, the unwise For bitter and again to reach the
+foolish.
+
+“Therefore, those who know should not follow”: “Therefore, that reason; that
+cause; that cause; that cause, when seeing this oversuffering on the basis.” For
+that. The Knower, the Knower, the Knower, the others, the know, the know, and
+the interviewer: 'All doings are indefin'... (medium) 'All doings are no me'...
+(medium) 'All works are extinct. ' Knower, Knower, Someone else, the Knower, the
+Intermediate. “Should not be followed”, should not be the basis of thirst
+love,The basis that should not be seen, should not be polluted, should not do
+evil, should not be food, should not be evil, should not be used as a basis for
+four enforcement circles, should not be six internal According to, should not be
+the basis of six types of knowledge, should not be produced, should not make it
+produce, should not make it born, should not be born.” For that reason those who
+know should not follow.
+
+“The bitter: the bitter, the old, the sick, the dead, and the sorrow of sorrow,
+the desperate. “The generation of the followers”: the root of bitterness, the
+cause of the followers, the reason of the followers, the birth of the followers,
+the generation of the followers, wait for the followers, the eaten followers,
+the followers of the Spectator. Observation is called wisdom, that is Hui,
+understanding... (medium) insane, choice, positive. Having, fully having,
+arriving, fully arriving, fully sufficient, fully sufficient, with this beacon,
+he is called a follower.” For the birth of bitterness, the generation of
+followers.
+
+Because then, Worldman said:
+
+“Whosoever is unwise to follow, and come to the foolish again and again,
+
+Therefore, those who know should not follow: the birth of bitterness, and the
+followers of the generation.”
+
+21. whoever we ask you you tell for us, we will ask you the other, come! Please
+    tell you about that,
+
+How are the wise men who are born, old and sorrow, and sorrow, and sorrow?
+
+Please Muni explain this thoroughly for me, because like this you are the knower
+of these laws.
+
+“Whosoever we ask thee thou speak for us”: “Whosoever we ask thee, and whosoever
+we beg, we ask, make us clear. “You tell us” is told, explained, explained,
+taught, taught, built, uncovered, parsed, articulated, illustrated.” For
+whosoever we ask you you tell for us.
+
+“We have to ask you the rest, come on! Tell you about it”: “We will ask you
+other; we will beg thee for others; we will ask thee others; we want you to make
+others clear; and we will ask thee the better. 『Come on! Tell me about that,
+come on! Please tell you; please explain; please teach; please inform; please
+you build; please you uncover; please interpret; please clarify; please
+explain.” For us to ask you the other, come on! Please tell you about that.
+
+“How do the wise people more and more plunge, birth, aging and sorrow, grief”:
+“how”, “questioning of doubts, confusion questioning, questioning doubts, more
+than one question, so as to be counter-questioning, doubt Reflection, why, in
+the end why?” For how it is. “Wise” is the wise, the wise, the wise, the wise,
+the sense, the wise, the difference, the wise. “Storm”, the flow of desire, some
+of them, see the storm, an unclear storm. “Birth”, in all living beings, about
+each kind of life, birth, birth, entry into [fetus], birth, all present, get to
+the place. “Aging”: all beings, about the aging, aging, tooth fall, whitening,
+wrinkles, life decline, degradation of the roots. “grief”, by the loss of
+relatives (unfortunate) touching, or loss of property, or loss of disease
+reached, or loss of ring (loss) touch, or see the loss of contact, have
+(encounter) certain losses, Contact some of the bitterness grief, grief, state
+of sorrow, internal sorrow, internal sorrow, internal burning, internal burning,
+burning heart, sorrow. “Sadness”, by the loss of relatives touched... (middle)
+or see the loss (loss) touch, have (encounter) certain loss (unfortunate),
+contact with certain bitterness people have sadness, sorrow, weeping, weeping,
+lament state of sorrow, state of sorrow, words, useless words, mumbling,
+weeping, weeping, cry.
+
+“How are the wise men who are born, aging and sorrow, and grief?”: “How do the
+wise men spend, transcend, pass, pass through, overcome, overcome the flux,
+birth, aging, sorrow, grief and sorrow?” For the wise, how are the more
+torrents, born, aging and sorrow, and sorrow?
+
+“Let Moni explain it thoroughly for me”: “That, whosoever I ask; whosoever I
+beg; whosoever I ask, and whosoever makes me clear. “Muni”, Mun is known as
+wisdom, that is Hui, understanding... (medium) insane, choice of method,
+positive view, worldhotel has that wisdom for Mune, to reach Mune. There are
+three types of Muni bits (perfect virtue): Muni-bit, Muni-language, imuni bit.
+
+What is a Muni-bit? Three kinds of evil deeds to be the Muni; three kinds of
+good acts of the Muni; in the body of wisdom for the Muni; the body is known as
+the Muni bit; and the way to travel with all known as the Muni; About the
+bodyDetermination of desire and greed to be a Muni position; the fourth Zen of
+[income] extinguished, and so on to be the Muni, which is the position of Muni.
+
+What is the language Muni bit? The four words of evil deeds are the word Muni
+bit; four languages of good deeds; in the language of wisdom is the language of
+the Muni bit; the word is known as the muni bit; and the word is the muni bit;
+about the desire and greed The break is the word Muni bit; the word line [seek
+servo] extinguish the second Zen and so on to the word Muni, this is the
+language of the
+
+What is Imuni Bit? Three kinds of evil deeds are cut off for Munii; Three kinds
+of good deeds imony; in the heart of the wisdom of the Munii position; the heart
+is known as Munii position; and all know the way to Muni; About the desire and
+greedy of the heart The disconnection is meant to be the Muni; the desire of the
+heart of extinction is imuni, this is the imuni.
+
+“Muni, language Muni, Yimuni for no worries,
+
+Munies had a foot in the place of Munies, and they said they were all the
+
+Muni, language Muni, Yimuni for no worries,
+
+Muni is full of the place of Muni, and they say that evil is cleansed.
+
+There are six types of Munii with these three methods: “Munii at home, homeless
+muni, learnless muni, no school Muni, Luchimuni, Muni [of the middle] Muni.”
+Which are at home Muni? Those who saw the footsteps, and had known the
+commandments in their families, these were in the house of Muni. Which are
+homeless Muni? These are those who see their footsteps, and who have known the
+commandments, are in the house of Muni. Seven kinds of learning to learn Munii,
+Arrohan for no school Muni, Buddha for a womuni, such as to, arohan, all the way
+for the Muni-Muni.
+
+“Not to Mune (silence) as a Mune, an unwise man of disshape,
+
+After lifting the scale, take the top and become a wise person.
+
+Avoiding the evil, the Muni, because of that, he became Muni,
+
+Whosoever understands both [inside and outside] in the world, because that is
+said to be Muni.
+
+Knowing the law of the bad and the good in all the world, both inside and
+outside,
+
+He is Muni after being fed by heaven and man, and beyond the dyed net.”
+
+“Thorough explanation”, please explain it thoroughly; please teach, please
+inform, please build, please uncover, please explain, please clarify, please
+explain.” To ask Muni to explain it thoroughly for me. “For like this you are
+the know of these laws”: “For like this you are the know, the measure, the
+judge, the clear, the clear, the clear.” Because like this you are the know of
+these laws.
+
+Because then, the Brahman said:
+
+“Whosoever we ask thee you tell for us, we will ask you the rest, come! Please
+tell you about that,
+
+How are the wise men who are born, old and sorrow, and sorrow, and sorrow?
+
+Please Muni explain this thoroughly for me, because like this you are the knower
+of these laws.”
+
+22. [Worldplace: “Mylagus!”] I will tell you the law, in the life and not the
+    rumor,
+
+Whosoever knows after the mind of the walker, can live through the love of the
+world.
+
+“I will tell you the law”: “Law”, the beginning is good, the middle is good, the
+end is good; meaning is correct, the words are correct; only complete, clean,
+all the way: four mindfulness, four gods, five Force, Seven Signs, Eight Sacred
+Trails, Nibbana and the Traces of Nibbana, I will tell, I will teach, I will
+tell, I will build, I will uncover, I will interpret, I will clarify, I will
+explain.” For me will tell you the law. “Maitregus”, Worldman named the Brahman
+by name.
+
+“When born and not rumors”: “In the life,” in the law which is seen (in the
+life); in the law known; in the law being measured; in the law which is made
+clear: “All things are unconstant”... “Any set of law is extinction” is in the
+law seen (in the law of life); in the law known; in the law of measure; and in
+the law that is made clear, so I shall speak in the living. Or I will tell you
+the bitterness of what is seen; and We will tell you the set of which is seen;
+and We will tell you the way which is seen, and I will tell you the destruction
+of what is seen, This is also what I will tell in life. Or, when born as
+“directly visible, immediate, you are invited to see, able to guide, the wise
+man should experience himself.” This is what I will talk about when I am
+living.” To be born in. “Non-rumor”, non-rumor, not from the wind smell, not
+from the inheritance, not from the teachings of the Bible, not from logic,
+non-reasoning, not because of theoretical reflection, not because of
+contemplation of the opinion received, is personally known, The law of
+self-proofing, I will talk about that.”For when born rather than rumors.
+
+“All walkers who know after the knowledge, after measurement, after judgment,
+after division, after the clear: 'All lines are indefinate' after the known,
+measured, judged, after separation, after figuring out; Everything is bitter...
+“All law is without me”... (middle) “Any collection is extinction method” after
+being known, measured, judged, after separation, and after figuring out.
+“Mindful” is mindful in four ways: when practicing in the body is mindful...
+(middle) he is called the mindful. “Passer”, when you go, live, act, turn up,
+guard, make survival, make survival. For whosoever knows after the mindful
+walker.
+
+“Can live through the world of love”: “love” is called thirsty love, that is
+greed, lust (total greed)... (medium) greed, greedy, bad roots. “Love”, what is
+love? “Dispersed” for love; “vast” for love; “widespread” for love; “wrong” for
+love; “it forcibly” for love; “it seize” for love; “fraudulent” for love;
+“poison” for Love; “poison” for love; “poison used” for love; or, “the vast
+thirst love: in color... voice... smell... touched... home... housing...
+benefits... Fame... praise... happy... clothes... feeding... sitting
+equipment... patient needs and medical necessities... desires circles... color
+circles... colorless... want to have... colorless... want to have... ... I don't
+want to have... just want to have... there is... four has... five endowments...
+past... future... now... see, smell, feel, can be enlarged in the methods of
+knowledge” for love . “In the world”, in the worlds of bitterness, in the world
+of mankind, in heaven, in the worlds of the world, in the world of worlds, in
+the world. “Can live through the love of the world”: “The love in the world, or
+the world should love [Ni.1], he can spend, transcend, pass, overcome.” To be
+able to spend love in the world.
+
+Because then, Worldman said:
+
+“[Worldmark: 'Milagus! '] I will tell you the law, in the life and not the
+rumor,
+
+“Whosoever knows after the mindful walker can live through the love of the
+world.”
+
+23. I rejoice it, Daisen! The supreme law,
+
+Whosoever knows after the mind of the walker, can live through the love of the
+world.
+
+“I rejoice that”: “That,” your words, your way, teaching, admonition,
+admonition. “I rejoice,” I rejoice; I rejoice; I rejoice; I want, I take, I beg,
+I beg, I hope, I pray. I rejoice that for me.
+
+“Daisen! Supreme Law: “Tai Sin”, why is Worldplace a Tai Sin? “Seeker, Seeker,
+Seeker, Seeker” is Tai Sin; Tai Ding Yun... (Central) Dahui Yun... Great
+Escape... “Seeker, Seeker, Seeker, Seeker” is Tai Sin; “Darkness The Seeker of
+Broken Broken, Seeker, Seeker, Seeker, Seeker of the Overturned Destruction is
+Daisin; “Seeker of Broken, Seeker, Seeker, Seeker, Seeker, Seeker” Daisin; “The
+Seeker, Seeker, Seeker, Seeker, Seeker of Great Slow Banner” is Daisin; “The
+Seeker, Seeker, Seeker of the Great Slow Banner” is Daisin; “The Seeker, the
+Seeker of “The Seeker” is Tai Sin; “The seeker, the seeker, the seeker, the
+seeker of the Great Storm” is Daisin; “The burden of lay down the seeker, the
+seeker, the seeker” is Tai Sin; “Big revolving of the sever Seeker, Seeker,
+Seeker for Dai Sin; “Endured Seeker, Seeker, Seeker” is Tai Sin; “Great
+Enthusiasm Seeker, Seeker, Seeker” is Tai Sin; “Make Daffa The Seeker, Seeker,
+Seeker, Seeker” for Daisin; “The Great Recall... (Medium) The Great
+Attendance... The Great Roots... Great Eighth Holy Road... Big Eight Sacred
+Trail... The supreme interest of the undead Nibbana Seeker, Seeker, Seeker” is
+Tai Sin; “Seeking, Pursuing, Seeking by the Great Power: Where is the Buddha?
+Where is Worldplace? Where is the Tenjin in Tenjin? Where is the Cow King in
+Man? For Tai Sin. “Top method”, the top method is known as immortal, Nibbana,
+that is the end of everything, all according to the judgment, thirst of love
+extinction, from greed, extinction, Nibbana “The top, the first, the most
+winning, the winning, the first, the top, the highest, the most of the most.”
+For Daisen! The supreme law.
+
+“Whosoever knows after the mindful walker”: “[Where]After the known, measured,
+judged, after the difference, after the clear: “All lines are impermanent” after
+known, measured, judged, after separation, after figuring out; “All works are
+bitter”... 'All law is “No I” after the known, measured, judged, after the
+difference, after the clarification... (medium) “Any set method is extinguished”
+after the known, measured, after judgment, after the difference, after the
+identification. “Mindful”, in four ways: when the practice is mindful in the
+body, in the subject... (medium) in the heart... when practicing in the law
+follow the law to read... he was Called Mindful. “Passer”, when you go, live,
+act, turn up, guard, make survival, make survival. For whosoever knows after the
+mindful walker.
+
+“Can live through the world of love”: “love” is called thirsty love, that is
+greedy, lust... (medium) greed, greedy, bad roots. “Love”, what is love? “...
+(medium) is enlarged obsession” for love. “In the world”, in the worlds of
+bitter worlds... “Can live through the love of the world”: “He can spend in that
+loving world or in the world in which he is in love, can spend, transcend, can
+pass, overcome.” To be able to spend love in the world.
+
+Because then, the Brahman said:
+
+“I rejoice that, Daisen! The supreme law,
+
+“Whosoever knows after the mindful walker can live through the love of the
+world.”
+
+24. [Worldplace: “Mylagus!”] Whosoever Thou knoweth, in the upper and lower, and
+    in the middle,
+
+Rejoice and live in these, after removing the knowledge will not live.
+
+“Whosoever you know”: “Whosoever thou knowest, you know, and you know, you know,
+and you know it.” For whoever you know. “Maitregus”, Worldman named the Brahman
+by name. “Worldworld,” this is synonymous with respect... Anri (Kana), the
+testimony of (medium), that is Worldworld.” for [Worldhotel: “Mylagus!”].
+
+“On the top, down and in the middle”: “Upper” is the future, “Down” for the
+past, the “Middle Quartet” is the present; “Upper” is the world of heaven,
+“Down” is the world of Hell, and the “Middle Quartet” for mankind Worlds. Or,
+“upper” is good law, “lower” is bad law, the “middle four” is no remembered;
+“upper” is no color, “lower” is the boundary of desire, the “middle four” is the
+boundaries of color; “upper” is joy, and “down” is suffering, The “Middle
+Quartet” is not afflicted; “Above” is above the soles of the feet, “Down” is
+under the hair, and the “Middle Quartet” is in the middle. For the upper, bottom
+and middle Quartet.
+
+“Rejoice and dwell in these, and the knowledge removed will not dwell in there”:
+“On these”, in which they are explained, taught, told, built, uncovered, parsed,
+articulated, illustrated. Rejoice is called thirsty love, it is greed, lust...
+(medium) greed, greed, bad roots. There are two types of dwellings: the thirst
+of love dwelt and see dwell. How is thirsty love to live? All with thirsty
+love... (medium) It is thirsty to live in love. What is see live? There are
+twenty people who have seen... (medium) This is the living.
+
+“Knowledge after removal”: “The knowledge of the Fukke's trip, the knowledge of
+non-Fu line, the knowledge of the inaction trip [SN.12.51]. In these rejoicing
+with the living line (making) the knowledge of the trip removed, removed, after
+breaking, after exclusion, please give up, discard, dispel, end, make it come to
+absent.” To rejoice and live in these, after removing the knowledge.
+
+“Will not live in there”: “Yes”, there are two kinds: there are industry and
+life again. What is the industry? Fuxing, non-Fu line, no action, this is the
+industry. What is the cone again there? Born color, subject, want, line,
+knowledge, which is born again there. “Will not live in there”: “Rejoice with
+living line of knowledge and industry and life again have to break, depart, end,
+make it go to the non-existent, will not live in the industry; in life there
+will not live Stand, will not set.” For the removal of knowledge on there will
+not live.
+
+Because then, Worldman said:
+
+“[Worldmark: 'Milagus! '] You know all that is in the upper and lower, and in
+the middle,
+
+Rejoice and dwell in these, the knowledge after removal will not live in there.”
+
+25. such dwelt, remembrance, and do not relax: the Picchu trailers forsaken
+    after I
+
+Born, aging and sorrow, and grief, here the wise man can give off suffering.
+
+“Those who live in this way, take a mind, do not relax”: “'live like this
+(person) ', 'rejoice and live in the line of knowledge and industryAnd to be
+born again, dispel, dispel, and end, and make it to the non-existent.” For such
+dwellers. “Mindfulness” is a mindful in four ways: when the practice is on the
+body to take a look... (middle) he is called the mindful. “Unrelaxed” is a
+respectful author, a regular author, a nonstop author, a person who has not been
+adhered to, who does not neglect his will, who is not negligible in good law and
+unrelaxed; “How can I complete the unfinished ring Wun, or completed Wings can
+be funded everywhere?” Where he has the will, refined, courageous, hard, do not
+want, reckless, mindfulness, zealous, diligent, established, practiced,
+uncomfortable, not relax in good law; “How can I complete the unfinished
+destinations... (SILE) Hui Yun... How can I complete the unfinished liberation
+of wisdom, or a completed relief Wise can be funded everywhere?” Where he has
+the will, refinement, courage, hard work, do not fear, reckless, mindfulness,
+zealous, diligent, established, practiced, uncomfortable, not relax in good law;
+“How can I know the untold suffering, or can give away Can I break off
+uninterrupted pollution, practise an unlearned path, or testify against the
+destruction of the untestation?” Whosoever is there with the will, refinement,
+courage, hard work, not fear, reckless, mindfulness, zealous, diligent,
+established, practiced, uncomfortable, not in good law.” For such a living,
+mindful, not relaxing.
+
+“Bichu Stalker gave up after me”: “Bichu,” Zenvan Picchu, or learn Picchu.
+“Passer”, “When you go, live, act, turn up, guard, make survival, make
+survival.” “I do”, there are two kinds of things that I do: [for] the thirsty I
+do with the [because] I see... This is what I do... This is what I do... I have
+to give off thirst for love, after I have dismissed my longest love; After what
+I have done, after what I have done, after forsgiving, after forsgiving, after
+disconnection, after deportation, after the end, and after the end, that it may
+come to absent. and forsaken me for the Bichu Parker.
+
+“Birth, aging and sorrow, and sorrow, where the wise man can give off
+suffering”: “Born”, among all beings... (cum). “Aging”: among all beings...
+(medium slightly). “Grief”, was touched by the loss of the relatives
+(unfortunately)... (medium). “Sadness”, touched by the loss of relatives...
+(medium). “Here” belongs to this see... (medium) in this man's world. “The Wise”
+are those who have reached the clear, the wise, the wise, the wise, the wise.
+“Bitter”, bitterness... (medium) worry despair bitter. “Born, old and sorrow,
+and sorrow, and grief, and here the wise man can give off distress”: “The man
+who has arrived, the wise, the wise, the wise, the wise is born here, aging and
+sorrow, and sorrow, and sorrow, he can be disconnected, and can depart Can end
+and make it non-existent.” For birth, aging and sorrow, and grief, here the wise
+man can give off distress.
+
+Because then, Worldman said:
+
+“Those who dwelt in this way, and are mindful, and do not relax: and the Pichu
+trailers
+
+Born, aging and sorrow, and grief, here the wise man can give off his suffering.
+
+26. I rejoice in the words of Daisen, which is well told: Qiao Tamo is a man who
+    has no authority,
+
+Worldworld! For indeed you have given off the bitterness, for these laws like
+this have been known to you.
+
+“I rejoice the words of Daisin”: “This, your words, your way, teaching,
+admonition, admonition. “I rejoice,” I rejoice; I rejoice; I rejoice; I want, I
+take” [, I beg], I hope, I pray, I pray. “Tai Sin”, why is Worldplace Tai Sin?
+“Seeker, Seeker, Seeker, Seeker” is Daisin... Where is the cow king among the
+people?” For Tai Sin. I rejoice the words of Daisen.
+
+“The Good Testier: Joe is the Unfounded”: ““The good to tell, the good to tell,
+the good to preach, the good teaches, the good to teach, the good built, the
+good unveiled, the good interpreter, the good interpreter, the good Explanation,
+good explanation. Tarring for good. “Jo Tamo is the unfit”, according to what is
+known as the pollution and the creation of the creations. According to the
+break, according to the calm, according to the conception, according to the
+stop, undead, Nibbana. To be told for good: Jo Tamo is the unbearable.
+
+“Worldworld! Because it is true that you have cut off the bitterness”: “Yes”,
+this is the decisive (always) word, a word of doubt, a word of confidence, no
+doubt, a word of instruction, a word without error [, the words of no failure ],
+this is the word of sure, is “true.” “Worldworld,” “This is synonyms of
+respect... Anli (Kana), the testimony of (middle).” “You have cut off the
+bitter, bitter, old bitterSickness, death, sorrow, sorrow, and sorrow, despair,
+you have left off, forsaken, depart, and put an end, and made it to not exist.”
+For Worldworld! Because indeed you gave off the bitterness.
+
+“For like this you are the know of these laws”: “For like this you are the know,
+the measure, the judge, the clear, the clear, the clear.” Because like this you
+are the know of these laws.
+
+Because then, the Brahman said:
+
+“I rejoice in the words of Daisen, which is well told: Qiotamo is the unwary.
+
+Worldworld! For indeed you have given off your bitterness, for you know these
+laws like this.”
+
+27. Indeed, they can also give off their suffering: Whoever you will constantly
+    teach the commandment,
+
+I salute you after meeting you: dragon elephant! Perhaps Worldworld will
+constantly teach me.
+
+“Indeed, they can also give off their suffering”: “They are for Chthalie,
+Brahmen, Bisha, the Sudala, in the family, out of the family, the heavens, and
+men. “Can give off suffering, old, sickness, death, sorrow, sorrow, sorrow and
+sorrow, despair, they can discard, dispel, end, and make it to absent.” It is
+true that they can also be cut off.
+
+“Whomoney, you will constantly teach the commandments”: “Whosoever is the
+Chatriel, Brahmen, Bisha, the Sudala, in the family, out of the family, the
+heavens, “You,” he said Worldworld. “Muni”, Munna is known as Wisdom... (in the
+middle) after he was a muni after dyed net. “The commandments will be constantly
+taught, will be taught thoroughly, will be taught continuously, will be taught
+repeatedly, and will admonition.” For whomoney you will constantly teach the
+commandments.
+
+“After I met you, I salute you: Dragon Elephant”: “You,” he said Worldworld. “I
+salute”, I salute the body, or I salute in words, or with my heart, or I salute
+as it means, or I salute, respect, respect, respect, respect, respect [,
+respect]. “After meeting”, after meeting, fully met, met, met completely, fully
+met, I salute from before you. “Dragon Elephant”, “Dragon Elephant and Worldom
+do not sin” is a dragon elephant; “Do not go” is a dragon elephant; “Do not How
+is Worldnot to Do a Crime for a Dragon Elephant? Crimes are called the law of
+evil: polluted, re-existing, fearful, bitter, future life and death.
+
+[Worldworld: “Color forced Asia!”] [Sn.3.6, 527]
+
+“Do not commit any crime in the world, after leaving all bondages and bondages,
+
+Those who do not adhere to all things, which have been freed, are truly called
+dragon elephants.
+
+This is “no crime” for the dragon elephant.
+
+How is “Worldless Go” for a Dragon Elephant? Worldworld should not want to do;
+do not go away should not go anywhere; not obsession should not go anywhere; do
+not go horror should not go; not because of greed; not by obsession; not by
+obsession; not by slow; no Because of seeing; do not go because of the fall; not
+for doubt; not to worry about the potential trend to go; not to be quarrel (not
+and legal) law carry away, take away, carry, carry, carry. This is the Dragon
+Elephant.
+
+How is “Worldless Come” for a Dragon Elephant? Where to be cut off by the road
+of the pollution, those polluted he no longer experience, do not return, do not
+go back; by a way... (middle) is not rewarded... where the pollution is cut off
+by Arrohan Road, those polluted he no longer experience, Do not return, do not
+go back. This is “worldly not come” as a dragon elephant. I salute you after I
+met you: Dragon Elephant.
+
+“Perhaps Worldworld will constantly teach me”: “Maybe Worldworld will teach,
+teach thoroughly, teach continuously, and will teach me again.” For perhaps
+Worldworld will continue to teach me.
+
+Because then, the Brahman said:
+
+“Indeed, they can also give off their suffering: Whosoever you will constantly
+teach the commandments,
+
+I salute you after meeting you: dragon elephant! Perhaps Worldworld will
+constantly teach me.”
+
+28. All that Brahmen can prove to be the knowledge of the vedas, who has no
+    owner, desire and no obsession,
+
+Indeed, he has passed through the riot, and has passed the other side to be a
+desolate, no doubt.
+
+“Where Brahmen can prove to know the Vedas”: “Brahmen”, seven laws have been
+excluded from Brahmen: have been excluded, suspected excluded, forbidden is
+excluded, greedy excluded, ruled out, obsession excluded 、Slow to be excluded,
+those evil and bad laws are excluded: Shun polluted, then there, fear, bitter
+fruit, the future will live and die.
+
+[Worldworld: “Color forced Asia!”] [Sn.3.6, 524]
+
+After excluding all evil, the state of residence of the good entrant from the
+scale,
+
+He went beyond his reincarnation and became the perfect man, and something like
+this could be called himBrahmen.
+
+“Vedas know”: “Vedas are called the wisdom of the four ways... He is a Vedas who
+knows the Vedas after (medium) beyond everything.” “Be able to testify, know,
+know, be able to do not, be sure, be able to pass through.” For all Brahmen can
+prove to be the Vedas.
+
+“No owner, desire and no obsession”: “No owner”, greed is something; is a thing;
+stupid is a thing; slow is something; see is something; pollution is something;
+evil deeds are something, Whosoever for him has been cut off, cut off, calmed
+down, stopped, unable to be born, and burned by a wisdom fire, he is called the
+one who has no ownership. “Wills”, there are two kinds of desires: the desire of
+things and the desire to pollute... (middle) these are called the desires of
+things... (middle) these are called the desires of pollution. There are two
+kinds of “there are”: there are industry and life again... (medium slightly)
+This is the congenius again. “No owner, in the desire to be there is no
+obsession”: “A person who has no one who desires [and] to have a clutter, not
+attached, unobstructed, unobstructed, departed, laid down, freed, departed
+Bound, he dwelled away from the restricted heart. For those who have no owners,
+who want and have no adhesion.
+
+“Indeed, he spent on the storm”: “Indeed, it is a decisive (always) word...
+(middle) this is the word of certainty, it is “true.” “Storm”, the riot of
+desire, some of them, the riot of sight, an unclear storm. “Having passed,” he
+overtook, passed, passed, passed, passed through. To be sure he spent on the
+storm.
+
+“And they have passed through the other side as the desolate, no doubt”: “Have
+passed, the riot of desire has passed; some of them have passed; the riot of
+sight has passed; and the riot of unclear has passed; and the riot of
+reincarnation has passed, Transcendent, Crossed, Crossed, Overcome, He is
+Descended, Actor Actor, Completed Journey, Has Arrived, Has Arrived, Has
+Arrived, Has Been Ganswalker, Has Been Ganswalker, Reach Highest Seekers, those
+who have practiced, those who have cut off the polluters, those who have passed
+unshaken, and who have testified, for whom the bitterness is known, set off, the
+way has been practiced, and has testified, has been known to be known It is
+known that those who have been cut off shall be discarded, and those who have
+been practiced shall be practiced, and testify shall be testified. He is the one
+who has been removed, the ditch is filled, the column has been pulled up, the
+latch, the saint flag has fallen, the burdens have been removed, the separated,
+five disconnected, six possesses, one guardian, four Trust is those who have
+removed their own truths, those who seek to be outraged and completely
+decimated, those who have no intention of turbid, those who have done serenity,
+those who are liberated in good faith, the supreme who have been fully
+completed, the supreme, the supreme, the supreme, the proven With great
+achievements, he is neither composed nor disassembled, does not build up, does
+not stand after stacking up; neither dissipates nor performs, and does not
+disperse (Thailand version) nor accumulate, dispersed after standing; neither
+extinguishes nor ignites, After extinguishing [SN.22.79], is a state with no
+school absentee... (middle) [no school] Ding... [no school] Hui Yun... [no
+school] escape... See the Yun state of the already established, completed,
+through the true (meaning) after the already established, over disturbance
+(embezzlement) after the already established, the polluting fire extinguished
+after the extinguishment of the flame, the person who has no longer come to the
+state of standing, has For [victory] after the grasp has already lived, by the
+state of relief has already lived, the mercy of pure already standing,
+sadness... (medium) joy... calm all over the pure has been established, the pure
+has already lived No equivalent state (Ceylon version) all over the pure
+resident, the liberated state of the resident, the satisfied state of the
+already established, the already established on the boundary (exactly), the
+already standing on the boundary (what), the already standing on the boundary A
+person who has stayed at the border, a person who has been erected at the border
+of the place (fun), a person who has been established on the boundary of the
+past, the person who has lived on the boundary of birth, the person who has been
+established at the boundary of existence, the person who is in a revolving The
+man who has stayed on the border, the one who has stayed on the rotational
+border, the one who has stayed above the last, the man who has stayed on the
+last assembly (body), Arrohan with the last body.
+
+“This is his last, this is the last gathering (body),
+
+Life and death reincarnation, without his regeneration.
+
+“Have passed the other side”: the other side is called immortal, Nibbana, that
+is all done, all according to the judgment, thirst for the extinction of love,
+away from greed, annihilation, He is the one who has arrived on the other side;
+He who has reached the other side, has reached the ultimate (target); He who has
+reached the end; He who has reached the end of the border; He who has reached
+the border, has reached the terminator; has reached the terminator, has arrived
+at the rescue home; has arrived at the shelter, has arrived at the refuge, has
+arrived at the place of return, has arrived at the place of return, has arrived
+the person without terror; Arrived without terror, has arrived no dead; has
+arrived no dead, has arrived to the undead, has arrived the undead, has arrived
+the Nibbana; He has reached the Nibbana, he is a person who has descended the
+state, has practiced the act... Life and death reincarnation, without his
+regeneration. For having spent the other shore.
+
+“No desolate”: greedy barren, barren, barren, angry barren, resentment barren...
+(middle) all bad creation of the barren, for him these desolation has been cut
+off, cut off, was Calm down, stopped, could not be born, burned by wisdom fire,
+he was called a non-deserted man. “Undoubted”: Doubt in bitterness, doubt in
+bitterness, doubt in bitterness, suspicion in the path of bitterness, suspicion
+in the foreground, suspicion in the background, in The law of suspicion of
+certain conditions, such as such doubt, doubts, doubts, doubts, confusion,
+hesitation, doubts, intersections (doubts), doubts, not always clenched,
+doubtful, hesitant, ununderstood, stiff The state, the heart is confused, for
+him these doubts have been cut off, severed, calmed down, stopped, unable to be
+born, burned by wisdom fire, he is called the unskeptical.” For those who have
+passed across the other shore are not desolate, no doubts.
+
+Because then, Worldman said:
+
+“Whosoever is known to Brahmen who know the vedas, who has no owner, and who has
+no obsession in desire and with
+
+Indeed, he has passed through the riot, and has passed the other side as a
+desolate, no doubt.”
+
+29. the wise men and those who know the veda are here, after all kinds of dyed
+    and discarded,
+
+He is a man of thirst, no distress, no desire, and I say he spent “birth,
+aging.”
+
+“Here are all the wise, and those who know the vedas”: “The wise man is [the
+wise,] who has come to the wise, the wise, the wise, the wise, the wise.
+“Where”, whoever is like... or a person. “Known Vedas”, Vedas are known in four
+ways of wisdom, wisdom, Wagan, Wise, choice of approach, study, Bisherna,
+positive view. To those who have lived and died in Vedas have reached the end
+(target); who has reached the ultimate, has reached the end point, has reached
+the border (exactly); those who have reached the border, has reached the end;
+has reached the end (b) Persons who have arrived at the shelter; those who have
+arrived at the shelter; those who have arrived at the refuge, have arrived at
+the place of return, have arrived at the place of return, to the person without
+terror; he has reached the person without terror, no dead; Has arrived the
+undead, has arrived the undead; has arrived the undead, to the Nibbana; has
+reached the Nibbana. Or “to the ultimate of the veda” is a vedic who knows the
+veda, or the Vedas has been known as the Vedas to the ultimate, or the seven
+laws of the already known state of Vedas: have known, suspected... (medium)
+forbidden Take... greedy... devil... slow to be known, its evil law is known:
+Shun polluted, then there, fear, bitter fruit, the future will live and die.
+
+[Worldworld: “Color forced Asia!”] [Sn.3.6, 534]
+
+Select all the Vedas, whosoever belongs to the existence here of Salmon,
+Brahmen,
+
+In all feelings of greed, beyond all Vedas he is a familiar Vedas.
+
+Human beings, human beings, students Brahmen, people, individuals, lives, to
+born, affection, to Indra, Monu born. “Here,” belongs to this see... in this
+man's world.” Here is for the wise and those who know the veda.
+
+“After the dyed of the kind”: “In the seed,” in the seed of the trade, in the
+desire to have, in the etiquity of desire, in color; in the colourless Then
+there; in the colorless industry, in there is a time and again; in the fun, in
+the past, in the birth of a repeated life, in the birth of a repeated
+individual. “Dyed”, there are seven kinds of dyes: greedy dyed, dyed of
+skepness, slow-dyed, stained in sight, polluted stained, dyed of evil deeds.
+“After discarding”, after giving up on dyed, or in dyeing, in bondage, on
+enlarged bondage, on entangled, attached, on the hindrance, on the obstructed,
+in a tie On being shocked behind (?) To be discarded, such as car ride, or car,
+or carriage, or wagon, or chariot, or chariot should be transported [people,
+objects] released (discarded) after they are placed, destroyed. In the same way,
+after giving up on the dyed, after abandoning, or in the dyed,After the bondage,
+on the enlarged bondage, on the entangled, on the attached, on the one that is
+fixed, on the one that is obstructed, and after being shocked on the binding. To
+be separated on a kind of dyed.
+
+“He is a man who is away from thirst, no distress, no desire, I say he spent
+“birth and aging”: “thirsty love” as the color of “thirsty love”... The thirst
+love of the law. Whoever for him thirst has been cut off, cut off, calmed down,
+stopped, incapable of being born, burned by wisdom fire, he is known as the one
+who desists from thirst, the one who has forsaken the thirst, the one who
+forsaken the thirst of the love, the The thirst loving, giving off the thirst
+lover, the detriment of the thirst, away from the greedy, abandon the greedy [,
+exclude the greedy, free from the greedy], dismiss the greedy, the unhungry, the
+cooled, the cooled, the feeling of happiness And dwelt himself as a man who has
+been born, he is a man from thirst. “No distress”, greed is distressed; He is
+distressed; Fury is distressed; Anger is distressed; resentment is distressed...
+The man who was cut off, calmed down, stopped, could not be born, was burned by
+wisdom fire, he was called the untroubled. “No desire”, the desire is called
+thirsty love, that is greed, lust... (medium) greed, greedy, bad roots. Whoever
+for him this desire is cut off, cut off, calmed down, stopped, unable to be
+born, burned by wisdom fire, he is called the unwilling. “Born”, all living
+beings... (medium) have been found. “Aging”, the degradation of all beings...
+(medium) roots, which is called old. “He is a man who is desperate from thirst,
+no distress, no desire, and I say he spent 'birth and aging. '”: “Whoever he is
+a man who is desperate from thirst, without distress, and without desire, “born,
+old and dead, he does spend, Transcend, pass, cross, overcome. ' I said, I
+explain, I teach, I tell, I build, I uncover, I interpret, I clarify, I
+explain.” For he is a man from thirst, no distress, no desire, I say he spent
+“birth, aging.”
+
+Because then, Worldman said:
+
+“Here the wise, and those who know the vedas, after they are dyed with all
+kinds,
+
+He is a man who is desperate, no distress, no desire, and I say he spent 'birth,
+aging. '
+
+At the end of the Ode... (medium) “Daedeu! Worldson is my teacher, I am a
+disciple.”
+
+The description asked by Maitregus student Brahman fourth [Completed].
+
+
+
 
 
 Excerpt:
- 1. bitterness: according to the cause of suffering occurs.
- 2. Ten according to: thirsty love, see, pollution, industry, evil, food, evil, four practice circles (water and fire), six inside, six types of knowledge, all bitterness by heart.
- 3. author = unwise man = repeatedly bitter foolish.
- 4. remove rejoice in any place, forsake the knowledge of my beloved in there will not dwell (=Ni.30) ⇒ can live through the love of the world.
- 10/17/2020 15:50
+
+1. bitterness: according to the cause of suffering occurs.
+
+2. Ten according to: thirsty love, see, pollution, industry, evil, food, evil,
+   four practice circles (water and fire), six inside, six types of knowledge,
+   all bitterness by heart.
+
+3. author = unwise man = repeatedly bitter foolish.
+
+4. remove rejoice in any place, forsake the knowledge of my beloved in there
+   will not dwell (=Ni.30) ⇒ can live through the love of the world.
+
+10/17/2020 15:50
+
