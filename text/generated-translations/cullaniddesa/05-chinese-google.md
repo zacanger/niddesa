@@ -32,63 +32,59 @@ to be seen and known, suspicion being known, refraining from being known, greed
 and its evil and unwholesome methods are known: succumbing to polluting,
 recurring, fearing, and it will live and die in the future.
 
-----
-CHECKPOINT
-----
+[Blessed One: "Sexy!" (?? color forced asia?)][Sn.3.6, 534偈]
 
-[World Zun: "Sexy!"][Sn.3.6, 534偈]
-
-"Select all the Vedas, all those belonging to the Samanas and Brahmins that
+"Select all the Vedas, all those belonging to the Sramanas and Brahmins that
 exist here,
+is free from greed in all feelings, and after surpassing all Vedas, he is knows
+Vedas well."
 
-is free from greed in all feelings, and after surpassing all Vedas, he is a
-Vedas well. "
+This is the Blessed One who knows the Vedas.
 
-This is the Blessed One who knows the Vedic.
-
-How is the Blessed One who has already practiced himself? The Blessed One is the
-person who has practiced the body, the mind, the wisdom, the mindfulness, the
-righteousness, the gods, the root, the power, the enlightenment, Those who have
-practised the Tao, those who have given up the polluters, those who have been
-unshakable, those who have testified, for him have been omniscient, have given
-up, have practiced, have given up testimony, have proved that they can be
-testified Omniscience, omniscience, omniscience, renunciation that should be
-renounced, practised and ought to be practised, testimony and testimony, not
-small, large, very deep, immeasurable, difficult to be Those who have a deep
+How is he the Blessed One who has already practiced himself? The Blessed One is
+the person who has practiced the body, the mind, the wisdom, the mindfulness,
+the righteousness, studied the gods, the root, the power, the enlightenment.
+Those who have practised the path, those who have given up the polluters, those
+who have been unshakable, those who have testified, for those who have been
+omniscient, have given up, have practiced, have given up testimony, have
+renounced what should be renounced, practised and ought to be practised, not
+small, large, very deep, immeasurable, difficult to be; Those who have a deep
 understanding of many treasures, such as the ocean, are those who possess six
 peaces:
 
-After seeing the color with the eyes, I am neither happy nor sad, and live in
-peace, mindful and righteous; after hearing the sound with the ear...after
-smelling the smell with the nose...after tasting the taste with the
-tongue...touching the touch with the body... …After knowing the Dhamma with
+After seeing the form with the eyes, I am neither happy nor sad, and live in
+peace, mindful and righteous; after hearing the sound with the ear... after
+smelling the smell with the nose... after tasting the taste with the
+tongue... touching the touch with the body... After knowing the Dhamma with
 consciousness, I am neither happy nor sad, but live in peace, mindfulness and
 righteousness [DN.33 Liuchang Residence].
 
 After seeing form with his eyes, he does not desire, dislike, and does not cause
 greed to occur in the desired form. His body is already established, his mind is
-already established, and he is built up and liberated by virtue. After the
-undesirable color, he does not become discouraged, unrestrained mind,
+already established, and he is built up and liberated by virtue. After seeing the
+undesirable form, he does not become discouraged, have unrestrained mind,
 unintentional sorrow, unintentional malice, his body is already inhabited, his
 mind is already inhabited, and he is built up by goodness and kindness within
-himself. relief.
+himself.
 
-After seeing the color with the eyes, the body has been inhabited and the mind
-has been inhabited in the agreeable and undesirable colors, and the self is
+After seeing the form with the eyes, the body has been inhabited and the mind
+has been inhabited in the agreeable and undesirable forms, and the self is
 built up and freed by the kindness; after listening to the sound with the ear...
-(omitted) knowing with the consciousness After the Dhamma, both the body and the
+(omitted), knowing with the consciousness After the Dhamma, both the body and the
 mind have been established in both the agreeable and undesirable methods, and
 they are established and liberated by virtue within themselves [SN.46.6].
 
-After seeing the color with eyes, you will not get drunk when you are infected,
+After seeing the form with eyes, you will not get drunk when you are infected,
 you will not be angry when you are angry, you will not be foolish when you
-become foolish, you will not be angry when you are angry, and you will not get
-drunk when you are drunk. Don’t contaminate what will be contaminated; after
+become foolish, and you will not get
+drunk when you are drunk (??). Don’t contaminate what will be contaminated; after
 hearing the sound with your ears... (omitted) after knowing the Dhamma with
-consciousness, you will not be contaminated on what will be contaminated, no
-anger on what will be angered, and no change on what will become foolish Stupid,
-don’t get angry when you get angry, don’t get drunk when you get drunk, and
-don’t pollute when you pollute.
+consciousness, you will not be contaminated on what will be contaminated...
+(omitted), and don’t pollute when you pollute (??).
+
+----
+checkpoint
+----
 
 There is only so much in what you see; there is only so much in what you hear;
 there is only so much in what you know; there is only so much in what you know
