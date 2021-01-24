@@ -4,7 +4,7 @@
 
 18. [Venerable Maitreya like this:] Lord, I ask you, please tell me this. I
   think you are a person who knows the Vedas, and has personally practiced.
-From where did these sufferings come into being: all kinds of different forms in
+From where did these sufferings come into being: of all kinds of different forms in
 any world? (??)
 
 "Master! I ask this, please tell me this": ""I ask", there are three kinds of
@@ -82,570 +82,416 @@ hearing the sound with your ears... (omitted) after knowing the Dhamma with
 consciousness, you will not be contaminated on what will be contaminated...
 (omitted), and don’t pollute when you pollute (??).
 
-----
-checkpoint
-----
-
 There is only so much in what you see; there is only so much in what you hear;
-there is only so much in what you know; there is only so much in what you know
-[SN.35.95], in what you see Not contaminated; not contaminated by what you hear;
-not contaminated by what you are aware of; not contaminated by what you know,
-and who is unsatisfied, [virtue] without loss, not dependent, and not bound by
-what you know . Freed from the bondage, he lives with the heart of being free
-from being restricted; in terms of what he hears... (omitted) in terms of what
-he knows, he is the one without attachment, the one who does not lose, the one
+there is only so much in what you perceive; there is only so much in what you
+know [SN.35.95], not contaminated by in what you see; not contaminated by what
+you hear; not contaminated by what you perceive; not contaminated by what you
+know, and he who is unsatisfied (has no obsession??), [virtue] without loss, not
+dependent, and not bound by what is known, freed from the bondage, he lives with
+a liberated heart; in terms of what he hears... (omitted) in terms of what he
+knows, he is the one without attachment, the one who does not lose (??), the one
 who does not depend on, and the one who is not bound. Freed from the bondage, he
-lives with the heart of being free and restricted.
+lives with a liberated heart.
 
-The Blessed One has (existing) eyes, the Blessed One has eyes to see color, the
-Blessed One has no desires and greed, and the Blessed One’s heart is kind and
-liberating; the Blessed One has ears, and the Blessed One uses ears to hear, the
-Blessed One has no desires and greed, and the Blessed One’s heart is kind and
-liberating; Smell, the Blessed One has no desire and greed, the Blessed One’s
-heart is kind and liberating; the Blessed One has a tongue, the Blessed One
-tastes the taste with the tongue, the Blessed One has no desires, the Blessed
-One’s heart is kind and liberating; the Blessed One has a body, the Blessed One
-touches with the body, the Blessed One has no desire to be greedy, the Blessed
-One has a good heart Liberation: The Blessed One is intentional, the Blessed One
-knows the Dhamma with consciousness, the Blessed One has no desires and greed,
-and the Blessed One has a kind heart and is free [SN.35.232].
+The Blessed One has (existing ??) eyes, the Blessed One has eyes to see form,
+the Blessed One has no desires and greed, and the Blessed One’s heart is kind
+and liberating; ...(omitted) ears to hear...; ...nose to smell...; ...tastes
+with the taste...; ...touches with the body...: The Blessed One is intentional,
+the Blessed One knows the Dhamma with consciousness, the Blessed One has no
+desires and greed, and the Blessed One has a kind heart and is free [SN.35.232].
 
-Eyes are joyful in form, joy in form, joy in form, the Blessed One has been
-tuned, guarded, guarded, guarded, and taught the self-control of it; ears are
-joyous in sound... (omitted) The nose rejoices in the smell... the tongue
-rejoices in the taste, joy in the taste, joy in the taste, the Tathagata has
-been tuned, guarded, guarded, protected, and taught the self-control of it, and
-the body is in place Joy in the touch, joy in the touch, joy in the touch, the
-Tathagata has been tuned, guarded, protected, guarded,And teach the self-control
-of it, which means to rejoice in the law, to be happy in the law, to be happy in
-the law, the Tathagata has been tuned, guarded, guarded, protected, and taught
-the self-control of it [MN. 75].
+Eyes are joyful in form, joyful in color, the Blessed One has regulated, tuned,
+guarded, protected, and taught the self-control of it; ears are joyous in
+sound... (omitted) the nose rejoices in the smell... the tongue rejoices in the
+taste... the body is joyful in touch... and the Blessed One has regulated,
+tuned, guarded, protected, and taught the self-control of it, which means to
+rejoice in the Dhamma, to be happy in the Dhamma, the Blessed One has
+regulated... the self-control of it. [MN. 75].
 
-"They guided the [Dragon Elephant] that had been adjusted to the assembly, and
-the king boarded the adjusted,
-
-The man who has been tuned is the most victor among the people, whoever insults
-him is bearable.
-
+TODO: get this whole block from a better Dhp translation
+"They guided the [Dragon Elephant (??)] that had been reigned into the assembly, and
+the king boarded the (??),
+The man who has been reconciled is the highest victor among the people, whoever insults
+him is bearable (??).
 The donkey horse that has been tuned is exceptional, and the trustworthy product
 is the steed.
-
 and Kunjara (elephant) are big dragon elephants, and self-regulators are even
 better.
-
 does not ride in these cars, can go to the unreached direction,
-
 is good at self-adjusting, and the person who adjusts the governor comes to him.
 [Dhp. 321-323]
 
-They are unshakable in all kinds of slowness, becoming liberated and reborn,
-
-has reached the adjusted imperial position, they are the victors in the world.
+They are unwavering in all kinds of slowness (sloth?), becoming liberated and reborn,
+have reached the adjusted imperial position, they are the victors in the world.
 [SN.22.76]
 
 Those who have cultivated their roots, inside and outside themselves: in the
 world,
+piercing this and other worlds, when he is waiting for death: he is the one who
+has been transferred (??)." [Sn.3.6, 521 verse]
 
-pierce this and other worlds, when he is waiting for death: he is the one who
-has been transferred. "[Sn.3.6, 521 verse]
+This is the Blessed One who has already himself practiced.
 
-This is the Blessed One who has already practiced himself.
-
-"I think you are a person who is familiar with the Vedic and who has personally
+"I think you are a person who is familiar with the Vedas and who has personally
 practiced. From where did these sufferings arise": "From where", the question of
-doubt, the question of confusion, the question of doubt, the question of more
-than one question, this is a rhetorical question, Question irony, why on earth,
-why on earth? "Where is it from." "Suffering", suffering from birth, suffering
-from old age, suffering from sickness, suffering from death, suffering from
-sorrow, suffering from despair, suffering from loss, suffering from hell,
-suffering from animal world, suffering from ghosts, suffering from human beings,
-rooted in suffering from birth , Rooted in the suffering of living in the womb,
+doubt, the question of confusion, the question of more
+than one question, this is a rhetorical question, ironic question,
+why on earth? "Where from." "Suffering", suffering from birth, suffering
+from old age, ...from sickness, ...from death,
+... sorrow, ...despair, loss, hell,
+the animal world, ghosts, human beings;
+rooted in suffering from birth, rooted in the suffering of living in the womb,
 rooted in the suffering of birth, the suffering of the living being dependent,
-the suffering of the living being manipulated by others, the suffering due to
-their own actions, the suffering due to the actions of others, the suffering ,
-Suffering, change of suffering, eye disease, ear disease, nose disease, tongue
+the suffering of the living being manipulated by others, ...due to
+their own actions, ...due to the actions of others,
+from change, eye disease, ear disease, nose disease, tongue
 disease, body disease, head disease, external ear disease, mouth disease, tooth
-disease, cough, asthma, external nose disease, fever, old age, abdominal
-disease, coma, Dysentery, abdominal pain, cholera, leprosy, tumor, ringworm,
-lung disease, epilepsy, ringworm, scabies, rheumatism, scratches (a type of
-disease), dry and cracked skin, blood gall bladder, diabetes, hemorrhoids, rash
-(boils), Hemorrhoids (ulcers), diseases caused by gallbladder, diseases caused
-by sputum, diseases caused by wind, diseases caused by [three] groups, diseases
-caused by changes in seasons, diseases caused by incorrect posture, sudden
-attacks Diseases, illnesses born from the results of kamma, cold, heat, hunger,
-thirst, feces, urine, suffering from contact with a fly, wind, sun, snake,
-suffering from a dead mother, suffering from a dead father, suffering from a
-dead brother, suffering from a dead sister Suffering, the suffering of the dead
-child, the suffering of the deceased daughter, the suffering of the loss of the
-relatives [, the suffering of the loss of wealth], the suffering of the loss of
-disease, the suffering of the decline of precept, the suffering of the decline
+disease, ...(omitted, see previous chapters)... the suffering of the decline
 of seeing. From the very beginning of these dhammas, they have been known; since
 they disappeared, they have been known, the retribution is based on kamma; kamma
-is based on kamma, the name is based on form; and form is based on name. Those
-who are followed by birth, accompanied by birth, followed by old, conquered by
-disease, struck by death, sheltered in suffering, no shelter, no refuge, no
-refuge, and no refuge are called suffering. Where did these sufferings come
+is based on kamma  (??), the name is based on form; and form is based on name. Those
+who are followed by birth, accompanied by birth, followed by age, conquered by
+disease, struck by death, living in suffering, with no shelter, and no refuge,
+are called suffering. Where did these sufferings come
 from? Where did it arise? Where is it produced? Where did it happen from? Where
-was born? Where did it appear? What is the cause? What is its set? What is its
+was it born? Where did it appear? What is the cause? What is its set (??)? What is its
 birth? What is its root cause? He inquired about the root of these sufferings;
 he inquired about the reason; he inquired about the cause; he inquired about the
-arising; he inquired about the emergence; he inquired and waited; he inquired
+arising; he inquired about the emergence; he inquired and waited (??); he inquired
 about food; he inquired about the cause; he inquired about the fate; he inquired
-about the set, he asked and begged , Request, make it clear. "For where these
-sufferings are generated.
+about the set, he asked and begged, requested, make it clear. "From where did
+these sufferings arise".
 
-"All kinds of different shapes and colors in any world": ""Whatever", all
+"Of all kinds of different shapes and forms in any world": ""Of all kinds", all
 completely, every aspect completely, no surplus, the whole earth, this is the
-ubiquitous language, which is "anything." "Middle", the world of suffering, the
+ubiquitous language, which is "anything." "In any world", the world of suffering, the
 world of humans, the world of heaven, the world of aggregates, the world of
-worlds, and the world of existence. "Various forms and colors", various types
-and types of suffering. "It's all the different forms in any world."
+worlds, and the world of existence. "Various shapes and forms", various kinds
+and types of suffering. "All kinds in any world"
 
-Because of that, the brahmin said:
-
-"[Venerable Maitreya like this:] Blessed One, I ask you, please tell me this. I
-think you are a person who knows the Vedic and has practiced himself.
-
-From where did these sufferings come into being: all kinds of different forms in
-any world? "
-
-19. [World Zun: "Milegu!"] You ask me about the occurrence of suffering, and I
-    will say that for you as if you know:
-
+19. [Blessed One: "Milegu!"] You ask me about the occurrence of suffering, and I
+    will say that for you as if you know (?? "as if I know it" "as if the know"):
 all sufferings occur due to dependence: all kinds of different forms in any
 world.
 
-"You ask me about the occurrence of suffering": "The suffering, the suffering,
-the old, the sick, the dead, the sad, the desperate, and the suffering. "You
-askYou ask about the cause of suffering; you ask about the cause; you ask about
-the cause; you ask about arising; you ask about happening; you ask about
-waiting; you ask about food; you ask about the object; you ask about the
-condition; you ask about the collection, you are strong Ask, beg, request, make
-it clear. "Because you really asked me the occurrence of suffering. ""Mileku",
+"You ask me about the occurrence of suffering": "Suffering, bitterness,
+old age, sickness, death, sadness, desperation, and sorow. "You
+ask, You ask about the cause of suffering; you ask about the root;
+you ask about arising; you ask about happening; you ask about
+waiting; you ask about food (??); you ask about the object; you ask about the
+condition; you ask about the collection, you are strong (??). you ask, beg, request, make
+it clear. "Because you asked me the occurrence of suffering. ""Mileku",
 the Blessed One called the Brahman by his name. "World Zun", this is a
-respectful synonym... (abbreviated) Anri (pseudonym) who testified, that is, the
-Blessed One." is [World Zun: "Mileku!"] .
+respectful synonym... (omitted).
 
-"I will say that for you like the one who knows": ""That", I will say the cause
-of suffering; I will say the cause; I will say arising; I will say producing; I
-will say waiting; I will say eating ; I will talk about the object; I will talk
-about the fate; I will talk about the collection, I will explain, I will teach,
-I will tell, I will build, I will uncover, I will parse, I will clarify, I will
-explain. "Because I will tell you that. "As the one who knows", such as the one
-who knows, the one who knows, the other, the one who knows, the one who
-penetrates, not from hearsay, not from rumors, not from inheritance, not from
-Scripture, not from logic, not from reasoning, Not because of theoretical
-contemplation, not because of the insights accepted after contemplation, is a
-method that is personally proven and self-proven by oneself, I will say that.
-"Waiyi knows that I will tell you that.
+"I will say that for you like the one who knows": ""That", I will explain the
+cause of suffering; ...the root, arising, production, waiting ...(omitted); I
+will explain, I will teach... (omitted). "As the one who knows", such as the one
+who knows, the other (??), the one who penetrates, not from hearsay, not from
+rumors, not from inheritance, not from Scripture, not from logic, not from
+reasoning, Not because of theoretical contemplation, not because of the insights
+accepted after contemplation; a method that is personally proven and self-proven
+by oneself, I will say that. "Waiyi knows that I will tell you that.
 
 "All sufferings occur due to dependence": ""Dependence", there are ten kinds of
-dependence: dependence of craving, dependence of seeing, dependence of
-pollution, dependence of kamma, dependence of evil deeds, The attachment to
-food, the attachment to disgust, the attachment to the four attachments, the
-attachment to the six inner states, the attachment to the six types of
-consciousness, the attachment to all sufferings with heart and righteousness,
-these are called ten attachments. "All suffering", suffering from birth,
-suffering from old age, suffering from suffering, suffering from death,
-suffering from sorrow, sorrow and despair... (slightly omitted) the suffering of
-decay. From the beginning of these laws, they have been known; Knowing, kamma is
-based on kamma; kamma is based on kamma, name is based on physicality;
-physicality is based on name. Being followed by birth, accompanied by birth,
-followed by old age, conquered by illness, struck by death, and suffering Those
-who are inhabited, without shelter, without refuge, without refuge, and without
-refuge are called suffering. These sufferings are based on attachment as a
-cause, attachment as a linking cause, attachment as a condition, and Dependence
-is the cause of their occurrence, generation, being arising, being produced,
-born, and being born." It is the occurrence of sufferings due to dependence.
+dependence: dependence of craving, dependence of seeing, of pollution, of kamma,
+of evil deeds; the attachment to food, the attachment to disgust, to the four
+attachments, to the six inner states, to the six types of consciousness, to all
+sufferings with heart and righteousness; these are called ten attachments. "All
+suffering", suffering from birth, suffering from old age, suffering from
+death... (omitted). From the beginning of these dhammas, they have been known;
+Knowing, kamma is based on kamma; name is based on form; form is based on name.
+Being followed by birth, accompanied by birth, followed by old age, conquered by
+illness, struck by death, and suffering, those who live in suffering, without
+shelter, and without refuge are called suffering. These sufferings are based on
+attachment as a cause, attachment as a linking cause, attachment as a condition,
+and dependence is the cause of their occurrence, generation, arising,
+production, birth, and being born." It is the occurrence of sufferings due to
+dependence.
 
-"All kinds of different shapes and colors in any world": ""Whatever", all
-completely, every aspect completely, no surplus, the whole earth, this is the
-ubiquitous language, which is "anything." "Middle", the world of suffering, the
-world of humans, the world of heaven, the world of aggregates, the world of
-realms, the world of existence. "Various forms and colors", various types and
-types of suffering." For any world. In various forms.
+"All kinds of different shapes and forms (colors??) in any world": ""All kinds"
+...(omitted, see previous).
 
-Because of that, the Lord said:
-
-"[World Zun: "Milegu!"] If you ask me about the occurrence of suffering, I will
-say that for you as if I knew it:
-
-all sufferings occur due to dependence: all kinds of different forms in any
-world. "
-
-20. Those who are clinging to the ignorant, suffering repeatedly reach the dull,
-
+20. Those who are clinging to ignorance, suffering repeatedly reach the dull (??),
 Therefore, the one who knows should not be dependent: the life of suffering, the
-follower of production.
+follower of production. (??)
 
 "Whoever does not depend on the wise person": ""Who", who is like what, such as
-effort, such as arrangement, such as kind, wherever has arrived, where is
-Kshatriya, or Brahmin, or Vaisha, or head Dhara, or a person at home, or a monk,
-or a person, or a person. The "unwise person" is the person who has entered the
-ignorance, the ignorant, the undisturbed, and the inferior. , Relying on seeing,
-relying on pollution, relying on work, relying on evil deeds, relying on food,
-relying on disgust, relying on four attachments, relying on six inner places
-Relying on, being the dependence of the six types of consciousness, to produce,
-produce, produce, and produce." For those who rely on without wisdom.
+in effort, such as arrangement (??), such as the kind, wherever has arrived,
+where is a Kshatriya, or Brahmin, or Vaisha, or head Dhara, or a person at home,
+or a monk, or a person. The "unwise person" is the person who has entered the
+ignorance (??), the indifferent, and the inferior. Relying on seeing, relying on
+pollution, ...on work, evil deeds, food, disgust, the four attachments, the six
+inner places, being dependent on the six types of consciousness, to produce
+(??),, make it live, make it born (??)." For those who rely on without wisdom.
 
 "Suffering repeatedly reaches the dull": "Birth, suffering, sickness, death,
-suffering, sorrow, sorrow, despair, and suffering come again and again, fully
-arrive, arrive, grasp, grasp, cling to." Suffering repeatedly arrives. "The
-dull", the dull, the ignorant, the ignorant, the ignorant, the ignorant, the
-indiscriminate, and the inferior. "Because suffering repeatedly reaches the
+sorrow, despair, and bitterness come again and again, fully arrive, grasp, cling
+to." Suffering repeatedly arrives. "The dull", the dull, the ignorant, the
+unwise, the indiscriminate, and the inferior. "Suffering repeatedly reaches the
 dull.
 
-"Therefore the one who knows should not be dependent": ""therefore", "the
-reason; the cause; the condition; the cause, when you see this fault in the
-attachment." for the reason. "the knower", Those who understand, those who know,
-those who know others, those who know, and those who perceive: "All actions are
-impermanent"... (Omitted) "All actions are without self"... (Omitted) "Any
+"Therefore the one who knows should not be dependent (should not follow??)":
+""therefore", "the reason; the condition; the cause, when you see this fault in
+the attachment." For this reason. "The knower", those who understand, those who
+know, those who know others, those who see, and those who perceive: "All actions
+are impermanent"... (omitted) "All actions are without self"... (omitted) "Any
 collection of dhamma is an extinction" The one who understands, the one who
-knows, the one who knows others, the one who knows, the one who penetrates.
-"Should not be dependent", and should not be dependent upon,The attachment that
-should not be seen, the attachment that should not be polluted, the attachment
-that should not be evil, the attachment that should not be food, the attachment
-that should not be hateful, the attachment that should not be the four
-attachments , It should not be the attachment of the six inner parts, the six
-types of consciousness, should not be caused, should not be caused, should not
-be caused to arise, and should not be caused to arise. "For this reason, those
-who know should not be dependent.
+knows, the one who knows others, the one who penetrates. "Should not be
+dependent", and should not be dependent upon, the attachment that should not be
+seen, ...should not be polluted, ...not be evil, ...should not be food,
+...hateful, ...the four attachments, the six inner parts, the six types of
+consciousness, should not be caused, should not be produced, and should not be
+caused to arise. "For this reason, those who know should not be dependent.
 
-""Bitter": those who are born with suffering, those who are old, those who are
-suffering, those who die, those who are suffering, sorrow, despair, and those
-who are suffering. "The spectator of production": the spectator of the root of
-suffering, the spectator of the cause, The follower of cause, the follower of
-arising, the follower of generation, the follower of waiting, the follower of
-food, the follower of object, the follower of collection. The follower of the
-collection is called wisdom. , That is wisdom, understanding... (abbreviated) no
-delusion, choice, right view. To have, to have, to have, to have, to reach, to
-reach, to be full, to be full, to have this random wisdom, he is called the
-follower." It is the follower of the life and production of suffering.
+""Bitter (suffering ??)": those who are born with suffering, those who are old,
+those who are bitter, those who die, sorrow, despair; those who are suffering.
+"The spectator of production": the spectator of the root of suffering, ...of the
+cause, ...arising, generation, waiting, food, object, collection. The follower
+of the collection is called wisdom. That is understanding... (abbreviated) no
+delusion, choice, right view. To have, to fully have, to reach, to arrive, he is
+called the follower." It is the follower of the life and production of
+suffering.
 
-Because of that, the Lord said:
-
-"Whoever clings to the ignorant, suffering repeatedly reaches the dull,
-
-Therefore, the one who knows should not be dependent: the life of suffering, the
-follower of production. "
-
-21. Whatever we ask you you tell us, we want to ask you other things, come on!
-    Please tell that,
-
-How do wise people get more and more violent, birth, aging, sadness, and
+21. Whatever we asked you, you told us, we want to ask you other things, come!
+Please tell us,
+How do wise people get more and more violent (stormy ??), birth, aging, sadness, and
 weeping?
-
 Ask Muni to explain this thoroughly for me, because like this you are the knower
-of these laws.
+of these dhammas.
 
-"Whoever we ask you, you tell us": "Whatever we ask you, what we beg, what we
-ask, what makes us clear. "You tell us", told, explained, explained, taught , To
-be told, to be established, to be uncovered, to be resolved, to be clarified, to
-be explained." You tell us for whoever we ask you.
+"Whatever we asked you, you told us": "Whatever we ask, beg, what makes us
+clear. "You told us", told, explained, clarified, taught, established,
+uncovered, resolved." Whatever we asked, you told us.
 
-"We want to ask you about other things, come on! Please tell about that": "We
-want to ask you about other things; we want to beg you for other things; we want
-to ask you for other things; we want you to make the others clear; we want to
-ask You are better. "Come on! Please tell that", come on! Please tell; please
-explain; please teach; please inform; please build; please uncover; please
-analyze; please clarify ; Please explain. "Because we have to ask you other
-things, come on! Please tell me about that.
+"We want to ask you about other things, come! Please tell us": "We want to ask
+you about other things; we want to beg you for other things; we want to inquire
+for other things; we want you to make other things clear; we want to ask you
+more. "Come! Please tell us", come on! Please tell; please explain; please
+teach; please inform; please build; please uncover; please analyze; please
+clarify. "We want to ask more, please tell us.
 
-"How do wise people get more and more violent, birth, aging and sorrow,
-weeping": "How?", "Question of doubt, question of confusion, question of doubt,
-question of more than one question, this is rhetorical question, question irony
-, Why on earth, why on earth?" Why? The "wise man" means the wise man, the wise
-man, the enlightened man, the wise man, the distinguished man, and the wise man.
-"Storm", the storm of desire, some storms, the storm of seeing, the storm of
-ignorance. "Birth" refers to the birth, birth, entry into [fetus], birth,
-manifestation of various aggregates, and attainment of each type of sentient
-being among all living beings. "Aging": Among all living beings, about the
-aging, aging, tooth loss, whitening, wrinkles, declining life span, and
-degeneration of the roots of each kind of living beings. "Sorrow" means being
-touched by the loss (unfortunate) of the relatives, or touched by the loss of
-property, or touched by the loss of disease, or touched by the loss (loss) of
-the ring, or touched by the loss of sight, with (encountered) certain These
-losses, those who are exposed to certain sufferings, are sorrowful, sad,
-sorrowful, internal sorrow, internal sorrow, internal burning, internal burning,
-heart burning, sorrow, sad arrow. "Weeping", being touched by the loss of the
-relatives... (slightly omitted) or the loss (loss) of seeing, having
-(encountering) certain losses (unfortunate), contacting certain sufferings,
-mourning, weeping, crying, The state of crying, lamenting, weeping, speech,
-unhelpful words, muttering, weeping, tearing, weeping.
+"How do wise people get more and more violent (??), birth, aging and sorrow,
+grief": "How?", "A question of doubt, confusion, rhetorical... (omitted) ...why?
+The "wise man" means the wise man the enlightened man, the distinguished man.
+"Storm (violent??)", the storm of desire, some storms, the storm of seeing, the
+storm of ignorance. "Birth" refers to the birth, entry into [fetus],
+...(omitted). "Aging": ..., "Sorrow": ..., "Grief", being touched by the loss of
+the relatives... (omitted) contacting certain sufferings, mourning, weeping,
+crying, lamenting useless words, muttering, tearing, weeping.
 
 "How do the wise people get through the storm, be born, aging, and sorrow and
-weep?": "How do the wise people survive, surpass, pass, cross, overcome the
-storm, be born, aging, sorrow, and weep?" for the wise How do people get more
-and more violent, birth, aging, sorrow, and weeping?
+grief?": "How do the wise people survive, surpass, pass, cross, overcome the
+storm, be born, aging, sorrow, and grief?" For the wise, how do they get more
+and more violent, birth, aging, sorrow, and grief?
 
 "Muni, please explain that thoroughly for me": ""That", everything I ask;
-everything I beg; everything I ask; everything that makes me clear. "Muni", Mou
-is called wisdom, That is wisdom, understanding... (abbreviated) No delusion,
-choice of law, right view, the Blessed One has the wisdom of muni, reaching
-muni. There are three muni (perfect virtues): body muni, language muni , Yimuni
-position.
+everything I beg; everything that makes me clear. "Muni", Muni
+is called wisdom, that is wisdom, understanding... (omitted),
+the Blessed One has the wisdom of muni, reaching
+muni. There are three muni (perfect virtues): body muni, language muni, Yimuni
+position (??).
 
 What is the body of Muni? The three kinds of body and evil deeds are cut off as
-the muni position; the three kinds of good behaviors are the muni position; the
+the muni position (position ??); the three kinds of good behaviors are the muni position; the
 wisdom in the body is the muni position; the omniscience of the body is the muni
-position; walking with omniscience The Tao is the body of Muni; about the
-bodyThe abandonment of desire and greed is cut off as the position of self-muni;
+position; walking the Path with omniscience is the body of Muni; the
+abandonment of desire and greed, cut off as the muni;
 the fourth jhana of body movement [in and out of breath] extinguishment is the
-position of self-muni, which is the position of self-muni.
+position of muni, which is the position of body muni.
 
 What is the language of Muni? The abandonment of the four kinds of evil deeds is
 the position of Yumuni; the four kinds of good acts of language are the position
 of Muni; the wisdom of linguistic objects is the position of Muni; the
-omniscience of language is the position of Muni; and omniscience The path of all
-acts is the position of Yumuni; the abandonment of desire and greed about
-language is the position of Yumuni; the second Zen of Yuxing [Xunsi] is the
-position of Yumuni, which is the position of Yumuni. .
+omniscience of language is the position of Muni; and omniscience of the path of all
+acts is the position of Yumuni (??); the abandonment of desire and greed about
+language is the position of Yumuni; the second Zen of Yuxing [Xunsi] (?? )is the
+position of Yumuni, which is the position of Yumuni.
 
 What is Yimuni? The three kinds of deeds of intention and evil deeds are the
 muni position; the three kinds of good deeds are the muni position; the wisdom
 in the mind-object is the muni position; the omniscience of the heart is the
-muni position; the one that works with omniscience Tao is the position of muni;
+muni position; the one that walks the Path with omniscience is the position of muni;
 the desire and greed about the heart are judged to be the position of muni; the
 desire to perish the mind is the position of muni, which is the position of
-muni.
+mun.
+TODO: the previous three paragraphs are not very good.
 
-『Shen Muni, Yu Muni, and Yi Muni are no troubles,
-
+"Body Muni, Language Muni, and Yi Muni are (for??) no troubles,
 Muni has the status of Muni, and they say it is the one who cuts everything.
-
-Body Muni, Yu Muni, and Yi Muni are no troubles,
-
+Body Muni, Language Muni, and Yi Muni are no troubles,
 Muni has the status of Muni, and they say that they are those who have been
-cleansed of evil. 』
+cleansed of evil."
 
-There are six kinds of muni with these three kinds of muni: "Muni at home, Muni
-without home, Muni with learning, Muni without learning, Pichi Muni, Muni [in]
-Muni. 』Which is at home? Those laymen who have seen the footprints and have
-learned the precepts, these are at home. Which are homeless Muni? Those monks
-who have seen the footprints and who have learned the precepts are at home. The
-seven types of learning are for learning Muni, the Arahat is the non-learning
-Muni, the Pichi Buddha is the Pichi Muni, and the Tathagata, the Arahat, and the
-Enlightened One are Muni.
+There are six kinds of Muni with these three methods of muni: "Muni with a home,
+Muni without a home, Muni with learning, Muni without learning, Pichi Muni, Muni
+[in] Muni (??). Which is at home? Those laymen who have seen the footprints and
+have learned the precepts, these are at home. Which are homeless Muni? Those
+monks who have seen the footprints and who have learned the precepts are without
+a home. The seven types of learning are for learning Muni, the Arahat is the
+non-learning Muni, the Pichi Buddha is the Pichi Muni (??), and the Tathagata,
+the Arahat, and the Enlightened One are Muni.
 
-『Non-Muna (silence) is Muni, a foolish and ignorant man,
-
+"Non-Muna (silence) is Muni, a foolish and ignorant man,
 After raising the scale, take the top one and become a wise man.
-
 avoid all evils, that Muni became Muni because of that,
-
 Everyone who understands the [inner and outer sum] in the world, because that is
 said to be Muni.
+Who knows all the inside and outside of the world, the unwholesome and the good
+behind the Dhamma,
+Everyone who is supported (respected) by heaven and man, beyond dyeing (??) the net,
+he is Muni."
 
-knows all the inside and outside of the world, the unwholesome and the good
-behind the law,
+"Explain thoroughly", please explain that thoroughly; please teach, please
+inform, please establish, please uncover, please analyze, please clarify.
+"To ask Muni to explain it thoroughly for me. "Because like this you
+are the knower of these Dhammas": "Because like this you are the knower, judge,
+clarifier, and understander of these Dhammas." Because like this you are the
+knower of these Dhammas.
 
-Everyone who is supported by heaven and man (respected), beyond dyeing the net,
-he is Muni. 』
-
-"Explanation thoroughly", please explain that thoroughly; please teach, please
-inform, please establish, please uncover, please analyze, please clarify, please
-explain. "To ask Muni to explain it thoroughly for me. "Because like this you
-are the knower of these laws": "Because like this you are the knower, judge,
-judge, clearer, and understander of these laws." Because like this you are the
-knower of these laws.
-
-Because of that, the brahmin said:
-
-"Where we ask you, you tell us, we want to ask you other things, come on! Please
-tell that,
-
-How do wise people get more and more violent, birth, aging, sadness, and
-weeping?
-
-Ask Muni to explain this thoroughly for me, because like this you are the knower
-of these laws. "
-
-22. [World Zun: "Miragu!"] I will tell you the Fa, in the real life and not in
-    the rumor,
-
-Anyone who knows the thoughtfulness can live through the love in the world.
+22. [Blessed One: "Miragu!"] I will tell you the Dhamma, in the real life and not the rumor,
+Anyone who knows the thoughtfulness can live through the love of (in??) the world.
 
 "I will tell you the Dhamma": ""Dhamma", the beginning is good, the middle is
 good, and the end is good; the meaning is correct, the phrase is correct; only
-the perfect and pure Brahman line: four mindfulness, four righteousness , Four
-divine feet, five senses, five powers, seven enlightenment factors, eight holy
-paths, Nibbana and the path leading to Nibbana, I will tell, I will explain, I
-will teach, I will tell, I will build, I will reveal Open, I will analyze, I
-will clarify, I will explain." I will tell you the Fa for me. "Milegu", the
-Blessed One called the Brahmin by his name.
+the perfect and pure Brahman line (complete): four mindfulnesses, four
+righteousness, four divine feet (gods??), five senses, five powers, seven
+enlightenment factors, eight holy paths, Nibbana and the path leading to
+Nibbana; I will tell, I will explain, I will teach, I will reveal, I will
+analyze, I will clarify." I will tell you the Dhamma. "Milegu", the Blessed One
+called the Brahmin by his name.
 
-"In the current life and not in the hearsay": ""In the current life", "in the
-seen (in the current life); in the known; in the measured; in the made clear
-Top: "All actions are impermanent"... (abbreviated) "Any collection of Dhamma is
-an end to Dhamma" means in the Dhamma that is seen (in the current life); In the
-Dhamma that is known; In the Dhamma that is measured; In the law that is made
+"In the current life and not in rumors": ""In the current life", "in the
+seen; in the known; in the measured; in the made clear: "All actions are impermanent"... (abbreviated) "Any collection of Dhamma is
+an end to Dhamma" means in the Dhamma that is seen (in the current life); in the
+Dhamma that is known; in the Dhamma that is measured; in the Dhamma that is made
 clear, this is what I will talk about in the real life. Or, I will tell you
-about the suffering of being seen; I will tell you about the collection of being
-seen; I will tell you the way of being seen; I will tell you about being The
-extinction that I see is the extinction, and this is what I will talk about in
+about the suffering which is seen; I will tell you about the collection which is
+seen; I will tell you the way which is seen; I will tell you about the
+extinction of what is seen, and this is what I will talk about in
 the present. Or, in the life as "directly visible, instant, inviting you to see,
-can guide, and the wise should experience it by themselves." This is what I will
-talk about in the life. 』For being alive. "Not anecdotal", not anecdotal, not
-from rumors, not from inheritance, not from Scripture, not from logical
+able to guide, and the wise should experience it by themselves." This is what I will
+talk about in the life. For being alive. "Not rumors", not anecdotal, not
+from hearsay, not from inheritance, not from scripture, not from logical
 inference, not from reasoning, not because of theoretical reflection, not
-because of an opinion received after reflection, but by oneself The method of
+because of an opinion received after reflection, but by oneself. The method of
 knowledge and self-evidence, I will talk about that. "For the sake of life
-instead of rumor.
+instead of rumor."
 
-"Anyone who knows the thought after knowing": "After knowing, weighing, judging,
-separating, clarifying: "All actions are impermanent" after knowing, weighing,
-judging, separating, After clarifying; "all actions are suffering"... "all
-dhammas are non-self"... (omitted) "every collection of dhammas is the
-extinction of dhamma" after knowing, weighing, judging, separating, clarifying
-After. "Mindful", there are four ways to be mindful: when practicing mindfulness
-in the body and mindfulness... (omitted) he is called mindful. "Walker", should
-do Time, staying time, acting time, turning time, guarding time, making
-existence time, making existence time." For those who know the thoughts
-afterwards.
+"Anyone who knows the thought after knowing (??)": "After knowing, weighing,
+judging, separating, clarifying: "All actions are impermanent" after knowing,
+weighing, (omitted)..., "all actions are suffering"... "all dhammas are
+non-self"...  "every collection of dhammas is the extinction of dhamma" after
+knowing, weighing, judging, separating, clarifying. "Mindful", there are four
+ways to be mindful: when practicing mindfulness in the body and mindfulness...
+(omitted) he is called mindful. "Walker", when you go, live, act, guard,
+survive, (guarding time, surviving time, etc. ??), exist. "For those who know
+the thoughts afterwards.
 
 "Able to live through love in the world": "Love" is called craving, which is
-greed, greed (complete greed)... (abbreviated) greed, greed, unwholesome roots.
-"Being in love", what does it mean to be loving? The "spread" is for love; the
-"broad" is for love; the "broad" is for love; the "incorrect" is for love; "it
-forces" is for love; "it seizes" is for love; "Fraud" is for love; "poisonous
-root" is for love; "poisonous fruit" is for love; "poison is used" is for love;
-or, "the vast thirst for love: in color... sound... smell...
-…Taste…touched…home…people…dwelling…benefit…famous…praise…happy…clothes…food…couch…the
-patient’s needs and medical necessities…the world of desire ...The realm of
-material...the realm of colorlessness...the desire to have...the color has
-the... There is...the past...the future...now...the enlarged attachments in the
-dhammas that are seen, heard, felt, and knowable" are love. "In the world", in
-the world of suffering, in the world of humans, in the world of heaven, in the
-world of aggregates, in the world of realms, and in the world of being. "Able to
-survive the love in the world": "The love in the world, or the love in the world
-[Ni.1], he can pass through, surpass, pass, pass, and overcome thoughtfully.
-"For the love in the world to survive.
+greed, ... (abbreviated) unwholesome roots. "Being in love", what does it mean
+to be loving? The "spread" is for love (??); the "broad" is for love; the "vast"
+is for love; the "incorrect" is for love; "it forces" is for love; "it seizes"
+is for love; "Fraud" is for love; "poisonous root" is for love; "poisonous
+fruit" is for love; "poison is used" is for love; or, "the vast thirst for love:
+in form... sound... smell... taste... (omitted), the material realm, the
+formless realm, want to have (??), the four, the five endowments, past, future,
+now, the enlarged attachments in the dhammas that are seen, heard, felt, and
+knowable" are love. "In the world", in the world of suffering, in the world of
+humans, (omitted)..., and in the world of being. "Able to survive the love in
+the world": "The love in the world, or the love in the world (??) [Ni.1], he can
+pass through, surpass, pass, transcend, and overcome thoughtfully. "For the love
+in the world to survive. (To be able to spend love in the world ??)
 
-Because of that, the Lord said:
+23. I am so happy with that (I rejoice because of that), Daxian! The supreme Dhamma,
+Anyone who knows the thoughtfulness can live through the love of the world.
 
-"[World Zun: "Milegu!"] I will tell you the Fa, in your life instead of rumored,
+"I am happy with that that": ""That", your words, language, teaching, and
+admonition. "I rejoice", I rejoice; I am happy; I love; I want, I can use, I
+beg, I hope, I pray." I am so happy for that.
 
-Anyone who knows the thoughtfulness can live through the love in the world. "
+"The Great Immortal! The Supreme Dhamma": ""The Great Immortal", why is the
+Blessed the Great Immortal? The seeker and the pursuer of the Great Ring
+Aggregate (??)" is the Great Immortal; ... of the great concentration... ...of
+the great liberation of wisdom and perception... ...the broken pieces gathered
+in the dark (??), ...the destruction of the great upside down (??); "seekers who
+thirst for piercing arrows" are great immortals; "seekers of unraveling of great
+views" are great immortals;" ...of the Great Slow Banner (??); ...of the calming
+of the great works (??); ...of transcendence; the seekers who lay down the great
+burden are the great immortals; the seekers of the severance of the cycle...;
+...of extinction of the great heat...; ...of the cessation of the great heat...,
+...of the rise of the flag (??), ...of the great minds, great righteousness,
+great roots, great powers, great enlightenment, Great Eight Paths; the seeker of
+the immortal Nibbana of the great highest interest” is the great immortal;
+“Sought, pursued, and searched for by the powerful beings: Where is the Buddha?
+Where is the Blessed One? Where is the god among the gods? Where is the bull
+king among the people?" Such is the great immortal. "The highest Dhamma", the
+highest Dhamma is called immortality, Nibbana, that is the cessation of all
+actions, the cessation of all attachments, the cessation of craving, greed,
+extinguishment, and Nibbana. "Supreme", the first, the most victorious, the
+highest, the top, the most, the apex of Dhamma." For the great immortal! The
+highest Dhamma.
 
-23. I am so happy with that, Daxian! The best,
-
-Anyone who knows the thoughtfulness can live through the love in the world.
-
-"I love that": ""That", your words, language, teaching, teaching, and
-admonition. "I rejoice", I rejoice; I rejoice; I rejoice; I want, I can use, I
-Begging, I hope, I hope, I pray." I am so happy for that.
-
-"The Great Immortal! The Supreme Dhamma": ""The Great Immortal", why the Blessed
-One is the Great Immortal? "The seeker, the pursuer, and the seeker of the Great
-Ring Aggregate" is the Great Immortal; the great concentration... ... "The
-seeker, pursuer, and seeker of the great liberation of wisdom and perception" is
-the great immortal; the "seeker, seeker, and seeker of the broken pieces
-gathered in the dark" is the great immortal; "the seek of the destruction of the
-great upside down" "Seekers, seekers, and seekers" are great immortals;
-"seekers, seekers, and seekers who thirst for piercing arrows" are great
-immortals; "seekers, seekers, and seekers of unraveling of great views "The
-seeker" is the great immortal; the "seeker, the pursuer, and the seeker of the
-Great Slow Banner" are the great immortal; the "seeker, the seeker, and the
-seeker of the calming of the great works" are the great immortal; The "seekers,
-pursuers, and seekers of the transcendence" are the great immortals; the
-seekers, the seekers, and the seekers who lay down the great burden are the
-great immortals; the seekers, pursuers, and seekers of the severance of the
-cycle "The seeker" is the great immortal; the "seeker, the pursuer, and the
-seeker of the extinction of the great heat" is the great immortal; the "seeker,
-the pursuer, and the seeker of the cessation of the great heat" is the great
-immortal; Seekers, pursuers, and seekers of the rise of the flag" are the great
-immortals; "the great minds... (slightly), the great righteousness... the great
-feet... the great roots... the great powers... the great enlightenment …The Big
-Eight Paths…The seeker, pursuer, and seeker of the immortal Nibbana of the great
-highest interest” is the great immortal; “Seeked, pursued, and searched by the
-powerful beings: Where is the Buddha? Where is the Blessed One? Where is the god
-among the gods? Where is the bull king among the people?" It is the great
-immortal. "The highest Dhamma", the highest Dhamma is called immortality,
-Nibbana, that is the cessation of all actions, the cessation of all attachments,
-The cessation of craving, greed, extinguishment, and Nibbana. "Supreme", the
-first, the most victorious, the victorious, the first, the most, the most apex
-of Dhamma." For the great immortal! The best.
-
-"Anyone who knows the thoughtfulness": "[凡]After known, measured, judged,
-separated, and clarified: "All actions are impermanent" after known, measured,
-judged, separated, and clarified; "all actions are suffering" ...... "All Dhamma
-is no-self" after knowing, after weighing, after judging, after separating,
-after clarifying... (omitted) "all dhamma is extinction" after knowing, after
-measuring, after judging , After separation, after clarification.
-"Conscientious" means conscientious in four ways: when practicing mindfulness on
-the body, it is conscientious, on receiving... (abbreviated) on the mind... when
-practising on the Dhamma When mindfulness is mindful...he is called mindful.
-"Walker", when walking, staying, acting, turning up, guarding, making existence,
+"Anyone who knows the thoughtfulness (whosoever knows after the mindful
+walker??)": "After known, measured, judged, separated, and clarified: "All
+actions are impermanent" after known, measured, judged, separated, and
+clarified; "all actions are suffering" ... "All Dhamma is no-self"... (omitted)
+"all dhamma is extinction".... "Conscientious" means conscientious in four ways:
+when practicing mindfulness on the body, it is conscientious... (abbreviated) on
+the mind... ...on the heart... when practising on the Dhamma... he is
+called mindful. "Walker", when walking, staying, acting, turning up, guarding,
 making existence. "For all those who know the thoughts afterwards.
 
-"Able to live through the love in the world": "Love" is called craving, which is
-greed, greed... (abbreviated) greed, greed, unwholesome roots. "Being in love",
-what does it mean to be loving? "... (omitted) The enlarged attachment" is love.
-"In the world", in the world of the suffering world... (in the middle of the
-world). "Able to pass the love in the world": "He can pass through, transcend,
-pass, pass, and overcome thoughtfully in that world of love, or in the world of
-love." Through the love in the world.
+"Able to live through the love in (of??) the world": "Love" is called craving,
+which is greed,... unwholesome roots. "Being in love", what does it mean to be
+loving? "... (omitted) "In the world" ... (omitted) world). "Able to pass the
+love in the world": "He can pass through, transcend, and overcome thoughtfully
+in that world of love, or in the world of love." Through the love in the world.
 
-Because of that, the brahmin said:
-
-"I really like that, Daxian! The best,
-
-Anyone who knows the thoughtfulness can live through the love in the world. "
-
-24. [World Zun: "Milegu!"] Anything you know rightly, in the upper, lower and
+24. [Blessed One: "Milegu!"] Anything you know rightly, in the upper, lower and
     middle four directions,
+Rejoice and dwell in these, after the removal of consciousness the knowledge will not exist (live?? stand in existence??).
 
-The joy and dwelling in these, the consciousness after removal will not stand in
-existence.
-
-"Anything you know rightly": "Anything you know, what you understand, what you
-know, what you know, what you understand." For everything you know rightly.
-"Milegu", the Blessed One called the Brahmin by his name. "World Zun", this is a
-synonym for respect... (abbreviated) Anri (pseudonym) who testified, namely
-World Zun. "Is [World Zun: "Milegu!"].
+"Anything you know rightly": "What you know, what you understand." Everything you know rightly.
+"Milegu", the Blessed One called the Brahmin by his name. "Blessed One"... (omitted).
 
 "In the upper, lower, and middle four directions": ""Up" is the future, "Down"
 is the past, "Middle Four" is the present; "Up" is the heavenly world, "Down" is
-the hell world, "Middle Four" It is the world of human beings. Or, "Up" is good
-Dhamma, "Down" is unwholesome Dhamma, "Middle Quartet" is non-marked Dhamma;
-"Up" is the colorless realm, "Down" is the desire realm, and "Middle Quartet" is
-the physical realm ; "Up" means happy feeling, "Down" means suffering, "Middle
-Quartet" means not suffering or not happy; "Up" means above the sole of the
-foot, "Down" means below the hair, and "Middle Quartet" means in the middle. "It
+the hell world, "Middle Four" is the world of human beings. Or, "Up" is good
+Dhamma, "Down" is unwholesome Dhamma, "Middle Four" is non-marked Dhamma;
+"Up" is the formless realm, "Down" is the desire realm, and "Middle Four" is
+the physical realm; "Up" means joy, "Down" means suffering, "Middle
+Four" means neither suffering nor joy; "Up" means above the sole of the
+foot, "Down" means below the hair, and "Middle Four" means in the middle. "It
 is the four directions above, below, and in the middle.
 
-"The joy and dwelling in these, the knowledge that is removed will not remain in
+"Rejoice and dwell in these, the knowledge that is removed will not remain in
 existence": "In these", being explained, taught, informed, established,
-uncovered, analyzed, and Clarified, explained. Happiness is called craving,
-which is greed, greed... (slightly) greed, greed, unwholesome roots. "Living",
-there are two kinds of living: the thirsty living and the seeing living. How to
-live as a thirsty person? All with thirst... (Omitted) This is the dwelling of
-thirst. What is living by seeing? There are twenty people who rely on the body
-to see... (Omitted) This is the living of seeing.
+uncovered, analyzed, and clarified. Happiness is called craving, which is
+greed... unwholesome roots. "Living", there are two kinds of living: the thirsty
+(craving) living and the seeing living. How to live as a thirsty person? All
+with thirst... (omitted) This is the dwelling of thirst. What is living by
+seeing? There are twenty people who rely on the body to see... (omitted) This is
+the living of seeing.
 
 "Knowledge after removal": "Knowledge that is capable of blessing, non-blessing,
 and knowledge that does not move [SN.12.51]. In these, the knowledge that
-rejoices and moves (artificial) After removal, after removal, after removal,
-after removal, please give up, abandon, drive away, make the end, and make it go
-to non-existence." For the joy and dwelling in these, the consciousness after
-removal.
+rejoices and moves (??).  After removal, after exclusion, after breaking, giving
+up, abandoning, driving away, ending, and making it go to non-existence." For
+the joy and dwelling in these, the consciousness after removal.
 
-"Whether there is to live without standing": "Yes", there are two kinds: kamma
+"Whether there is to live without standing (??)": "Yes", there are two kinds: kamma
 and rebirth. What is kamma? Blessed deeds, non-blessed deeds, and immovable
 deeds are kamma. What is rebirth? The forms, feelings, thoughts, behaviors and
-consciousness of the knot are reborn. "Won't stay in existence": "The knowledge
-and kamma that rejoice and abide in the practice and the rebirth of rebirth will
-break, drive away, end, and make it go to the non-existent. It will not stand
-still; it will not stand or stand still at the conjunctivation again.” This
+consciousness of the knot (??) are reborn. "Won't stay in existence": "The knowledge
+and kamma that rejoice and abide in the practice and the rebirth of rebirth (??) will
+break, drive away, end, and make it go to non-existence. It will not stand
+still; it will not stand or stand still at the conjunctivation (??) again.” This
 means that the knowledge that has been removed will not stand at existence.
 
-Because of that, the Lord said:
-
-"[World Zun: "Milegu!"] You know everything, in the upper, lower and middle
-squares,
-
-The joy and dwelling in these, the consciousness after removal will not stand in
-existence. "
+---
+checkpoint
+---
 
 25. Those who live in this way, have thoughtfulness, and do not let go: Bhikkhus
     who abandon all things that I hold,
