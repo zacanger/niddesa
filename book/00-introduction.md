@@ -2,6 +2,12 @@
 
 # Introduction
 
+I have never been clear on the difference between a preface, a forward, and an
+introduction, so all of this miscellaneous information that comes before the
+main body of text is being included in a section called Introduction.
+
+## About the Niddesa
+
 The Niddesa is an ancient part of the Pāli Canon, the traditional texts of
 Theravāda Buddhism, from the Khuddaka Nikāya (the 'small' or 'miscellaneous'
 collection) in the Sutta Piṭaka (the basket of discourses). It is a commentary
@@ -36,7 +42,10 @@ karma, etc.). If you're used to the Sanskrit terms — to paraphrase Engels,
 changing the words we use a bit won't change the things themselves. The Chinese
 variously translates Bhagavā as _Lord_, _World-Honored One_, and _Blessed One_,
 and other English translations will also sometimes just write _Bhagavāt_; I've
-chosen to use _Blessed One_ because I like the feel of it.
+chosen to use _Blessed One_ because I like the feel of it. I have also chosen
+not to capitalize pronouns when referring to the Buddha, as I feel that creates
+too much of a god-like air; Christians capitalize pronouns when referring to
+their god, but the Buddha was not a god, he was a human teacher.
 
 For readability, I have omitted and abbreviated some stock passages which are
 repeated verbatim, as well as concluding sentences of each paragraph when they
@@ -55,6 +64,16 @@ References to other texts were primarily added in the Chinese version and are in
 square brackets using common abbreviations (DN, Jat., etc.); statements of who
 is speaking a given stanza are also in square brackets; I have put comments,
 clarifications, and marks of unclear passages in parentheses.
+
+### Publication History
+
+First edition: Vesak 2021.
+
+### Dedication
+
+Any merit accrued from this work, I dedicate to all suffering beings, with the
+hope that the Buddha's simple instructions and their clarifications here will
+help lead them to liberation.
 
 ## Credits and Licenses
 

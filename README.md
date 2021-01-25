@@ -10,11 +10,12 @@
 [![ko-fi](https://img.shields.io/badge/donate-KoFi-yellow.svg)](https://ko-fi.com/U7U2110VB)
 
 I recommend reading the PDF version, as the HTML is quite large, and the EPUB
-currently has some issues.
+currently has some issues. For previous versions, you can check out the assets
+at a Git tag.
 
 ## About
 
-See ./book/00-introduction.md for details.
+See ./book/00-introduction.md.
 
 ### The Text
 
@@ -25,7 +26,7 @@ to use.
 ./book contains the contents. If you find a problem or want to help, please feel
 free to [submit an
 issue](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc).
-See ./TODO.md for current tasks. ./pali is for future reference.
+See ./TODO.md for current tasks. ./pali is for reference.
 
 ### The Code
 
@@ -35,6 +36,9 @@ To try the translation code for yourself, see
 To build assets, run `make`. You will need various dependencies: make, pandoc, a
 LaTeX setup including xetex (mactex or texlive-xetex, depending on your
 platform), as well as the Cardo font.
+
+To make a new release, run `make release-major` or `make release-minor`, then
+`git push --follow-tags`. Patch changes should not result in new releases.
 
 ## Licensing
 

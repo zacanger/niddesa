@@ -42,6 +42,12 @@ clean:
 site:
 	pandoc -f gfm README.md -s -t html5 --template=templates/index.html -o index.html
 
+release-major:
+	./release.sh major
+
+release-minor:
+	./release.sh minor
+
 # Builders
 epub:	$(BUILD)/$(OUTPUT_FILENAME).epub
 html:	$(BUILD)/$(OUTPUT_FILENAME).html
