@@ -1,3 +1,4 @@
+* Unignore the build dir and turn on GH pages
 * Add accents and diacritics to Pali words, and fix Sanskritized ones
 * Fix major passages marked with `TODO`
 * Fix minor issues marked with `??`

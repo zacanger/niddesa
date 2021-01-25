@@ -1,0 +1,25 @@
+<!doctype html>
+<html lang="en">
+<head>
+  <meta charset="utf-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1">
+  <title>Niddesa</title>
+  <link href="templates/style.css" rel="stylesheet" type="text/css">
+</head>
+<body>
+    <h1 id="niddesa">Niddesa</h1>
+    <p><a href="https://zacanger.com/niddesa/build/niddesa.html">Read Online</a> · <a href="https://zacanger.com/niddesa/build/niddesa.pdf">PDF</a> · <a href="https://zacanger.com/niddesa/build/niddesa.epub">EPUB</a> · <a href="https://github.com/zacanger/niddesa">Repository</a></p>
+    <p><a href="https://paypal.me/zacanger"><img src="https://img.shields.io/badge/paypal-donate-yellow.png" alt="Support with PayPal" /></a> <a href="https://www.patreon.com/zacanger"><img src="https://img.shields.io/badge/patreon-donate-yellow.svg" alt="Patreon" /></a> <a href="https://ko-fi.com/U7U2110VB"><img src="https://img.shields.io/badge/donate-KoFi-yellow.svg" alt="ko-fi" /></a></p>
+    <h2 id="about">About</h2>
+    <p>There has never been a complete English language translation of <a href="https://en.wikipedia.org/wiki/Niddesa">the Niddesa</a>. After asking on Stack Exchange, I got <a href="https://buddhism.stackexchange.com/a/43712/19522">an answer</a> that pointed me to a Sinhala translation, which I figured I could use to automate an English translation. I then also found a complete Chinese translation and did the same thing with that.</p>
+    <p>It will take work and time to clean up the generated translations and make them readable. In the future I may try to learn Pali and do a fresh translation from the source (see those files in this repo, or the Pali Text Society's Romanizations on the Internet Archive).</p>
+    <h3 id="the-text">The Text</h3>
+    <p>The auto-generated translations were done using Google and Amazon's translation services. The Yandex and IBM Watson translations were terrible, not worth trying to use.</p>
+    <p>./text/book contains the contents. If you find a problem or want to help, please feel free to <a href="https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc">submit an issue</a>. See ./TODO.md for current tasks. ./text/pali is for future reference.</p>
+    <h3 id="the-code">The Code</h3>
+    <p>To try the translation code for yourself, see <a href="https://github.com/zacanger/translate-batches">this repo</a></p>
+    <p>To build assets, run <code>make</code>. You will need various dependencies: make, pandoc, a LaTeX setup including xetex (mactex or texlive-xetex, depending on your platform), as well as the Cardo font.</p>
+    <h2 id="licensing">Licensing</h2>
+    <p>For code in this repo, see LICENSE.md. For the output text, credits and other licenses on the source material, see the notes in the introduction file.</p>
+</body>
+</html>

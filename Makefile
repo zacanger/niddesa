@@ -36,10 +36,14 @@ HTML_DEPENDENCIES = $(BASE_DEPENDENCIES)
 PDF_DEPENDENCIES = $(BASE_DEPENDENCIES)
 
 # Basic targets
-all:	book
+all:	book site
 book:	epub html pdf
 clean:
 	rm -rf $(BUILD)
+	rm -f index.html
+
+site:
+	pandoc -f gfm README.md -s -t html5 --template=templates/index.html -o index.html
 
 # Builders
 epub:	$(BUILD)/$(OUTPUT_FILENAME).epub
