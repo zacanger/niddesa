@@ -1,4 +1,4 @@
-Second product
+### Second product
 
 131. If you get a wise companion: those who walk with you, those who live with
      kindness, those who are wise,
@@ -50,8 +50,8 @@ with him happily. "
 132. If you don't get a wise companion: those who walk with you, those who live
      with kindness, those who are wise,
 
-Like a king abandoning national territory, he should walk alone like a rhino
-horn. [Dph.23,329 verse]
+Like a king abandoning national territory, he should walk alone like a
+rhinoceros. [Dph.23,329 verse]
 
 "If you don't get a wise companion": "If you don't get, receive, obtain, have a
 wise, wise, wise, conscious, wise, separate, and wise companion." For if not Get
@@ -77,20 +77,20 @@ friends [, cutting off the obstacles of storage], shave off the hair and beard
 and put on the robes Later, after becoming a monk at home and becoming a
 non-domestic life, he started to become a state of nothing and walked alone,
 lived, moved, turned around, guarded, survived, and survived." For the king to
-abandon the national territory, it should be like a rhinoceros horn Go alone.
+abandon the national territory, it should be like a rhinoceros Go alone.
 
 Because of that, the single enlightened person said:
 
 "If you don't get a wise companion: those who walk with you, those who live with
 kindness, those who are wise,
 
-Like a king abandoning national territory, he should walk alone like a rhino
-horn. "
+Like a king abandoning national territory, he should walk alone like a
+rhinoceros. "
 
 133. We really praise the companions who have enough, we should get close to the
      equally distinguished companions,
 
-Those who do not get these no-fault eaters should walk alone like rhinoceros horns.
+Those who do not get these no-fault eaters should walk alone like rhinoceros.
 
 "We do praise our full companions": "Indeed", this is the decisive (always)
 language, the undoubted word, the confident word, the unduly worded, the
@@ -139,18 +139,18 @@ receiving. This is called a no-fault eater.
 "Those who do not get these no-fault eaters": "Those who do not get these
 no-fault eaters can't get them, after they don't get them, after they don't get
 them, after they don't have them, they don't receive them," it means they don't
-get them. A negligent eater should walk alone like a rhinoceros horn.
+get them. A negligent eater should walk alone like a rhinoceros.
 
 Because of that, the single enlightened person said:
 
 "We do praise the companions who have enough, we should get close to the equally
 distinguished companions,
 
-Those who do not get these no-fault eaters should walk alone like rhinoceros horns. "
+Those who do not get these no-fault eaters should walk alone like rhinoceros. "
 
 134. After seeing the brilliance of gold: It was completed by the blacksmith,
 
-The two are rubbing each other's hands, they should walk alone like rhinoceros horns.
+The two are rubbing each other's hands, they should walk alone like rhinoceros.
 
 "After seeing the glory of gold": "After seeing, seeing, weighing, judging,
 separating, and clarifying. "Golden" (Suvaṇṇassāti) is golden (jātarūpassa).
@@ -170,19 +170,19 @@ heavenly world. Interest and interest...death and death... Rebirth and
 rebirth...have and have...reincarnation and reincarnation...circulation and
 circulation. They create friction, friction, friction, walk, dwell, act, turn,
 guard, make existence, make existence." The two were rubbing each other on their
-hands, and they should walk alone like rhinoceros horns.
+hands, and they should walk alone like rhinoceros.
 
 Because of that, the single enlightened person said:
 
 "After seeing the brilliance of gold: it was completed by the blacksmith,
 
-Two in the hands of each otherRubbing, you should walk alone like a rhinoceros horn.
+Two in the hands of each otherRubbing, you should walk alone like a rhinoceros.
 "
 
 135. So if you are with my partner, there will be verbal conversation or
      stickiness,
 
-watching the terror of the future, he should walk alone like a rhinoceros horn.
+watching the terror of the future, he should walk alone like a rhinoceros.
 
 "So if you are with my partner": "There is a thirsty partner or a human partner.
 What is a thirsty partner? "Thirst for love", the lust for lust... (in the
@@ -225,18 +225,18 @@ intoxication [, the horror of evil], the stiff state of horror, the fear of
 erect body hair, and the fear of worry in the heart. "Watching the terror of the
 future": "He is watching, seeing, watching, watching, and observing the terror
 of the future." To watch the terror of the future, he should walk alone like a
-rhinoceros horn.
+rhinoceros.
 
 Because of that, the single enlightened person said:
 
 "So if you are with my partner, there will be verbal conversation or stickiness,
 
-Watching the terror of the future, he should walk alone like a rhinoceros horn. "
+Watching the terror of the future, he should walk alone like a rhinoceros. "
 
 136. All kinds of desires are indeed honey-like and pleasing, and they disturb
      the heart in various ways.
 
-After seeing all kinds of desires, he should walk alone like a rhinoceros horn.
+After seeing all kinds of desires, he should walk alone like a rhinoceros.
 
 "All kinds of desires are indeed honey-like and pleasing": ""Desire", there are
 two kinds of desires from the eulogy: the desire of things and the desire of
@@ -340,19 +340,19 @@ because of desire, desire is the cause.
 "After seeing the troubles on all kinds of desires": "After seeing the troubles
 on all kinds of desires, he saw, after seeing, after weighing, after judging,
 after separating, after clarifying." It is after seeing the troubles on all
-kinds of desires. , Should walk alone like a rhinoceros horn.
+kinds of desires. , Should walk alone like a rhinoceros.
 
 Because of that, the single enlightened person said:
 
 "All kinds of desires are indeed honey-like and pleasing, and they disturb the
 heart in various ways,
 
-After seeing all kinds of desires, he should walk alone like a rhinoceros horn. "
+After seeing all kinds of desires, he should walk alone like a rhinoceros. "
 
 137. This is my disaster and tumor and scourge, disease and arrow and terror,
 
 Seeing this fear in various desiresAfter fear, you should walk alone like a
-rhinoceros horn.
+rhinoceros.
 
 "This is my calamity and tumor and scourge, disease and arrow and terror": This
 was said by the Blessed One [AN.8.56]: "Bhikkhus! "Terror", which is synonymous
@@ -390,18 +390,18 @@ terror.
 "After seeing this horror in all kinds of desires", "After seeing this horror in
 all kinds of desires, he saw, after seeing, after weighing, after judging, after
 separating, after clarifying." After seeing this horror in all kinds of desires.
-, Should walk alone like a rhinoceros horn.
+, Should walk alone like a rhinoceros.
 
 Because of that, the single enlightened person said:
 
 "This is my disaster and tumor and scourge, disease and arrow and terror,
 
 After seeing this horror in all kinds of desires, he should walk alone like a
-rhinoceros horn. "
+rhinoceros. "
 
 138. Hot and cold, hunger and thirst, and to the wind and sun fly snake,
 
-After enduring all this, he should walk alone like a rhinoceros horn.
+After enduring all this, he should walk alone like a rhinoceros.
 
 "Hot, cold, hunger and thirst": ""cold", there is cold due to two reasons: cold
 due to inner excitement, or cold due to external weather. "Hot", hot due to two
@@ -416,18 +416,18 @@ The scorching sun is called the torment (scorching heat) of the sun. The
 horsefly is called the gadfly. The snake (crawler) is called the snake. .
 
 "After enduring all this": "After he has been defeated, overwhelmed, finished,
-crushed." To endure all this, he should walk alone like a rhinoceros horn.
+crushed." To endure all this, he should walk alone like a rhinoceros.
 
 Because of that, the single enlightened person said:
 
 "Hunger and thirsty for cold and hot, and for the wind and sun fly snake,
 
-After enduring all this, he should walk alone like a rhinoceros horn. "
+After enduring all this, he should walk alone like a rhinoceros. "
 
 139. After the dragon elephant gave up the herd: the torso born of the lotus
      flower, the outstanding person,
 
-will live in the wild as he likes, and should walk alone like a rhinoceros horn.
+will live in the wild as he likes, and should walk alone like a rhinoceros.
 
 "Like a dragon elephant after giving up the herd": The dragon elephant is called
 the dragon elephant (elephant), and the one who enlightened alone is also the
@@ -499,7 +499,7 @@ with peace of mind to live in the woods as you like; also to wait with the
 emptiness and to live in the woods as you like; and to wait for the
 boundlessness of knowledge...and to wait for nowhere ...And wait until you want
 to...and wait until you die...and wait until you live in the woods as you like."
-Because you can live in the woods as you like, it should be like a rhinoceros horn Go
+Because you can live in the woods as you like, it should be like a rhinoceros Go
 alone.
 
 Because of that, the single enlightened person said:
@@ -507,12 +507,12 @@ Because of that, the single enlightened person said:
 "Like a dragon elephant after giving up the herd: the torso born of the lotus
 flower, the outstanding person
 
-will live in the wild as he likes, and should walk alone like a rhinoceros horn. "
+will live in the wild as he likes, and should walk alone like a rhinoceros. "
 
 140. It is impossible: those who are willing to meet can reach temporary relief,
 
-After listening to the words of the Sun tribe, he should walk alone like a rhino
-horn.
+After listening to the words of the Sun tribe, he should walk alone like a
+rhinoceros.
 
 "It's impossible: those who are willing to meet can reach temporary relief":
 "This is said by the Blessed One [MN.122]: Ananda! Indeed, "everyone who is
@@ -541,14 +541,14 @@ of the sun and the surname Kinship, so that single enlightened person is from
 the Sun Clan. "After listening to the words of the Sun people": "The words, ways
 of speaking, teachings, teachings, admonitions of the Sun people after hearing,
 after hearing, after grasping, understanding, and discerning." After listening
-to the words of the Sun people,Should walk alone like a rhinoceros horn.
+to the words of the Sun people,Should walk alone like a rhinoceros.
 
 Because of that, the single enlightened person said:
 
 "It's impossible: those who are willing to meet can reach temporary relief,
 
-After listening to the words of the Sun tribe, he should walk alone like a rhino
-horn. "
+After listening to the words of the Sun tribe, he should walk alone like a
+rhinoceros. "
 
 The second product [completed].
 
@@ -567,7 +567,7 @@ Summary:
 
 3. Don't be happy to party (MA.191 Great Sky Sutta).
 
-4. Those who walk alone like rhinoceros horns must be able to tolerate cold, heat,
+4. Those who walk alone like rhinoceros must be able to tolerate cold, heat,
    thirst, and wind-sun-fly snakes.
 
 11/28/2020 06:41

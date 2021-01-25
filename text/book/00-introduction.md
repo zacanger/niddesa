@@ -39,6 +39,11 @@ recitation, but does nothing (in the translator's opinion) to improve the text
 when in print. This results in a significantly shorter version than the
 transliterated Pali editions.
 
+I have also chosen to use the term 'Rhinoceros' rather than 'Rhinoceros Horn';
+there is some debate about this, and maybe when I can read the Pali I'll feel
+differently, but the meaning of the sutta is the same either way (unless you're
+a rhinoceros expert, maybe).
+
 ### Credits and Licenses
 
 The Sinhala was sourced from
