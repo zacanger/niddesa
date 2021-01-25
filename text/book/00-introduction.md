@@ -35,9 +35,9 @@ native English speakers to understand. To paraphrase Engels, changing the words
 we use a bit won't change the things themselves. I have also omitted and
 abbreviated stanzas which were repeated verbatim. The repetitious style is
 common in the ancient sources because it was an aid for memorization and
-recitation, but it is the translator's opinion that this tends to harm
-readability in printed text. The reader is assumed to be able to fill in the
-gaps.
+recitation, but does nothing (in the translator's opinion) to improve the text
+when in print. This results in a significantly shorter version than the
+transliterated Pali editions.
 
 ### Credits and Licenses
 

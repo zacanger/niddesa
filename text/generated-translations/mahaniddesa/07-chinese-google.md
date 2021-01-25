@@ -13,7 +13,7 @@
     Because of that, the upper seat lowered Maitreya and said:
      "[Like this Venerable Desire Maitreya:] Those who engage in lust, dear sir! Please say annoyed,
        After hearing your teachings, we will learn by staying away. "
-    50. [World Zun: "Miracle!"] Those who engage in lust, or even forget the precepts,
+    50. [Blessed One: "Miracle!"] Those who engage in lust, or even forget the precepts,
        acted wrongly, for him this is unholy.
      "Person who engages in lust": Anyone who is illicit, filthy (village law), filthy, vulgar, washed with water after friendship (waterside), secret, one-on-one, etc. is called lust. For what reason is it called the law of lust? "It belongs to two people who are greedy, greedy, full of desire and greed (leakage), entangled, the heart is overwhelmed, and two people are in the same way." For that reason, it is called the law of lust. For example, if there are two quarrelers, they are called "fornicators"; there are two disputers, and they are called "fornicators"; there are two discussants, and they are called "fornicators"; there are two disputers. They are called "fornicators"; there are two advocators, they are called "fornicators"; there are two speakers, they are called "fornicators"; there are two interlocutors, they Known as "the adulterer". In the same way, "belongs to two people who are greedy, greedy, full of desire and greed (leakage), entangled, whose heart is overwhelmed, and two people are in the same way." For that reason, it is called the law of lust.
 "One who engages in lust": "The one who puts on the yoke, the strong one, the one who faces the yoke, the one who fully faces the yoke, the one who practices the one, the one who repeats the yoke, the one who emphasizes the one, the one who tends to the slope, To that person, to that person, to that person, to that person to increase." For those who engage in lust.
@@ -23,7 +23,7 @@
      "acting wrongly": "Killing, taking without giving, invading people's homes, taking predators, blocking roads, robbing, abducting wives, saying falsehood." It means acting wrongly.
 "For him this is unsacred": "For that person this is unsacred, foolish, ignorant, ignorant, sophistry (immortality and chaos) law, that is: evil path." For him, it is unsacred .
      Because of that, the Lord said:
-     "[World Zun: "Mille!"] Those who engage in lust, or even forget the precepts,
+     "[Blessed One: "Mille!"] Those who engage in lust, or even forget the precepts,
        acted wrongly, for him this is unholy. "
     51. After walking alone before, whoever engages in lust,
        He is like a stray car in the world, they said: a bad ordinary man.

@@ -30,11 +30,11 @@
      How is it that beings are inextricable here? It is difficult for sentient beings to get rid of pleasure, for sentient beings to be released from satisfying things, for sentient beings to be released from youth, for sentient beings to be released from disease-free, for sentient beings to be released from life, and for sentient beings to be derived from profit. It is difficult for all living beings to get rid of fame, it is hard for all living beings to get rid of praise, it is hard for all living beings to get rid of happiness, it is hard for all living beings to get rid of the desired color, and all living beings get the sound that agrees with...from smell...from taste ...It's hard to get rid of from touching, it's hard to get rid of sentient beings from eyes, it's hard to get rid of sentient beings from ear, nose, tongue, body mind, it's hard to pull out, it's hard to pull out completely, it's hard to rise, it's hard to rise completely, Difficult to unlock, difficult to release, difficult to release, difficult to overcome, difficult to overcome, difficult to pass. This is where sentient beings are difficult to get rid of.
      "Because they are not free from other people", those who fell into the mud themselves cannot pull out the others who fell into the mud. This was said by the Lord: "Chunta! "I am the one who is in the quagmire and will pull out the other quagmiers." This is impossible. Chunta! "Oneself is an unregulated, untrained, and non-nibbana and will make others tune, train, and nibbana." This is impossible. [MN.8]"This is because you are not free from other people.
 Or, if you don't have any other liberators, if they can be liberated, use their own power (fortitude), with their own strength, with their own vitality, with their own efforts (brave), with their own power, with their own strength The power of human beings, with their own human vitality, with their own human efforts, with their own correct way, following the way, non-opposite way, according to the right way, and the way according to the law, they can be liberated when practiced , This is also because you are not free from other people.
-     This is also said by the World Zun: [Ni.22]
+     This is also said by the Blessed One: [Ni.22]
      "I will not be able to liberate me: Dudag! Anyone who doubts in the world,
        When it comes to knowing the best way, then you will get through this storm. "
      This is also because of not being free from other people.
-     This is also said by the World Zun: [Dph.12,165偈]
+     This is also said by the Blessed One: [Dph.12,165偈]
     "I have done evil, I become pollution,
        I do not do evil, I become pure,
        Purity and impurity are separate, not one can make the other pure. "
@@ -98,7 +98,7 @@ These three studies should be learned when heading towards (noting); learning wh
        The former and the latter have never seen each other. "
      This is because natural (self-taste) limited life is less.
 In addition, comparing the lives of the four kings, Tiantianshen, life is less for humans, life is insignificant, life is only a few, life is instant, life is rapid, life is short, life is not a long time Yes, the fate is to live soon, the thirty-three heavenly gods...(omitted) Yematian gods...dust-day gods...transformed into the happy heaven gods...he transformed into the heavenly gods...compared to the life of the Brahma gods, to people Life is small, life is insignificant, life is only a few, life is instant, life is fast, life is short, life is long, and life is short-lived.
-     This was said by the World Zun:
+     This was said by the Blessed One:
      "Bhikkhus! The life span of human beings is short, and they must come to life. A wise man should be awakened, be kind, and practice brahma. All living are dead, bhikkhus! Those who live the elder haveA hundred years or more. "
      "The life span of a person is short, and good people should contempt it,
        should be alive and burned, [because] there is no death to come. [SN.4.9]

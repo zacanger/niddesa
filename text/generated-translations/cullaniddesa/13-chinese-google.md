@@ -145,7 +145,7 @@ forward to your words,
 Please explain them thoroughly, because like this you are the knower of these
 laws. "
 
-72. [World Zun: "Bodo Wu Da!"] He should adjust all grasping and craving, in the
+72. [Blessed One: "Bodo Wu Da!"] He should adjust all grasping and craving, in the
     upper, lower and middle four directions,
 
 Whatever they cling to in the world, the demon follows sentient beings just
@@ -160,9 +160,9 @@ their thirst for this reason. "He should temper all grasping and craving": "All
 grasping and craving should be tempered, expelled, discarded, expelled,
 terminated, and rendered non-existent." Temper all grasping and craving.
 
-"[World Zun: "Ruo Du Geng Ni!"]": ""Ruo Du Geng Ni", "The World Lord calls that
+"[Blessed One: "Ruo Du Geng Ni!"]": ""Ruo Du Geng Ni", "The World Lord calls that
 Brahmin by his name. "World Honored One", this is a synonymous with respect...
-(abbreviated) Anli ( Pseudonym), that is, World Zun." is [World Zun: "Ruodu
+(abbreviated) Anli ( Pseudonym), that is, Blessed One." is [Blessed One: "Ruodu
 Gengni!"].
 
 "Upper, lower, and middle four directions": ""Upper" is the future, "Down" is
@@ -191,7 +191,7 @@ sentient beings.
 
 Because of that, the Lord said:
 
-"[World Zun: "Budo Wu Da!"] He should moderate all grasping and craving, in the
+"[Blessed One: "Budo Wu Da!"] He should moderate all grasping and craving, in the
 upper, lower and middle four directions,
 
 Whatever they cling to in the world, the demon follows sentient beings just

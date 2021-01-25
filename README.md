@@ -31,7 +31,8 @@ trying to get one decent translation out of them.
 
 ### The Code
 
-To try the translation code for yourself, see the notes in code/translate.
+To try the translation code for yourself, see
+[this repo](https://github.com/zacanger/translate-batches)
 
 To build assets, run `make`. You will need various dependencies: make, pandoc, a
 LaTeX setup including xetex (mactex or texlive-xetex, depending on your

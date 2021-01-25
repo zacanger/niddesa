@@ -12,7 +12,7 @@
 "This is not unbelievable: those who wish for heavenly desires will not want human desires, or those who wish for heavenly desires will not want heavenly desires, where you do not want neither, are not used, do not want, do not desire, do not Pray, what is your seeing, which one do you have?" he (Magendia) asked. [Roman Pinyin version put this paragraph here]
      [Because of that, Magendiya said:] "If you don't want this kind of treasure: a woman who is wanted by the king of many people,
        What do you think about evil views, precepts and prohibitions, life, survival and death? "[Roman Pinyin Version]
-    72. [World Zun: "Ma Gendia!"] "I said this" did not exist for him, and was held tightly after being selected by law,
+    72. [Blessed One: "Ma Gendia!"] "I said this" did not exist for him, and was held tightly after being selected by law,
        But after the person who saw in the views did not pick it up, when Jane left, she saw the silence within herself.
 "'I said this' does not exist for him": "'I said this', I said this; I said this; I said so much; I said it was in this range; I said this evil view: "The world is "Chang Heng's"... (omitted) or "After death, the Tathagata neither exists nor does not exist." "It does not exist for him", and it does not exist for me. "I said only in this range" does not exist for him Exists." "I said this" does not exist for him.
 ""Magendiya", the Blessed One called the Brahman by his name. "Blessed One", a respectful synonym... (abbreviated) Anri (pseudonym) who testified, that is, the Blessed One." is [World Blessed: "Magendiya!" "].
@@ -25,7 +25,7 @@ Or, "This view is hell-oriented, animal-oriented, and evil-oriented." When I see
 Or, "This view is impermanent, promising, and conditioned by conditions. It is the extinction, dissolution, fading, and extinction." When I see the faults in the various insights, I do not hold or cling , Do not cling to seeing, or, should not hold, should not cling, should not be attached. This is also true, but the one who saw it in the various views does not pick it up.
 "When Jane sees the silence within herself": "The silence within herself is the stillness of greed within herself; the silence of aversion; the silence of ignorance; the angry...resentful...hiding evil...dominant...jealous The... stingy... the false... the cunning... the stubborn... the passionate... the slow... the extremely slow... the slow... the lax... all the polluting... all the evil ...All the troubles...all the heat...all the heat...all the silent, still, calming down, cooling, cessation, and stillness that is not well-crafted. "When Jane is not", when Jane is not; When selecting; when compulsively selecting; when measuring; when judging; when distinguishing; when clarifying: "everything is impermanent" when distinguishing; when selecting; when compelling to select ; When weighing; when judging; when distinguishing; when clarifying, "all actions are suffering"... "all dhammas are selfless" when simple separation; when checking; when forced checking and choosing... …"Any collection of dhamma is extinguished" when it is simple to distinguish; when to select; when to force to select; when to measure; when to judge; when to distinguish; when to make it clear. "See", see, see To, to see, to penetrate. "For Jane saw the silence within herself when she said goodbye.
      Because of that, the Lord said:
-    [World Zun: "Ma Gendia!"]
+    [Blessed One: "Ma Gendia!"]
      "'I said this' doesn't exist for him. After being selected in the law, it is held tightly.
        But after the person who saw in the views did not pick it up, when Jane left, she saw the silence within herself. "
     73. [Like this, Ma Gendiya:] Wherever there is a judgment, Muni! You really don't pick up those and say,
@@ -37,7 +37,7 @@ Or, "This view is impermanent, promising, and conditioned by conditions. It is t
      Because of that, the brahmin said:
      [Like this, Ma Gendiya:] "Whoever has a fixed view (all counts) judgment, Muni! You really don't pick up those and say,
       How can the truth of "silence in oneself" be proclaimed by the wise? "
-    74.[World Zun: "Ma Gendia!"]
+    74.[Blessed One: "Ma Gendia!"]
        is not based on seeing, not based on what is heard, not based on wisdom, nor does it say that taking precepts and prohibitions is pure,
        is not due to invisible, unheard, unwise, unpredictable, unrestricted,
        But after giving up and not picking up these, the silent ones won't be eager to have them if they don't stick to it.
@@ -51,7 +51,7 @@ Or, "This view is impermanent, promising, and conditioned by conditions. It is t
 "The silent person will not yearn for being after he doesn't stop": ""The silent person", "The greedy has subsided state is the silent one; the angered has subsided state is the silent one; the foolish has subsided state is the silent one; the angry... Resentful...hiding evil... bossy... envy... stingy... phony... cunning... stubborn... passionate... slow... extremely slow... slow ...All the pollution...all the evil...all the troubles...all the heat...all the heat...all the unwholesome contrived state has been silent, calmed down, calmed down The extinguished state, the cooled state, the departed state, and the halted state are the silent, silent, calmed, cooler, and halted." is the silent one.
      "After not relying on", there are two kinds of dependence: the dependence of craving and the dependence of seeing... (Omitted) This is the dependence of craving... (Omitted) This is the dependence of seeing. "After giving up the one who breaks the thirst for love, after the refusal of the mind, the one who does not cling to the eyes; the one not clinging to the ears; the one not clinging to the nose; the one not clinging to the tongue; the one not clinging to the body; the one not clinging to the will; ...All voices...all smells...all tastes...all touches [...all dhammas]...home...group (people)...above...famous...fame...praise...le... ...Food...housing...patients' needs and medical necessities...the world of desire...the world of color...the world of colorlessness...the world of desire...the world of color... I want to have...One aggregate has...Four aggregates have...Five aggregates have...past...future...now...all the dhammas that can be seen, heard, felt, and can be understood are not followed; After not grasping, after not grasping, after not clinging. "After the silent one does not follow. "I don't want to be there", I don't want to have it; I don't want to have sex; he doesn't want to have colorlessness, he won't hope; he won't pray. Those who are silent will not be eager for it if they don't follow it.
      Because of that, the Lord said:
-    [World Zun: "Ma Gendia!"]
+    [Blessed One: "Ma Gendia!"]
      "It is not based on seeing, not based on what is heard, not based on wisdom, nor does it say that taking precepts and prohibitions is pure
        is not due to invisible, unheard, unwise, unpredictable, unrestricted,
        But after giving up and not picking up these, the silent ones won't be eager to have them if they don't stick to it. "
@@ -68,7 +68,7 @@ Or, "This view is impermanent, promising, and conditioned by conditions. It is t
      "[Like this, Ma Gendiya:] If it is true that it is not pure by seeing, by hearing, by wisdom, nor by virtue of precepts and prohibitions,
        is not due to invisible, unheard, unwise, unpredictable, unrestricted,
        I think it is the method of confusion, some people return to seeing as pure. "
-    76.[World Zun: "Ma Gendiya!"] Yizhi repeatedly questioned after seeing it, and came to ignorance in his grip,
+    76.[Blessed One: "Ma Gendiya!"] Yizhi repeatedly questioned after seeing it, and came to ignorance in his grip,
        But I don't see the subtle thoughts from here, so you think (see) as confused.
 "After seeing and repeatedly questioning": "Magendiya Brahman insisted after seeing and questioning, after insisting on adhesion, he asked about adhesion, after relying on tethering, he interrogated about tethering, and after obstructing he was interrogating obstacles. Questioning again and again." Wei Yizhi repeatedly questioned after seeing.
 ""Magendiya", the Blessed One called the Brahman by his name. "Blessed One", a respectful synonym... (abbreviated) Anri (pseudonym) who testified, that is, the Blessed One." is [World Blessed: "Magendiya!" "].
@@ -76,7 +76,7 @@ Or, "This view is impermanent, promising, and conditioned by conditions. It is t
 "But I didn't see the subtle thoughts from here": "From here, from the silence within himself, or from the path, or from the teachings of the Dhamma, he did not get the proper thoughts, thoughts of arrival, thoughts of phenomena, thoughts of causes, Possibility (location) thinks, where is wisdom from?" This is the case, but I don't see the subtle thoughts from here. Or, "He didn't get impermanence or impermanence thinking; suffering or oblivious thinking; without self or conformity without self thinking; only wanting to arise or only cognition, where does wisdom come from?" This is also true but he did not see from here Think slightly.
 "Therefore you set (see) as bewildered": ""Therefore", therefore; that reason; that cause; that condition; that cause is set, seen, seen, watched, contemplated, and observed as the delusion, foolishness, Ignorance, ignorance, sophistry." So you consider (see) deceiving.
      Because of that, the Lord said:
-     "[World Zun: "Ma Gendiya!"] Yi Zhi repeatedly questioned after seeing it, and came to delusion in his grip,
+     "[Blessed One: "Ma Gendiya!"] Yi Zhi repeatedly questioned after seeing it, and came to delusion in his grip,
        But I don't see the subtle thoughts from here, so you think (see) as confused. "
     77. Equal or extraordinary or despicable, whoever he thinks he would argue because of that,
        When unshakable in the three kinds, he does not want to be "equal and superior."

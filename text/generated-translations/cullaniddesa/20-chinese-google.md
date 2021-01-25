@@ -879,7 +879,7 @@ At that time he was a blind dark one: anyone who can be conquered by idiots. "
 
 like thisIt is the danger of "living there".
 
-This was said by the World Zun [SN.3.2]: "The King! When the three laws within a
+This was said by the Blessed One [SN.3.2]: "The King! When the three laws within a
 man arise, disadvantage, suffering, and restlessness arise. Which three are
 there? King! When the greed within the man himself arises, disadvantages,
 sufferings, and restlessness arise; lord! When the aggression within the man
@@ -894,7 +894,7 @@ hurt oneself, like many fruits [damage] its tree heart. "
 
 This is also "inhabiting there" in danger.
 
-This was said by the World Zun: [SN.10.3]
+This was said by the Blessed One: [SN.10.3]
 
 "From here, there are greed and anger, from here unhappiness, happiness, and
 body hair stand up.
