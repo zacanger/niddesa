@@ -55,6 +55,8 @@ For readability, I have omitted some stock passages which are repeated verbatim,
 as well as concluding sentences of each paragraph when they simply repeat the
 first sentence, and concluding repetitions after the explanation of each verse.
 Without these omissions, the book would be at least twice as long as it is now.
+Because of this, it makes more sense to read the translation from start to
+finish rather than referencing specific suttas out of order.
 
 Included verse numbers are numbers of the verses as presented in the two parts
 of the Niddesa itself. Including separate verse numbers for each sutta, their
