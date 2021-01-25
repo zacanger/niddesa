@@ -1,7 +1,3 @@
-14. Expedited instructions
-
-Secondly, the speedy explanation will say:
-
 150. Sun people! I ask you, away from the land of silence, Great Immortal!
 
 How to see after Picchu arrived at Nibbana, become no executor in the world?
@@ -1838,32 +1834,3 @@ self-evidence, not rumors,
 
 It is therefore true that those who do not relax of the worldly commandment
 should always follow with respect. [Like this Worldman (said)]"
-
-Expedited Statement XIV [Completed].
-
-
-
-
-
-Excerpt:
-
-1. mindfulness (adhering) Fushimi slow (I am the slow - false papañca delusion
-   root) love (inner thirst love) witness Nibbana.
-
-2. who can prove the law should not be fortitude (stubborness/slow - equal).
-
-3. did not take (I see/hold) which has rejected (disseed/released).
-
-4. the law of distress: not everywhere, do not listen to village theory, not
-   greedy, not to be mine, ill not sad, do not pray, fear of not trembling,
-   clothing and food is not storage/lack of chestnut, live little meditation Do
-   not wander, do not regret not relax, enthusiastically learn not much sleep,
-   do not cheat /laugh/entertainment/list/dress up, do not engage in
-   magic/dream/astrology/astrology/beast vocal/pregnancy/medicine, do not care
-   about birth, remove Greedy and stingy, do not engage in the sale, do not
-   engage in the village, not flattering, do not boast, do not imply, not
-   arrogance or contempt others (self-defiance), do not talk about controversial
-   talk, no falsehood, no fraud, no counterattack Learn salute.
-
-12/14/2020 16:40
-

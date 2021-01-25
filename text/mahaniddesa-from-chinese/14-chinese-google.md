@@ -1,6 +1,4 @@
-14. Quick explanation
-
-Secondly, the quick explanation will say:
+### 14. Explanation of the Quick Instructions
 
 150. Sun people! I ask you, the realm of far away and silence, Great Immortal!
 
@@ -2021,37 +2019,3 @@ hearsay,
 
 Therefore, it is true that those who do not let go should always respectfully
 follow the teachings of the Blessed One. [Like this Blessed One (say)]"
-
-The fourteenth [completed] of the quick explanation.
-
-
-
-
-
-Summary:
-
-1. The study of mindfulness (precipitation, concentration and wisdom) adjusts
-   and sees slowness (I am the slowness-the root of vain papañca delusion) love
-   (the inner craving) realizes Nibbana.
-
-2. Those who can prove that they know the law should not be fortitude
-   (stubborn/high-slow-point wins the bad).
-
-3. What is not taken (that I saw/held) was rejected (rejected/released).
-
-4. The method of regulating the dangers: not seeing everywhere, not listening to
-   the village theory, not being greedy, not treating me as me, not weeping in
-   sickness, not praying for something, not trembling with fear, not storing
-   food and clothing, not trembling when lacking, and living little Vocal
-   meditation does not wander, do not regret or let go, eager to learn, do not
-   sleep, do not deceive/ laugh out loud/ entertaining/ lust/ dress up, do not
-   engage in magic/ astrology/ astrology/ astrology/ animal sound/ pregnancy
-   Medical skills, don't care about birth, get rid of greed and miserliness,
-   don't get involved in business, don't cling to the village, don't flatter,
-   don't boast, don't suggest, don't be arrogant, don't contempt other people
-   (self-esteem), don't talk about controversial discussions, don't lie, don't
-   Fraud, don't fight back---learn with respect and respect.
-
-12/14/2020 16:40
-
-
