@@ -3,17 +3,18 @@
 # Introduction
 
 The Niddesa is an ancient part of the Pāli Canon, the traditional texts of
-Theravada Buddhism, from the Khuddaka Nikaya in the Sutta Piṭaka. It is a
-commentary on parts of the Sutta Nipāta,
-and is attributed to Venerable
-Sāriputta (Pāli; Sanskrit Sariputra). There are two parts:
+Theravāda Buddhism, from the Khuddaka Nikāya (the 'small' or 'miscellaneous'
+collection) in the Sutta Piṭaka (the basket of discourses). It is a commentary
+on parts of the Sutta Nipāta (section of suttas), and is attributed to Venerable
+Sāriputta (Pāli; Sanskrit Śāriputra). There are two parts:
 
 * The Mahā Niddesa (Nd 1), a commentary on the Atṭḥaka Vagga (Sn 4)
 * The Cūlạ Niddesa (Nd 2), a commentary on the Pārāyana Vagga (Sn 5) and the
   Khaggavisānạ Sutta (Rhinoceros Sutta, Sn 1.3)
 
 While this text is a commentary on sections of the Sutta Nipāta, there's no need
-to be familiar with work first, as the verses commented on are translated here.
+to be familiar with that work first, as the verses commented on are translated
+here.
 
 ## About This Translation
 
