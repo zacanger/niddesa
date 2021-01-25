@@ -47,7 +47,7 @@ Awakens, dies, disappears. Will be destroyed. There is no escape from death.
 Fear of falling, as well as the frequent fear of death at birth
 Is coming. "
 
-“All the pottery made by the Yamze potter is finished breaking
+"All the pottery made by the Yamze potter is finished breaking
 And so is human life. "
 
 "Young and old alike are killed, whether they are fools or pundits
@@ -129,12 +129,12 @@ Knowing this fact in the objects that are known, determined and revealed
 Panditatheme "means one who has wisdom, one who has intellect, one who has wisdom, one who has wisdom.
 
 [APZ 41.6] (# apz41.6) # apz41.6 .ref .apz} "The one who considers mine to be mine
-Does not bend. ”The ego (that is mine) is two and the lust ego is also evil
+Does not bend. "The ego (that is mine) is two and the lust ego is also evil
 Selfishness (paragraphs (2-6) 1 (ii) (iii) should be used here)
 
 "Consider mine" means the Buddha adopted the Dhamma and the Sangha adopted
 Acquired means. He meditates on that Blessed One.
-The Blessed One accepts that person. “Blessed are you
+The Blessed One accepts that person. "Blessed are you
 In the speech. Mahanai, some of those bhikkhus are hypocritical, harsh and flattering.
 Those monks who have dignity are not the ones who have selfishness to me. Mahanai, these are the monks
 Those who have left the Dharma Vinaya (Sasana). They grow up in this Sasana
@@ -296,7 +296,7 @@ This animal is disgusting to me. These editors are happy
 Does not mean that those who do not are angrily disliked and do not create nonsense?
 
 [APZ 46.4] (# apz46.4) # apz46.4 .ref .apz} "Mourning or stinginess on him
-It does not stick to the paper like water. ”
+It does not stick to the paper like water. "
 Means to the weary.
 
 [APZ 46.5] (# apz46.5) # apz46.5 .ref .apz} "Mourning" is a relative disaster
@@ -364,7 +364,7 @@ Will be.
 [APZ 48.2] (# apz48.2) # apz48.2 .ref .apz} "
 The Arahant does not think (in terms of lust).
 I do not think so. I do not think so. This is what I saw
-Don't think. I do not think so. I do not think so. Don’t think of it as what you hear. me
+Don't think. I do not think so. I do not think so. Don't think of it as what you hear. me
 I do not think so. Taken from three instincts) does not think of the mouth.
 Don't think in the mouth. Don't think in terms of mouth. Taken by me orally
 Don't think. The known does not think. Do not think in what you know. As is well known

@@ -34,7 +34,7 @@ such a name, such a surname, such a face, [eating] such food , Such feelings of
 pain and happiness, such a long life, the one who was born there after death,
 and there is such a name, such a surname, such a face, [eat] such food, such a
 feeling of pain and pleasure , Such a long life, the one who died from there was
-born here. 』Like this, he pointed out that many previous lives had such
+born here. "Like this, he pointed out that many previous lives had such
 behaviors and situations. In this way, the Blessed One points out the past of
 others.
 
@@ -44,7 +44,7 @@ Blessed One points out the past of himself and others; when talking about the
 Great Kindness Sutra [DN.17], the Blessed One Point out the past of oneself and
 others; when talking about the Great General Administration Sutra [DN.19], the
 Blessed One points out the past of himself and others; when talking about the
-Ma’e Diva Sutra [MN.83], the Blessed One points out the past of himself and
+Ma'e Diva Sutra [MN.83], the Blessed One points out the past of himself and
 others.
 
 This was said by the World Zun [DN.29]: "Chunta! Regarding the past lives,
@@ -131,14 +131,14 @@ Sakyamuni family." It is a Sakyamuni... (abbreviated) "Those who have already
 given up the fear of terror, and those who have left their bodies and erected
 hair." Sakyamuni. "I ask wisdom", I ask his wisdom, I ask Hui, I ask Zheng
 enlightenment: "What is it like, what is established, what kind, and what kind
-of contrasting wisdom should be wanted的?』」It is Sakyamuni! I will ask wisely.
+of contrasting wisdom should be wanted的?"'It is Sakyamuni! I will ask wisely.
 
 "How should a person like that be guided": "How should he be guided, should be
 tempered, should be comforted, should be told, should be considered, should be
 seen, and should be made clear? How? Because that higher wisdom should make it
 arise? "Like that kind of person", like that kind of person, like that, that
 setter, that kind of person, that kind of person, that similar person, whoever
-has nothing to wait to get Those.” For how people like that should be guided.
+has nothing to wait to get Those." For how people like that should be guided.
 
 Because of that, the brahmin said:
 
@@ -243,31 +243,31 @@ human beings have been reborn to the realm of goodness and heaven after death."
 This was said by the world-zun [MN.12]: Again, Sariputra! Here, after knowing
 the heart so well, I know someone: "This individual who walks the way and
 behaves like that has entered the disintegration of the body, and will be reborn
-into the way of suffering, evil, lower realms, and hell after death. . 』
+into the way of suffering, evil, lower realms, and hell after death. . "
 
 Again, Sariputta! Here, after knowing the heart so well, I know someone: "This
 individual who walks the way and behaves like that has entered the way of the
 disintegration of the body and will be reborn in the animal world after death.
-』
+"
 
 Again, Sariputta! Here, after knowing the heart so well, I know someone: "This
 individual who walks the way and behaves like that has entered the way of
 disintegrating the body, and will be reborn in the world of hungry ghosts after
-death. 』
+death. "
 
 Again, Sariputta! Here, after knowing the heart so well, I know someone: "This
 individual who walks the way and behaves like that has entered the way of
-disintegrating the body, and will be reborn in the human being after death. 』
+disintegrating the body, and will be reborn in the human being after death. "
 
 Again, Sariputta! Here, after knowing the heart so well, I know someone: "This
 individual who walks the way and behaves like that has entered the
 disintegration of the body, and will be reborn in the way of goodness and heaven
-after death. 』
+after death. "
 
 Again, Sariputta! Here, after knowing the heart so well, I know someone: "This
 individual who walks the way and behaves like that has entered the extinction of
 all the troubles, and will enter in the life after witnessing the wisdom to
-testify. Then live in the mind free from worry, free from wisdom. 』」To know
+testify. Then live in the mind free from worry, free from wisdom. "'To know
 thatContinuation.
 
 "It is the victor, the one who has fun": "The "victor" who has nowhere. "The

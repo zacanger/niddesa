@@ -137,7 +137,7 @@ Holds. Thus behaving differently from the genus.
 
 [APZ 51.2] (# apz51.2) # apz51.2 .ref .apz} "Does anyone associate with sex"
 If the Dhamma is any such evil Dhamma (7-1) 1 (i) (ii) paragraphs should be applied)
-Even if the union of two is the doctrine of sexual intercourse. “Someone associates with sex
+Even if the union of two is the doctrine of sexual intercourse. "Someone associates with sex
 Will "means that in recent times the Buddha, the Dhamma, the Sangha, have abandoned the discipline and come down.
 That is, the doctrine of sexual intercourse is practiced.
 
@@ -234,7 +234,7 @@ Celebrating, that is.
 [Msdiv 53] (# msdiv53) # msdiv53 .ref .msdiv} (7 - 5)
 
 [APZ 53.1] (# apz53.1) {# apz53.1 .ref .apz} "
-The mind thinks with a delusion. ”(Ii) From the concept of lust, business.
+The mind thinks with a delusion. "(Ii) From the concept of lust, business.
 Touched by the concept, the concept of violence, the concept of vision
 It was closed. Burns like a fool, like a deceiver. Wondering.
 Yamse owlYamse Koka wonders if he is looking for a mouse on a tree branch
@@ -266,7 +266,7 @@ Is used. "Where" is "is the euphemism for the words to be loaded
 An application in order. "Weapons" are three weapons. Body surgery, speech surgery,
 Is the weapon of the mind. The threefold body defilement is called anatomy.
 The threefold word immorality is the weapon of speech. The threefold mind is depraved
-The weapon of the mind. “Guided by the stories of others” means graduates
+The weapon of the mind. "Guided by the stories of others" means graduates
 By or by professors or associates of similar degrees
 Accused by people or friends knowingly lies.
 Lord, I cling to the priesthood. I do mother feeding. Therefore

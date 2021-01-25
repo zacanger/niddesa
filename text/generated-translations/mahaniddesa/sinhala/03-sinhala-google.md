@@ -46,7 +46,7 @@ That is. Spiritually or externally or spiritually externally.
 [APZ 16.1] (# apz16.1) # apz16.1 .ref .apz} "How to transcend your own vision
 Are some of the theorists who killed the beautiful Parivrajika and Sakyaputra
 The professions of the shramanas are blamed and thus profit, fame and hospitality
-We will get some worship later, ”said Asha
+We will get some worship later, "said Asha
 They have such beliefs, they have such hopes, they are their own
 Vision, one's own taste, one's own creed, one's own idea, one's own intention,
 Could not be exceeded. But the same people came back to them. Thus
@@ -103,7 +103,7 @@ The greatest of the Sasanas is Sil. The abode was faded from the pratimoksha swa
 Does. The courtesy and courtesy was the fear of the slightest offense
 Discipline in keeping with the precepts. Someone disciplined its discipline and did not exceed this
 Virtue becomes, this is peace, in the sense of virtue. Peace be upon you
-If. This is called virtuousness and fasting. What's wrong? Isn’t that virtuous,
+If. This is called virtuousness and fasting. What's wrong? Isn't that virtuous,
 Are octogenarians. "Aranjikanga" "Pindapathikanga" "Pansukulikanga" "Thechivarikanga"
 "Sapadana Charikanga" "Khalu Pachjabhattikanga" "Nesajjikanga" "Yathasanthathikanga"
 Virtue, it is said. Not virtuous. Management FatiguePeace is also called fasting. Virtue
@@ -114,7 +114,7 @@ Strictly speaking, such fatigue is called peace fasting. Not virtuous.
 
 [APZ 17.3] (# apz17.3) # apz17.3 .ref .apz}
 I will not leave the temple. I do not expect. I will not drink.
-I will not receive. I will fall. ”The mind hardens
+I will not receive. I will fall. "The mind hardens
 It is called vrataya. Not virtuous. Somewhat hard on my mind associations
 I will not get up from this seat until I get rid of it. I will not walk.
 I will not leave the house, which is shaded like the wings of a gourd. From the palace
@@ -311,7 +311,7 @@ From the bed, the human being is the animal (paragraphs 7 (ii) should apply here
 [APZ 20.4] (# apz20.4) {# apz20.4 .ref .apz} "In those embraces"
 In terms of downsizing. Matters of "Will the Dhamma be expelled or accepted?"
 Two are devoid of dating, and the other's ideas are disintegrating or dating.
-Not dating because it is inappropriate. How about dating as a breakup of other people’s ideas
+Not dating because it is inappropriate. How about dating as a breakup of other people's ideas
 No, that scribe is not omniscient. Dhamma is not self-evident. Sangha Supratipanna
 Not at all. Vision is not good The precept is not a well-imposed path
 Not narcissistic here in purityOr holiness or purity
@@ -383,7 +383,7 @@ Dimension is, (vii) some person in this world by race, tribe or caste
 From whiteness or wealth or learning or industry or craftsmanship
 From the academy or from knowing or understanding a lot or something else
 Such a dimension presents a flag as a feeling of superiority in the mind
-If there is one dimension that has been achieved. This is called dimension. ”The holy man is also magic
+If there is one dimension that has been achieved. This is called dimension. "The holy man is also magic
 Leaving the Dimension 'means that the wise will not be deceived and the Dignity will not be removed.
 Pamunuwa lives.
 

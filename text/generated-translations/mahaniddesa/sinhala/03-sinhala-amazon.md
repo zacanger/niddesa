@@ -7,22 +7,22 @@
 [Msdiv 15] (#msdiv15) {#msdiv15 .ref .msdiv} (3 - 1)
 
 [APZ 15.1] (#apz15 .1) {#apz15 .1 .ref .apz} "The Wicked Hearts
-“Athemek Saw” has some wicked hearts, which have the prophesy minds
+"Athemek Saw" has some wicked hearts, which have the prophesy minds
 Many of the dissenting minds have the most disgraced minds
 Bhikkhu and Bhikkhu who have many hated hearts
 The constituent also saw certain things in the lie. Appliance
 
 [APZ 15.2] (#apz15 .2) {#apz15 .2 .ref .apz} "They have real hearts again
-That word, which the writers believe, that they believe, “Saw”
+That word, which the writers believe, that they believe, "Saw"
 The word that thought was true, the signs that thought was the true, the sign that thought was the true
 It is such signs that think that there is no difference here that there is no such signs that are thought to be something.
 Some people who have received signs are lie to them and the constituents
 What does the saw make.
 
 [APZ 15.3] (#apz15 .3) {#apz15 .3.ref .apz} "Muni's third birthplace
-That discourse arose from “not”. The lower were the Bhikku and Bhikku
+That discourse arose from "not". The lower were the Bhikku and Bhikku
 The signal was also caused by the liar. Munithemi absent
-“Muni” is said to the connotation “what” is. Propagation of a certain signal
+"Muni" is said to the connotation "what" is. Propagation of a certain signal
 Is it said that Amohayayaeth Dharmamahia, and that's with the same consciousness
 The justice person is the one. Did anyone come to the smear of two things
 Arrives to the dogma. Since the causative is the causative, comes into dogma. Really or said
@@ -34,11 +34,11 @@ Wemy"I do not hold that the sheaze and the malice is unhappy. Muni Themes both o
 does not come to the orthology. The dogma does not take. Polism does not parotize.
 
 [APZ 15.4] (#apz15 .4) {#apz15 .4 .ref .apz} "Hence Munihu or ulak
-No.” “Hence” means that by that fact it is due to that
-Asleep. “Ragadi” Hull is not, as the Munites have their hearts
+No." "Hence" means that by that fact it is due to that
+Asleep. "Ragadi" Hull is not, as the Munites have their hearts
 Wei. There were no pang-chetho pals. Raga, Dosha, Hou, Hull
 Nor. Nouveable. was innate. Originally snatched. Constipated. To be born
-was inappropriate. The wisdom was burned by the fire. “Wherever” is somewhere
+was inappropriate. The wisdom was burned by the fire. "Wherever" is somewhere
 Ready. either in the education or externally or in the external part of the study.
 
 [Msdiv 16] (#msdiv16) {#msdiv16 .ref .msdiv} (3 - 2)
@@ -46,7 +46,7 @@ Ready. either in the education or externally or in the external part of the stud
 [APZ 16.1] (#apz16 .1) {#apz16 .1 .ref .apz} "Own Views
 Any of those undergraduates who killed the Sangari Pravajika
 A profit-reputable reputation is hoisted by emanating the blame of the embekal
-We will get a homemade after that,” said the Optician desires
+We will get a homemade after that," said the Optician desires
 Aththahu thus expected them to be their own
 Vision, Custom Appetite, Custom cult, Custom Idea, Custom Custom Custom,
 Couldn't be left out. Then the same people returned to them. Here
@@ -65,24 +65,24 @@ Exceeds, and what causes it? His that outlook was so finished. so
 Took the equalator. Paramarted. Took down,
 
 [APZ 16.2] (#apz16 .2) {#apz16 .2 .ref .apz} "Vote sent in favor
-Inserted” is the cult of its own appetite from its own view,
+Inserted" is the cult of its own appetite from its own view,
 Moving, float, collective/ivy, or driving by an avalanche
 By a plane or goat, or by a sheep, or by a rot, or by a sheep
 Whether coming from or from a plane, float, one deposit, and here in its own view
 By its own appetite go from its own cult, whether come, float, and go.
 
-[APZ 16.3] (#apz16 .3) {#apz16 .3.ref .apz} "entered in the apz” is own
+[APZ 16.3] (#apz16 .3) {#apz16 .3.ref .apz} "entered in the apz" is own
 In view, from his own appetite, came down in the place of its own cult,
 take.
 
-[APZ 16.4] (#apz16 .4) {#apz16 .4 .ref .apz} "The third complete ones do”
+[APZ 16.4] (#apz16 .4) {#apz16 .4 .ref .apz} "The third complete ones do"
 How to end, that that is full, that that is great, that of gratitude
 What is prominence, this doctrine is autonomy, this is the prominence of the proctress
 The outlook was good, and this was imposed without a reproof. This Way
 Intrinsic into the third diagnosticsThe artery is excellent
 Priorly offers the greatest. Birth. Ready.
 
-[APZ 16.5] (#apz16 .5) {#apz16 .5 .ref .apz} "Do you know so.”
+[APZ 16.5] (#apz16 .5) {#apz16 .5 .ref .apz} "Do you know so."
 If it is known, then say so. Produsent. Progresses.
 If the locator knows that this is true, and the other things are empty, then say so.
 Produsent. Progresses. Location (Here 1 (iv))
@@ -92,29 +92,29 @@ Empty, if you know that, say so.
 [Msdiv 17] (#msdiv17) {#msdiv17 .ref .msdiv} (3 - 3)
 
 [APZ 17.1] (#apz17 .1) {#apz17 .1 .ref .apz} "A person has his own self
-Whoever means” to a certain point of treatment that has been pressed to the yamaha
+Whoever means" to a certain point of treatment that has been pressed to the yamaha
 A man or brahman or household who has been committed by any doctrine
 or a holy or a housewife or a prophesy or a god or a man
 or go.
 
-[APZ 17.2] (#apz17 .2) {#apz17 .2 .ref .apz} is the “sil and pour”
+[APZ 17.2] (#apz17 .2) {#apz17 .2 .ref .apz} is the "sil and pour"
 The action is also segmented. The function is segmented. Not scathing. What is the seal and the action? This
 There is also a sill in the plant. Dwellings from the Prethimokkya Sanvara
 makes. Fear of the little bit of persecute and scrub
 The tenets are the same as the ones. This is why one did not conjugate its hikmuni
 Shields, this is peace, if the cold is congebrated. Peace
 NAMI. This is also said to be true. What is the mode? Is not cold,
-Ashtadhutangayo. “Arnagkanga” “Pindapathiganga” “Pansukulykanga” “Thechivarikanga”
-Features of “Sapadana Ritual” “Khalu Patchwork” “Nesajjikanga” “Reality”
+Ashtadhutangayo. "Arnagkanga" "Pindapathiganga" "Pansukulykanga" "Thechivarikanga"
+Features of "Sapadana Ritual" "Khalu Patchwork" "Nesajjikanga" "Reality"
 The action, it is said. Not scathing. VisualisPeace also says. Shields
-Not. “From the same time, the veins and the veins of the body shall be left, and the feces shall be dried.
+Not. "From the same time, the veins and the veins of the body shall be left, and the feces shall be dried.
 Masculine power by masculine power by masculine power by masculine polarity
 There is an overheat that comes, and it shall not be the prevention of the herd.
 It shall be said, though it be firmly, that this is the peace which has been made. Not scathing.
 
 [APZ 17.3] (#apz17 .3) {#apz17 .3.ref .apz} "The name of crazvana in Hulu No Idurunakal
 From the temple is inconspicuously. I hope not. I do not drink.
-I will not receive. I will fall.” The heart will take firmly. Viriya Conciliation
+I will not receive. I will fall." The heart will take firmly. Viriya Conciliation
 The action is said. Not scathing. My heart is hardest with inhalations
 I will not rise from this seat, as long as I get rid of it. I will not go from the walkway.
 I will not come out of the house which has a semen like the wings of the gurus. Favorite
@@ -133,12 +133,12 @@ Man, Human, Man, Person, LifeA solid animal that silhoued himself
 Ready.
 
 [APZ 17.4] (#apz17 .4) {#apz17 .4 .ref .apz} "Uncritiked
-Publications” To the other are the symbaceous Brahmina
+Publications" To the other are the symbaceous Brahmina
 From the holy blonds or from the domestics from God
 It is one of the people. Uninvited, Uninvited, Uninvited
 Readable.
 
-[APZ 17.5] (#apz17 .5) {#apz17 .5 .ref .apz} (i) “stating” is one's own
+[APZ 17.5] (#apz17 .5) {#apz17 .5 .ref .apz} (i) "stating" is one's own
 Whether Shields or Acts, or both, I am a cold healer. Situations
 I am a healthy one. By both people or by the nation or by the tribe
 or from caste or body color or wealth, or (ii) from learning or kindermatia
@@ -164,8 +164,8 @@ Not. This doctrine was the youngest. This doctrine is not of the Pandits. This d
 Away. Thus said this doctrine is not of men. Thus the saw.
 As stated: Thus shall they be made.
 
-[APZ 17.6] (#apz17 .6) {#apz17 .6 .ref .apz} "Heathemay Themay says of Himself.”
-He is told, “of himself,” which is what he says to himself. I am an energetic
+[APZ 17.6] (#apz17 .6) {#apz17 .6 .ref .apz} "Heathemay Themay says of Himself."
+He is told, "of himself," which is what he says to himself. I am an energetic
 Vemmii or the active Vemmii or the cold Wemii or from the nation
 or from tribe or caste or metaphor or from wealth (hereinafter 5 (ii)
 Says to be applied.) Proposes.
@@ -173,27 +173,27 @@ Says to be applied.) Proposes.
 [Msdiv 18] (#msdiv18) {#msdiv18 .ref .msdiv} (3 - 4)
 
 [APZ 18.1] (#apz18 .1) {#apz18 .1 .ref .apz} "The well-extinguished heart calm
-Monk” is the plant, because the lust is compaced, the plant, because the malice is compacious,
+Monk" is the plant, because the lust is compaced, the plant, because the malice is compacious,
 Because the brains are constipated, the flora, the transplant hatred, the virtue, the blame of the
 Telling, eczema, deletion, deception, courteousness, stiffness together,
 All of these clases of esteem, mythology, quantity
 All the happenings of all the people of all the burners of the poor
 The hundir editors have the shanty because they are twisted because they are congenitous
 Because of the low, St. Bhikku is the breaking of Sasa Dharma
-“Bhikku” name. Sakkaia's outlook is blistering. Chirungawa Wei.
+"Bhikku" name. Sakkaia's outlook is blistering. Chirungawa Wei.
 Sealabbataparamu will be blistering. Lust becomes a rash. Malice is abuding, brains
 Binu Wei. The dimension will be stained. The return of his laminetic clayings
 The grievous reward of the forty who has made a trove, will again give a death
 Litara Akushala Dharmayo is Bidunahu. Doubt and complete imitations
 Activities have been revival of depletion, potential, erosion and puranyawan
-Was gone.”
+Was gone."
 
-[APZ 18.2] (#apz18 .2) {#apz18 .2 .ref .apz} "The finely extinguished Hearts Are” is
+[APZ 18.2] (#apz18 .2) {#apz18 .2 .ref .apz} "The finely extinguished Hearts Are" is
 Twint because lust is extinguished, because malice is twinning, because the brains are twisted
 Twine, Croction, Subnoise, Mecca, Flavor, Issa, Saurine, Maya, Faculty,
 All of the elders since the clauses of the Fates, Collectors, Lates
 All demotions of all demons, all all dispositibles
-Editors are finished. “Sauhanti Seelescu”
+Editors are finished. "Sauhanti Seelescu"
 Sav-Ty is a joint in which verses are added convenience of reading to skin the letters
 The verses made in order that some boast of this plant. I am a cold
 I am healthy. The doomed was Vemi'i boasting. Cold Acute
@@ -203,13 +203,13 @@ The application should be applied.) Nevasannah is a society of Nazanatha
 oranges. (St. Monk) thus do not boast. Bragging
 Separate inhabits the unrestricted heart.
 
-[APZ 18.3] (#apz18 .3) {#apz18 .3.ref .apz} "Adept Saw It's Aryan Dharma”
+[APZ 18.3] (#apz18 .3) {#apz18 .3.ref .apz} "Adept Saw It's Aryan Dharma"
 Kusala is a person who is competent or competent (hereinafter (3-3) 5 (vi)
 Must be applied)
 
 [APZ 18.4] (#apz18 .4) {#apz18 .4 .ref .apz} "Where the WorldA cliche or a cliche
-or not” to “someone” means to the earthy alkali”
-Clasey” is clesioi. A clazio is a penny. (ii) Raga clam, malice, whey, dimensional,
+or not" to "someone" means to the earthy alkali"
+Clasey" is clesioi. A clazio is a penny. (ii) Raga clam, malice, whey, dimensional,
 Dithththi Kias cheek, this penny. Rahatan has no these clausses. Science
 Not too. Unlabeeth made the secret. Emulated, conjugated. To be born
 Ayoked. The wisdom was burned in the fire.
@@ -217,23 +217,23 @@ Ayoked. The wisdom was burned in the fire.
 [APZ 18.5] (#apz18 .5) {#apz18 .5 .ref .apz} "Where or where is the spiritual
 or external or spiritual externally.
 
-[APZ 18.6] (#apz18 .6) {#apz18 .6 .ref .apz} "The World” is The Man of Hell Locking
+[APZ 18.6] (#apz18 .6) {#apz18 .6 .ref .apz} "The World" is The Man of Hell Locking
 The relics of the mass of the divine of the locker are the entities of the locker.
 
 [Msdiv 19] (#msdiv19) {#msdiv19 .ref .msdiv} (3 - 5)
 
 [APZ 19.1] (#apz19 .1) {#apz19 .1 .ref .apz} "Thought, Procised
-Dharmayo,” the thought is two thinking. Cravings Optics
+Dharmayo," the thought is two thinking. Cravings Optics
 Conjections are also. (Section 2) 1 (ii) (iii) shall be applied herein. Its motherhood
 Instead of thinking change) these two sasaos are
 
-[APZ 19.2] (#apz19 .2) {#apz19 .2 .ref .apz} is "processed”
+[APZ 19.2] (#apz19 .2) {#apz19 .2 .ref .apz} is "processed"
 Collections are formed or numbers. Realimed or processed dharms
 Unreal. Earn by reason. Procesuvo Dharmaio. Dharmayoya'
-Vagal Dharmaoyi, Nirmala Dharmaoyi. “A yamaha” refers to the ideolojist. Dharma
+Vagal Dharmaoyi, Nirmala Dharmaoyi. "A yamaha" refers to the ideolojist. Dharma
 December is the number of ideological views.
 
-[APZ 19.3] (#apz19 .3) {#apz19 .3.ref .apz} "What is Promoted”
+[APZ 19.3] (#apz19 .3) {#apz19 .3.ref .apz} "What is Promoted"
 There are two forwarders. Prefronting Cravings Outlook
 (Modifications (2-6) 1 (ii) (iii) of Modifications to Forwarding instead of Motherhood
 Should) Preview whether it was not necessary to forefront the craving for him
@@ -242,13 +242,13 @@ The same craving or outlook or behaving in the forefront, as it is inconspicuous
 The craving has been acoustic, the craving has been dominant and the craving is dominant
 The view is that the cravings are flaggated and the outlook is dominant.
 What behaves with cravings or vision or entourage. prefronting
-“Wet” is science, segmented, and received.
+"Wet" is science, segmented, and received.
 
-[APZ 19.4] (#apz19 .4) {#apz19 .4 .ref .apz} "What is Dirty” is Unclean
+[APZ 19.4] (#apz19 .4) {#apz19 .4 .ref .apz} "What is Dirty" is Unclean
 Kilty.
 
-[APZ 19.5] (#apz19 .5) {#apz19 .5 .ref .apz} "Is a certain sense in itself”
-“Someone” means something upon himself. “in oneself” is the three optics
+[APZ 19.5] (#apz19 .5) {#apz19 .5 .ref .apz} "Is a certain sense in itself"
+"Someone" means something upon himself. "in oneself" is the three optics
 The odds are told. Two inhalations look in their own view. This is the world's incarnate
 (ii) Is the Anicure in this world? (iii) Any
 There will be a vision of the Audioses and those optics. Has that outlook
@@ -264,7 +264,7 @@ Hopeed. In this view, the world is incarnate, (vi) its own
 In view, these two inhalations are expected.
 
 [APZ 19.6] (#apz19 .6) {#apz19 .6 .ref .apz} "A transient comparison associate
-There are three compassions of the “did”. Complying of Machinery (Monthentha)
+There are three compassions of the "did". Complying of Machinery (Monthentha)
 Convenience, consensual constipation, constipation. What are the machines? (ii) Immunities
 Nibbana is said to be Ekanshanthi. Something settles all editors
 All the ends made are compounded cravings depleted, if they are depleted.
@@ -280,7 +280,7 @@ Constipation of constipation. Which compromises are made? Constipation of pagans
 It is said to be consensual constipation. This is the visual compilation. Conventions
 Shantha is the one that has the meaning of this.
 
-[APZ 19.7] (#apz19 .7) {#apz19 .7 .ref .apz} "A transient congruence is associated”
+[APZ 19.7] (#apz19 .7) {#apz19 .7 .ref .apz} "A transient congruence is associated"
 Shanthi Sellavunavu Shanthi Shanthi Shanthi Shanthi
 Birth due to. The tuberculosis doctrine doctrine pause doctrine
 Inspiration is that the Allied came and came away.
@@ -288,7 +288,7 @@ Inspiration is that the Allied came and came away.
 [Msdiv 20] (#msdiv20) {#msdiv20 .ref .msdiv} (3 - 6)
 
 [APZ 20.1] (#apz20 .1) {#apz20 .1 .ref .apz} "Optics Embrace Easily
-Can't exceed” in “Optics EmbraceAm” is (ii) the locality of the plant itself
+Can't exceed" in "Optics EmbraceAm" is (ii) the locality of the plant itself
 True, other things are empty, and it is necessary to stick out of sight. Locator
 The world has no end, and the world has no end, and that life is that body,
 The other life is the other body, the animal arises from death, the animal arises from death
@@ -298,18 +298,18 @@ The gluing is paralysed. Inserted from view easily ran out.
 Can not. The cross of sorrow is to be trumpled.
 
 [APZ 20.2] (#apz20 .2) {#apz20 .2 .ref .apz} "Specificate accepted in doctrines
-The doctrines of “do” are those who are still in view of December
+The doctrines of "do" are those who are still in view of December
 Thoughtful and decided to take action. Limit of draining
 It was this that the cave was made by the magnificent parts and was captivated
 The real reality of the inverted nature was taken from the Paramortization
 Readable.
 
 [APZ 20.3] (#apz20 .3) {#apz20 .3.ref .apz} "So mankind embrace it
-Tasma is the meaning of “taking” by the fact that it is due to that
+Tasma is the meaning of "taking" by the fact that it is due to that
 Man by sleep is the animal (hereinafter 7 (ii) shall be applied.)
 
-[APZ 20.4] (#apz20 .4) {#apz20 .4 .ref .apz} "Hugs”
-The point of descending into view. “Is Doctrine Driving and Accepting”
+[APZ 20.4] (#apz20 .4) {#apz20 .4 .ref .apz} "Hugs"
+The point of descending into view. "Is Doctrine Driving and Accepting"
 Two dating passes without dating as breakdowns or as dating free.
 Not inappropriate or dating. Dating as Breaks of Respect Comments
 Not, that master is not an Almighty. The doctrine is not autonomous. Sanghaya Surektiya
@@ -320,14 +320,14 @@ The cast is not on the master. Unleash on doctrine. Sanghaya
 Unleash on. Because Shields are inappropriate, not dating because the mode is inappropriate
 Not dating.
 
-[APZ 20.5] (#apz20 .5) {#apz20 .5 .ref .apz} "accepts doctrine” is the author
+[APZ 20.5] (#apz20 .5) {#apz20 .5 .ref .apz} "accepts doctrine" is the author
 Accepts. Dharma accepts Dhamma. accepts Sangkaya. The outlook accepts.
 Accepts the reply. Accepts the way. Paramortizes. Inserts.
 
 [Msdiv 21] (#msdiv21) {#msdiv21 .ref .msdiv} (3 - 7)
 
 [APZ 21.1] (#apz21 .1) {#apz21 .1 .ref .apz} "Holy Man in Bawabavavan
-A contemplated view is not in the world” here is the holy “holy masculine”
+A contemplated view is not in the world" here is the holy "holy masculine"
 is what the prognoy is told, whether a certain sign has a preference, Dhamma
 The variance, the view is also said. By any point the prophecy is said
 whether received, (ii) the defecation of the bodiment was dismantled, and washed away,
@@ -337,7 +337,7 @@ Virtue, removing the scalp to the other, and being washed together,
 Dimension, mythology, size removal and washed off, all
 Kelles, all the visages, all the dancers, all the plaques
 Unscrupulous editors were removed, washed away, and from that fact (iii)
-“Holy” is said to the prophecy. (iv) from the view of a rehet or a redisposition
+"Holy" is said to the prophecy. (iv) from the view of a rehet or a redisposition
 Heresy, dismantled and washed away, from conception of a resource
 The concept of myth was removed and washed away, a word of a word
 PaganThe word was removed, washed away, from the industry
@@ -348,11 +348,11 @@ A resource was removed from the consciousness and washed away, a resource
 The emancipation of myth by liberation was removed, washed away, and realiu
 Or all the sinusists of all the sinusists by the way of the lim.
 All the happy editors are removed and washed off
-The Rahatan was given these “holy” doctrines. Correctly used
-Wei. (v) Hence he is said to be “holy”. So that Rathan
+The Rahatan was given these "holy" doctrines. Correctly used
+Wei. (v) Hence he is said to be "holy". So that Rathan
 Lust was washed away by God, and sin was washed away. Cleaners Washable
 Discharged All use is dismantled. Washable Greenaladh
-“Holy” name.
+"Holy" name.
 
 [APZ 21.2] (#apz21 .2) {#apz21 .2 .ref .apz} "The Witchy dimension of the Holy Man
 It is said that deceptive behavior is illusion. (ii) there is in this locality.
@@ -361,7 +361,7 @@ descends into the thoughtfulness. Hopefully I do not know the mutual and do not 
 Thinking that I do not know the mutual and do not appear. I do not know the mutual
 Not exceeding the cans. Any deception in this case is a mistake
 This is a sin act to hide a hindrance
-Deception is said. “Dimensional” is (iii) the uptake of a particular emotion
+Deception is said. "Dimensional" is (iii) the uptake of a particular emotion
 Manage in one way. Exalting oneself is to reproach
 Win two waysThe dimension that thinks is the same, the dimension that thinks
 The dimension that thinks inferior is the three-way dimension. (iv) the dimension of profit
@@ -383,14 +383,14 @@ Dimension is, (vii) from any nation or tribe or caste in this world
 By color or wealth, or by learning, or by industry or by craftsmanship or
 By science or by feeling or understanding many things, or by some other point, or
 Someone presents a sense of superiority in the heart of this dimension
-It is the dimension that is achieved. This dimension is said to be “The holy man is the illusion
+It is the dimension that is achieved. This dimension is said to be "The holy man is the illusion
 Dimension' is the discreet deception and dimensionInto the unborn
 The palate dwells.
 
 [APZ 21.3] (#apz21 .3) {#apz21 .3.ref .apz} "Who does not have a collection
 Going by way means are two arrivals. Cravings Gathering Outlook
-(ii) Replace “motherhood” in paragraph 1 (ii) (iii) herein (2-6)
-“Collecting” should be used discriminately) (iii) Collating his cravings
+(ii) Replace "motherhood" in paragraph 1 (ii) (iii) herein (2-6)
+"Collecting" should be used discriminately) (iii) Collating his cravings
 Convinced. The outlook gathering is disillusioned. Cravings collection
 The gathering was unimaginable because the view was dispelled by the gathering
 (iv) whether the person himself will come to the lust in any matter
@@ -408,7 +408,7 @@ There is no point, no point.
 [Msdiv 22] (#msdiv22) {#msdiv22 .ref .msdiv}
 
 [APZ 22.4] (#apz22 .4) {#apz22 .4 .ref .apz} "Collections In All Doctrines
-comes to the dogma” is the gathering of cravings and the gathering of outlook (here 3
+comes to the dogma" is the gathering of cravings and the gathering of outlook (here 3
 (iii) the act should be applied) The gathering of this craving is to gather this view
 The gathering of his cravings was not secret. Outlook Collection Diritatification
 LaddaDi. The gathering of cravings was not made unpretendous, so the gathering of vision was not impoverished
@@ -422,8 +422,8 @@ or of an immorphic Brahman, or of a sagna, or of an asymptomatic, or
 Nevannagna says or comes to, comes, gets, gets.
 
 [APZ 22.5] (#apz22 .5) {#apz22 .5 .ref .apz} "How to not collect
-There are two arrivals of say” Coming to craving is coming into view
-Two changed to “coming to craving” instead of 'craving mother' (2-6) 1
+There are two arrivals of say" Coming to craving is coming into view
+Two changed to "coming to craving" instead of 'craving mother' (2-6) 1
 (ii) (iii) shall also be applied.) His cravings were the secret. outlook
 Disturbed cravings were not gathered because the outlook was dismantled
 Does the person tell the facts from any lust, and by what means tell the facts.
@@ -433,15 +433,15 @@ Tayout? Of any deposited lust say that there is lust or (here
 3 (v) The application should be applied.) There is no such reason. There is no such point,
 There is no point. Whether it says facts (there is no reason)
 
-[APZ 22.6] (#apz22 .6) {#apz22 .6 .ref .apz} "He has nothing to fix the soul”
-There is no sense of view that means souls. “Nyatha”Nen fluctuations
+[APZ 22.6] (#apz22 .6) {#apz22 .6 .ref .apz} "He has nothing to fix the soul"
+There is no sense of view that means souls. "Nyatha"Nen fluctuations
 No outlook. Spirit is not taken. There is no soul, and there is no redemption.
 If one has a genus, there is also a redemption. If someone has a redemption overheat
 There is a growth and redemption, and the growth of the secrets that exceeded
 (ii) He stopped; and he finished the rain, the habitual existence which was practiced
 He has no antiquity again.
 
-His December misconceptions of “Hence has not given all the view”
+His December misconceptions of "Hence has not given all the view"
 Convinced. Sidunaha. Sanginaha. They were born. Fire called Wisdom
 Bewed. All the visible taken here were disfellowished. into NoodDays
 Arrives

@@ -18,7 +18,7 @@ Puchcha, Melhaka Puchcha, Anekansa Puchcha, What was or was not, what?
 That is, how it happened.
 
 [APZ 46.2] (# apz46.2) # apz46.2 .ref .apz} "They are born of any wisdom
-What is Munihuya? ”Means the Eightfold Path or the Pentateuch.
+What is Munihuya? "Means the Eightfold Path or the Pentateuch.
 To those who are present, to those who come, to say that they are silent, or to declare.
 
 [APZ 46.3] (# apz46.3) # apz46.3 .ref .apz} "or hard living
@@ -103,7 +103,7 @@ They will turn into racial slurs. The turn of the samsara vatta, according to th
 Giyahu (7-3 (ii) should apply.) Said there was no help.
 
 [APZ 50.2] (# apz50.2) # apz50.2 .ref .apz} "Then Nidukana is divine.
-Who in the human world overcame racial filth? ”
+Who in the human world overcame racial filth? "
 Who is the race in the community of Shramana Brahmins in the world of bamboos?
 Did shit cross deaths? Exceeded. 'Nidukaneni' is the sweet word,
 The word of honor, the word of honor, is this Nidukane. 'This is lucky
@@ -119,7 +119,7 @@ Therefore the Brahman himself said:
 [Msdiv 51] (# msdiv51) # msdiv51 .ref .msdiv} (7-5)
 
 [APZ 51.1] (# apz51.1) {# apz51.1 .ref .apz} "(The Blessed One) Nanda
-I am not saying that all Shramana Brahmins have embraced racial slurs. ”
+I am not saying that all Shramana Brahmins have embraced racial slurs. "
 All the Shramana Brahmins were surrounded by racial filth and embraced Vasunahu
 I'm not saying you took it. The crisis of those Shramana Brahmins is also a national scandal
 Death was nullified and at first Sindhu was like a withered palm tree
@@ -127,7 +127,7 @@ I say that those who have perished completely have been disqualified from being 
 I preach, enact, lay, open, divide, proclaim.
 
 [APZ 51.2] (# apz51.2) # apz51.2 .ref .apz} "Nanda, I love all shramana
-I do not say that Brahmins are born of racial filth. ”Someone in this world
+I do not say that Brahmins are born of racial filth. "Someone in this world
 What you see, hear, touch, or obsessive-compulsive disorder is all but gone
 "All" means complete, excluding all those visual purities
 Extinguished are some of those shruta purges, some of all those mouth purifiers, some

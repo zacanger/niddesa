@@ -5,64 +5,64 @@
 
 All eyes please tell you about the fate: whosoever stops can survive the storm.
 
-“Shakya! I am a lonely... torn”: “Lonely”, “No man's partner, or no partner of
+"Shakya! I am a lonely... torn": "Lonely", "No man's partner, or no partner of
 my law: whoever follows or the law of the rest can pass, can pass, pass,
 overcome A riot of great desire, some of them, the riot of sight, an outflow of
-unknown. “Shakya”, “Shakya Worldworld is a man from the Shakya family For
-Shakya. Or, “The rich, the rich, the wealthy.” Also for Shakya. For him there
+unknown. "Shakya", "Shakya Worldworld is a man from the Shakya family For
+Shakya. Or, "The rich, the rich, the wealthy." Also for Shakya. For him there
 are these wealth, namely: credit, quit wealth, ashamed wealth, wealth, hearing
 about wealth, alms, wealth, remembrance of wealth... (medium) Nibbana wealth,
-with these multiple treasures for the rich, the rich, wealthy. Or, “Probable,
+with these multiple treasures for the rich, the rich, wealthy. Or, "Probable,
 Able, Seed, Ample, Hero, Brave, Valiant, Not Frightened, Not Frightened, Not
 Frightened, Not Frightened, Not Frightened, No Runaway, Those who have cut off
 the fear of terror, and those who have been erected . ' Also for Shakya. For
 Shakya! I'm lonely... big storm.
 
-“[His Holiness like this]”: “Like this”, the continuation of the sentence... (S)
-“His Holiness”, [this is] the word of love... “Ubossi”, the name of the
-Brahman... Name.” For [His Holiness like this, Ubersi].
+"[His Holiness like this]": "Like this", the continuation of the sentence... (S)
+"His Holiness", [this is] the word of love... "Ubossi", the name of the
+Brahman... Name." For [His Holiness like this, Ubersi].
 
-“No stop, I can not pass”: ““No stop”, people are endless or lawless, I can not,
+"No stop, I can not pass": ""No stop", people are endless or lawless, I can not,
 I can not, I can not, I can not, I can not, I can not, cannot afford to pass,
 beyond, pass, pass through, overcome The riot of desire, some of them, the riot
 of sight, and an unclear riot. For the endless、I can not spend。
 
-“All eyes please tell you about the fate”: “The fate, the fate of the relay,
+"All eyes please tell you about the fate": "The fate, the fate of the relay,
 near, please tell you, please explain, please tell you, please inform, please
 you build, please uncover, please you explain, please you please clarify, please
-you please Description. “All eyes”, all eyes are called the state of wisdom of
+you please Description. "All eyes", all eyes are called the state of wisdom of
 all knowledge. Worldworld thus arrived (with), fully reached (with), entered,
 fully entered, fully sufficient, with all the knowledge of the state wisdom.
 
-“For him there is nothing unseen here, and there is no knowledge, and cannot be
+"For him there is nothing unseen here, and there is no knowledge, and cannot be
 known,
 
-He testifies that whosoever exists should be guided, as it is for all eyes.”
+He testifies that whosoever exists should be guided, as it is for all eyes."
 [Ps.1, para. 121]
 
 For all eyes, please tell you.
 
-“Whosoever stops can survive the storm”: “whoever stops”, mortal stops or the
+"Whosoever stops can survive the storm": "whoever stops", mortal stops or the
 rest of the law can pass, can pass, can pass, can overcome the riot of desire,
-some riot, see the storm, unclear The rim.” For whoever stops can survive the
+some riot, see the storm, unclear The rim." For whoever stops can survive the
 storm.
 
 Because then, the Brahman said:
 
-“[His Holiness Ubossi like this:] Shakya! I am lonely, endless, I am not able to
+"[His Holiness Ubossi like this:] Shakya! I am lonely, endless, I am not able to
 survive the storm,
 
 All the eyes will tell you about the fate: whosoever stops can survive the
-storm.”
+storm."
 
-39. [Worldworld: “Ubossi!”] Watch the ones that have nothing, have a mind, and
-    stop “no” after you get through the rim,
+39. [Worldworld: "Ubossi!"] Watch the ones that have nothing, have a mind, and
+    stop "no" after you get through the rim,
 
 After the desire to break away from all doubts, day and night to see thirsty
 love extinction.
 
-“Watching what is nothing, the mind”: “The Brahman was the witness and the rest
-of nothing to wait, he did not know “This is my stop”, Worldworld explained for
+"Watching what is nothing, the mind": "The Brahman was the witness and the rest
+of nothing to wait, he did not know "This is my stop", Worldworld explained for
 him the way out of the rest and above: And when he came out there, and then came
 out from there, to watch [it] in the heart and in the way it was born, bitter,
 sick, tumor, arrows, woe, sickness, On the other side, spoilt, catastrophic,
@@ -73,39 +73,39 @@ magic food (bait), sickness, death, sorrow and sorrow despair, set law,
 extermination, fun, oversickness, away, he watched, looked, watched, watched,
 watched, watched, watched, watched, watched, watched Observe.
 
-“There are notions”: all thoughts, perceptions, memories... (medium) This is
-called reading. With... (medium) has this mind, he is called the mist.” To watch
+"There are notions": all thoughts, perceptions, memories... (medium) This is
+called reading. With... (medium) has this mind, he is called the mist." To watch
 without all, have a mind.
 
-“[Worldmark: 'Ubossi! ']” : ““Ubossi,” Worldman named the Brahman by name.
-“Worldworld,” this is synonymous with respect... Anri (Kana), the testimony of
-(medium), that is Worldworld.”For [Worldhotel: “Ubossi!”].
+"[Worldmark: 'Ubossi! ']" : ""Ubossi," Worldman named the Brahman by name.
+"Worldworld," this is synonymous with respect... Anri (Kana), the testimony of
+(medium), that is Worldworld."For [Worldhotel: "Ubossi!"].
 
-“Stop “no” and then make you through the storm”: ““Nothing” is nothing to wait
-until. “Nothing” for what reason is nothing to wait until? Consciously into the
+"Stop "no" and then make you through the storm": ""Nothing" is nothing to wait
+until. "Nothing" for what reason is nothing to wait until? Consciously into the
 borderless place, and then came out from there, there, the one who knew it
 existed, away from it, and made it disappear, he saw 'Nothing, 'for this reason
 'There is nothing.' Wait for nothing. After relying on, after relying on, after
 making the fate of you to pass, transcend, pass through, over, overcome the riot
-of desire, some of them, the torrents of see, the torrents.” To stop “no” after
+of desire, some of them, the torrents of see, the torrents." To stop "no" after
 you get through the rim.
 
-“After the desire to break away from the doubts”: “Wills”, there are two kinds
+"After the desire to break away from the doubts": "Wills", there are two kinds
 of desires from praise: the desire of things and the desire to pollute...
 (middle) these are called the desires of things... (medium) These are called the
-desires of pollution. . “After the desire to be disconnected,” “after the desire
+desires of pollution. . "After the desire to be disconnected," "after the desire
 of things is known, after the desire of pollution is discarded, discarded, after
-expropriation, and after the end of the end, so that it does not exist.” For
-after disconnection on the desire. “Have disengaged from the doubts”, doubts are
-called suspicion: doubt in bitterness... (medium) heart confusion. “Separated
+expropriation, and after the end of the end, so that it does not exist." For
+after disconnection on the desire. "Have disengaged from the doubts", doubts are
+called suspicion: doubt in bitterness... (medium) heart confusion. "Separated
 from doubt, forbent, quanned, departed, departed, freed, unbound, he dwelt with
-a restrained heart.” This is what has been disengaged from the suspicions. Or,
-“Separated from 32 species of animal theory, quashed, quashed, departed,
-departed, freed, unbound, and he lived with a restrained heart.” This has also
-been disengaged from suspicion.” To be disconnected from suspicion after the
+a restrained heart." This is what has been disengaged from the suspicions. Or,
+"Separated from 32 species of animal theory, quashed, quashed, departed,
+departed, freed, unbound, and he lived with a restrained heart." This has also
+been disengaged from suspicion." To be disconnected from suspicion after the
 desire to be dismissed.
 
-“Day and night to see the end of thirsty love”: “thirsty love” as the color of
+"Day and night to see the end of thirsty love": "thirsty love" as the color of
 thirst love... (medium) method thirst love. Night is known as the night, day and
 night, day and night watching, increasing looking, seeing, watching, watching,
 watching, watching, observing the extinction of thirst love, the extinction of
@@ -115,7 +115,7 @@ rotation. For the day and night to see the end of thirsty love.
 
 Because then, Worldman said:
 
-“[Worldworld: “Ubossi!”] Watch the ones that have nothing, read, and stop “no”
+"[Worldworld: "Ubossi!"] Watch the ones that have nothing, read, and stop "no"
 after you get through the rim,
 
 After the desire to be dismissed from all doubts, day and night increased to see
@@ -127,26 +127,26 @@ thirsty love extinction.
 Is he able to live there to be a discompanion who wants to be relied on and on
 the highest?
 
-“Whosoever has gone away from greedy in all desires”: “In all”, all completely,
+"Whosoever has gone away from greedy in all desires": "In all", all completely,
 in every aspect, without any residue, the whole land, this is the words of all,
-for “in all.” “On the wills”, there are two kinds of desires from the praise:
+for "in all." "On the wills", there are two kinds of desires from the praise:
 the desire of things and the desire to pollute... (middle) these are called the
 desires of things... (middle) these are called the wills of pollution.
-“Whosoever is away from greedy in all desires”: “Whosoever has gone away from
+"Whosoever is away from greedy in all desires": "Whosoever has gone away from
 greedy in all desires, and those who have forsaken it, and those who have
-forsaken it, and those who have dismissed it, and those who have been subdued.”
+forsaken it, and those who have dismissed it, and those who have been subdued."
 For whosoever is away from corruption in all desires.
 
-“[His Holiness like this]”: “Like this”, the continuation of the sentence... (S)
-“His Holiness”, [this is] the word of love... “Ubossi”, the name of the
-Brahman... Name.” For [His Holiness like this, Ubersi].
+"[His Holiness like this]": "Like this", the continuation of the sentence... (S)
+"His Holiness", [this is] the word of love... "Ubossi", the name of the
+Brahman... Name." For [His Holiness like this, Ubersi].
 
-“After leaving no owner abandon the other”: “The lower six until he abandons,
+"After leaving no owner abandon the other": "The lower six until he abandons,
 renounces, renounces forever, surpasses, overcomes, overcomes, becomes nothing
 to stop the person, the sticker, the entrant, The full entrant, the dyed, the
-person who put the heart toward.” After leaving no owner to abandon the other.
+person who put the heart toward." After leaving no owner to abandon the other.
 
-“In there is a desire to be relied, on the highest”: “There are seven kinds of
+"In there is a desire to be relied, on the highest": "There are seven kinds of
 want to wait until, there is no place to be free for those who want to wait
 until the first, the most winning, the winning, the top, the top, the top , the
 top, the highest, the first, the most winning, the top, the top, the top, the
@@ -156,63 +156,63 @@ it, and those who target it, toward him who strives, tilt towards him, to him
 who overshaders, and increases to it. For the winner who wants to be relied on,
 on the highest.
 
-“Can he dwell there to be a non-accompanying person”: 'Can he dwell ',
+"Can he dwell there to be a non-accompanying person": 'Can he dwell ',
 questioning of doubts, questions of confusion, doubts, and more than one
 question: 'Is it so? Is it not like that? What is it? How is it? For 'Can He
-Dwell? ' “There,” in nowhere.“Do not accompanied”, do not entourage, do not
+Dwell? ' "There," in nowhere."Do not accompanied", do not entourage, do not
 shake (Thailand version), do not leave, do not disappear, do not return. Or the
-one who is not infected, the undereachable, the fool, the unpolluted.” Is it
+one who is not infected, the undereachable, the fool, the unpolluted." Is it
 possible for him to live there to be a non-accompanying person?
 
 Because then, the Brahman said:
 
-“[Like this, His Holiness Ubossi:] whosoever has gone away from all wills, and
+"[Like this, His Holiness Ubossi:] whosoever has gone away from all wills, and
 after the unowner has forsaken the others,
 
 Will he be able to dwell there to be a discompanion who wants to be relied on
-and above the highest?”
+and above the highest?"
 
-41. [Worldworld: “Ubossi!”] Whosoever has gone away from corruption in all
+41. [Worldworld: "Ubossi!"] Whosoever has gone away from corruption in all
     desires, and after the owner abandons the others,
 
 In the winner who wants to be relied and on the highest, he can dwell there to
 become a discompanion.
 
-“Whosoever has gone away from greedy in all desires”: “In all”, all completely,
+"Whosoever has gone away from greedy in all desires": "In all", all completely,
 in every aspect, without any residue, the whole land, this is the words of all,
-for “in all.” “On the wills”, there are two kinds of desires from the praise:
+for "in all." "On the wills", there are two kinds of desires from the praise:
 the desire of things and the desire to pollute... (middle) these are called the
 desires of things... (middle) these are called the wills of pollution.
-“Whosoever has gone away from greedy in all desires”: “Whosoever has deviated
-from all desires... He who has dismissed the corrupt and has been subdued.” For
+"Whosoever has gone away from greedy in all desires": "Whosoever has deviated
+from all desires... He who has dismissed the corrupt and has been subdued." For
 whosoever is away from corruption in all desires.
 
-“[Worldmark: 'Ubossi! ']” : ““Ubossi,” Worldman named the Brahman by name.
-“Worldworld,” this is synonymous with respect... Anri (Kana), the testimony of
-(medium), that is Worldworld.” For [Worldhotel: “Ubossi!”]
+"[Worldmark: 'Ubossi! ']" : ""Ubossi," Worldman named the Brahman by name.
+"Worldworld," this is synonymous with respect... Anri (Kana), the testimony of
+(medium), that is Worldworld." For [Worldhotel: "Ubossi!"]
 
-“After leaving no owner abandon the other”: “The lower six until he abandons,
+"After leaving no owner abandon the other": "The lower six until he abandons,
 renounces, renounces forever, surpasses, overcomes, overcomes, becomes nothing
 to stop the person, the sticker, the entrant, The full entrant, the dyed, the
-person who put the heart toward.” After leaving no owner to abandon the other.
+person who put the heart toward." After leaving no owner to abandon the other.
 
-“In there is a desire to be relied, on the highest”: “There are seven kinds of
+"In there is a desire to be relied, on the highest": "There are seven kinds of
 want to wait until, there is no place to be free for those who want to wait
 until the first, the most winning, the winning, the top, the top, the top , the
 top, the highest, the first, the most winning, the top, the top, the top, the
 top, the top, the top, the top, the most, the winner of the solution, the winner
-there, to the solver... Added to the person.” For the winner who wants to be
+there, to the solver... Added to the person." For the winner who wants to be
 relied on, on the highest.
 
-“He can dwell there and become unaccompanied”: “He can stand,” he can dwell
-60,000. “There,” in nowhere. “Do not accompanied”, do not entourage, do not
+"He can dwell there and become unaccompanied": "He can stand," he can dwell
+60,000. "There," in nowhere. "Do not accompanied", do not entourage, do not
 shake (Thailand version), do not leave, do not disappear, do not return. Or the
-one who is not infected, the undereachable, the fool, the unpolluted.” For he
+one who is not infected, the undereachable, the fool, the unpolluted." For he
 could dwell there to be no accompanying.
 
 Because then, Worldman said:
 
-“[Worldworld: “Ubossi!”] Whosoever has gone away from corruption in all desires,
+"[Worldworld: "Ubossi!"] Whosoever has gone away from corruption in all desires,
 and after the owner abandons the others,
 
 In the supreme who wants to be relied upon, he can dwell there to become a
@@ -223,68 +223,68 @@ discompanion.
 
 Where would he become a freer? Will the knowledge of people like that die?
 
-“If he can dwell there to be no accompanying”: “If he can dwell 60,000 robbers.”
-“There,” in nowhere. “Do not accompanied”, do not entourage, do not shake
+"If he can dwell there to be no accompanying": "If he can dwell 60,000 robbers."
+"There," in nowhere. "Do not accompanied", do not entourage, do not shake
 (Thailand version), do not leave, do not disappear, do not return. Or the one
-who is not infected, the undereachable, the fool, the unpolluted.” For he could
+who is not infected, the undereachable, the fool, the unpolluted." For he could
 dwell there to be no accompanying.
 
-“Even years, all eyes”: “Even years, even years,” many years; many centuries;
+"Even years, all eyes": "Even years, even years," many years; many centuries;
 many thousand years; many thousand years; many thousands of years; many
 robberies; many hundreds of robberies; many thousands of robberies; many
-thousands of robberies; many. “All eyes”, all eyes are called the state of
-wisdom of all knowledge... (medium) as it is for all eyes.” For even years, all
+thousands of robberies; many. "All eyes", all eyes are called the state of
+wisdom of all knowledge... (medium) as it is for all eyes." For even years, all
 eyes!
 
-“Where would he become cold as a freer? “The knowledge of those like that will
-die”: “'Where he is a refreshing arrider, is constant, solid, eternal,
+"Where would he become cold as a freer? "The knowledge of those like that will
+die": "'Where he is a refreshing arrider, is constant, solid, eternal,
 immutable, and will survive as everlasting? Or will his knowledge die,
-disappear, disappear, perish, and absent? “Will there be a sense of desire, or
-color, or no color?” He asked the constant and disruption of those who had
+disappear, disappear, perish, and absent? "Will there be a sense of desire, or
+color, or no color?" He asked the constant and disruption of those who had
 entered nothing. Or is it that there will be no residual Nibbana Nibbana? Or,
 'Will his knowledge die? Further knowledge will be born out of desire, or color,
-or no color? ' He asked everywhere regenerators like Nibbana and birth. “Like
-those,” like those,Like that, the fixator, the kind, the similarity, the man who
-has nothing to regenerate.” For where he will get cold to become a freer? Will
+or no color? ' He asked everywhere regenerators like Nibbana and birth. "Like
+those," like those,Like that, the fixator, the kind, the similarity, the man who
+has nothing to regenerate." For where he will get cold to become a freer? Will
 the knowledge of people like that die?
 
 Because then, the Brahman said:
 
-“[His Holiness Ubossi like this:] If he could dwell there to be no entourage,
+"[His Holiness Ubossi like this:] If he could dwell there to be no entourage,
 even for years, all eyes!
 
-Where would he become a freer? Will the knowledge of people like that die?”
+Where would he become a freer? Will the knowledge of people like that die?"
 
-43. [Worldworld: “Ubossi!”] If the flame is thrown by wind, line to extinguish
+43. [Worldworld: "Ubossi!"] If the flame is thrown by wind, line to extinguish
     it does not come to name,
 
 Like this, Muni has been liberated from his name, and he does not come to the
 name.
 
-“As flames are thrown by wind”: “Flame is called light flame. “Wind”, the wind
+"As flames are thrown by wind": "Flame is called light flame. "Wind", the wind
 of the east, the wind of the west, the wind of the north, the wind of the south,
 the wind with dirt, dirt free wind, cold wind, hot wind, small wind, great wind,
 rapid wind, side wind, wind of Goldwingbird, Dora Wind of leaves, fan wind.
-“Thrown by the wind”, thrown, thrown, dispersed, strongly dispersed, hit,
-eliminated by wind.” For such as flames are thrown by wind.
+"Thrown by the wind", thrown, thrown, dispersed, strongly dispersed, hit,
+eliminated by wind." For such as flames are thrown by wind.
 
-“[Worldmark: 'Ubossi! ']” : ““Ubossi,” Worldman named the Brahman by name.
-“Worldworld,” this is synonymous with respect... Anri (Kana), the testimony of
-(medium), that is Worldworld.” For [Worldhotel: “Ubossi!”]
+"[Worldmark: 'Ubossi! ']" : ""Ubossi," Worldman named the Brahman by name.
+"Worldworld," this is synonymous with respect... Anri (Kana), the testimony of
+(medium), that is Worldworld." For [Worldhotel: "Ubossi!"]
 
-“Line to extinguish it does not come to name”: ““line to extinguish”, line to
+"Line to extinguish it does not come to name": ""line to extinguish", line to
 extinguish, make go to extinguish, go to extinguish, be extinguished, calmed
-down, stop. “It does not come to the name,” name it does not come (it is
+down, stop. "It does not come to the name," name it does not come (it is
 difficult to be given a name), says it does not come, calculates it does not
 come, Anli does not come: 'Has come to the east, or has come to the west, or to
 the north, or has arrived The South, either above, below, or transverse, or to
-the middle of the Quartet.” It has no cause, no edge, no factor will fall (to)
-the name.” It does not come to the name for the line to kill.
+the middle of the Quartet." It has no cause, no edge, no factor will fall (to)
+the name." It does not come to the name for the line to kill.
 
-“Like this Muni has been freed from his name”: “Like this” is an analogical
-arrangement. “Muni”, Mune is called wisdom, that is Hui, understanding...
-(medium) beyond the dyed net after he is Muni. “Has been liberated from the
-name”, the Muni was previously freed from the color, after crossing that part
+"Like this Muni has been freed from his name": "Like this" is an analogical
+arrangement. "Muni", Mune is called wisdom, that is Hui, understanding...
+(medium) beyond the dyed net after he is Muni. "Has been liberated from the
+name", the Muni was previously freed from the color, after crossing that part
 (Cambodia version), was cut off by the town. For that Muni, because of the
 existence, the four sacred path is obtained, the four sacred path has been
 obtained state, name and color have been known, to name and color has been known
@@ -292,85 +292,85 @@ state has been dissociated from the name and color body, relief, good Unlexive,
 to do not perform exactly. ' For like this Muni has been liberated from the
 name.
 
-“Line to destroy him does not come to the name”: “Line to destroy”, with no
-residual Nibbana Nibbana. “He does not come to the name,” he does not come by
+"Line to destroy him does not come to the name": "Line to destroy", with no
+residual Nibbana Nibbana. "He does not come to the name," he does not come by
 the name of the Nibbana without remnants of Nibbana, He does not come (he is
 difficult to be given a name), says that he does not come, counting he does not
-come, Anli does not come: 'Chatri' Brahmen, or “Bisha,” or “Sudala”, or “those
-who are at home,” or “angels”, or “people”, or “colourless”, or “thinks”, or
-“unwanna” “or 'neither thinks nor unwittants'. He has no reason, no edge, no
-factor will fall (to) the name.” For the line to extinguish him does not come to
+come, Anli does not come: 'Chatri' Brahmen, or "Bisha," or "Sudala", or "those
+who are at home," or "angels", or "people", or "colourless", or "thinks", or
+"unwanna" "or 'neither thinks nor unwittants'. He has no reason, no edge, no
+factor will fall (to) the name." For the line to extinguish him does not come to
 name.
 
 Because then, Worldman said:
 
-“[Worldworld: “Ubossi!”] If the flame is thrown by wind, line to extinguish it
+"[Worldworld: "Ubossi!"] If the flame is thrown by wind, line to extinguish it
 does not come to name,
 
 Like this, Muni has been liberated from his name, and he does not come to the
-name.”
+name."
 
 44. Has he reached extinction or he does not exist, or is he constantly sick?
 
 Please Muni explain this thoroughly for me, because like this you are the knower
 of these laws.
 
-“He has reached extinction or he does not exist”: “He has reached extinction or
-does not exist, he has been destroyed, destroyed, and destroyed.” For him has
+"He has reached extinction or he does not exist": "He has reached extinction or
+does not exist, he has been destroyed, destroyed, and destroyed." For him has
 reached extinction or he does not exist.
 
-“Still eternal as sick”: “Still constant, solid, eternal, immutable, will
-survive as constant constant.” For the person who is not sick or constant.
+"Still eternal as sick": "Still constant, solid, eternal, immutable, will
+survive as constant constant." For the person who is not sick or constant.
 
-“Let Moni explain this thoroughly for me”: “That, whosoever I ask; whosoever I
-beg; whosoever I ask, and whosoever makes me clear. “Muni”, Mune is called
+"Let Moni explain this thoroughly for me": "That, whosoever I ask; whosoever I
+beg; whosoever I ask, and whosoever makes me clear. "Muni", Mune is called
 wisdom, that is Hui, understanding... (medium) beyond the dyed net after he is
-Muni. “Thorough explanation”, please explain [that] thoroughly; please teach,
+Muni. "Thorough explanation", please explain [that] thoroughly; please teach,
 please inform, please build, please uncover, please explain, please explain,
 please explain, please explain. To ask Muni to explain it thoroughly for me.
 
-“For like this you are the know of these laws”: “For like this you are the
-knower of these laws,The measure, the judge, the clear, the clear.” Because like
+"For like this you are the know of these laws": "For like this you are the
+knower of these laws,The measure, the judge, the clear, the clear." Because like
 this you are the know of these laws.
 
 Because then, the Brahman said:
 
-“Has he reached extinction or he does not exist, or is he not sick?
+"Has he reached extinction or he does not exist, or is he not sick?
 
 Please Muni explain this thoroughly for me, because like this you are the knower
-of these laws.”
+of these laws."
 
-45. [Worldworld: “Ubossi!”] to measure non-existence for those who have reached
+45. [Worldworld: "Ubossi!"] to measure non-existence for those who have reached
     the extinction, by what can say that he does not exist for him,
 
 When all laws have been eradicated, all language paths are also eradicated.
 
-“For those who have reached extinction does not exist”: “For those who have
+"For those who have reached extinction does not exist": "For those who have
 reached the extinction; for those who have no residue Nibbana Nibbana, the
 measure of color does not exist, the measure of the subject does not exist, the
 desired measure does not exist, the line The measure does not exist, the measure
 of knowledge does not exist; it does not exist, does not exist, not known, not
 found, has been cut off, cut off, calmed down, stopped, cannot be born, burned
-by wisdom fire.” No measure exists for those who have reached extinction.
+by wisdom fire." No measure exists for those who have reached extinction.
 
-“[Worldmark: 'Ubossi! ']” : ““Ubossi,” Worldman named the Brahman by name.
-“Worldworld,” this is synonymous with respect... Anri (Kana), the testimony of
-(medium), that is Worldworld.” For [Worldhotel: “Ubossi!”]
+"[Worldmark: 'Ubossi! ']" : ""Ubossi," Worldman named the Brahman by name.
+"Worldworld," this is synonymous with respect... Anri (Kana), the testimony of
+(medium), that is Worldworld." For [Worldhotel: "Ubossi!"]
 
-“In what can say that he does not exist to him”: “by what kind of greed can say
+"In what can say that he does not exist to him": "by what kind of greed can say
 him; by what can say him; by what kind of stupid can say him; by what slow can
 say him; by what can say him; by what can say him; Those who can say him; what
 doubts can say him; and by what potential trend of troubles can say him, become
-“dyed,” or “disgusting,” or “foolish”, or “bondage”, or “followers”, or “comers”
+"dyed," or "disgusting," or "foolish", or "bondage", or "followers", or "comers"
 The scattered, or 'come to the unconsented', or 'come to the fortitude? ' The
 creations have been cut off, and the creations have been cut off. What fun will
-he fighters, become “Hell,” or “Fallen Beasts,” or “Hungry Ghost,” or “Man”, or
-“Heaven”, or A colourless person, or a “colorless” or “thinker”, or
-“unwittless”, or “neither thinkable nor unwittless”? He has no reason, no fate,
+he fighters, become "Hell," or "Fallen Beasts," or "Hungry Ghost," or "Man", or
+"Heaven", or A colourless person, or a "colorless" or "thinker", or
+"unwittless", or "neither thinkable nor unwittless"? He has no reason, no fate,
 nor a factor to speak, to tell, speak, explain, and speak. To what can say that
 he does not exist for him.
 
-“When all the law has been eradicated”: “In all law, in all wounds, in all
+"When all the law has been eradicated": "In all law, in all wounds, in all
 circles, in all circles, in all things, in all things, in all life, in all
 birth, in all there, in all reincarnation, in all turns When pulling, when
 eradicated, when unplugged, when fully unplugged, when pulled out, when pulled
@@ -378,7 +378,7 @@ out, disconnected, when disconnected, calmed down, stopped, when unable to
 start, had been burned by intelligence fire. For when all laws have been
 eradicated.
 
-“All language paths are also eradicated”: “The language path is called the
+"All language paths are also eradicated": "The language path is called the
 pollution and the creation of the people. For him, language, language, name
 (added words), name saying, language, verbal channel, Anrik, Anrik, Anitte has
 been pulled, eradicated, unplugged, fully unplugged, pulled, pulled out,
@@ -387,14 +387,14 @@ burned by wisdom fire. All language paths are also eradicated.
 
 Because then, Worldman said:
 
-“[Worldworld: “Ubossi!”] to measure non-existence for those who have reached the
+"[Worldworld: "Ubossi!"] to measure non-existence for those who have reached the
 extinction, by what can say that he does not exist for him,
 
-When all laws have been eradicated, all words are also eradicated.”
+When all laws have been eradicated, all words are also eradicated."
 
 At the end of the Ode, those with Brahmen... (Carid) salute the worldship with
-their connotations, and sit down: “Great Deed! Worldson is my teacher, I am a
-disciple.”
+their connotations, and sit down: "Great Deed! Worldson is my teacher, I am a
+disciple."
 
 The sixth statement asked by Ubossi student Brahmen [Completed].
 

@@ -6,7 +6,7 @@
 
 [Msdiv 59] (#msdiv59) {#msdiv59 .ref .msdiv} (8 - 1)
 
-[APZ 59.1] (#apz59 .1) {#apz59 .1 .ref .apz} "Saw of Holy Saws”
+[APZ 59.1] (#apz59 .1) {#apz59 .1 .ref .apz} "Saw of Holy Saws"
 This is the sanctification, sanctification, purity, impregation, liberation,
 Saw. Testimonial Business How (ii) the locator was maintained all day. The world
 Not all day. The locator has a corner. The locator has no end. That life is that body.
@@ -20,8 +20,8 @@ Not being adhered to. The outlook is not good. The reversion was not preferable.
 The way is not good. Its holiness or sanctity or purity, or
 No redemption or hea lament is few, though the saws say.
 
-[APZ 59.2] (#apz59 .2) {#apz59 .2 .ref .apz} "Something Have Higher Rated”
-“Something was caught” is a kind of doctrine.
+[APZ 59.2] (#apz59 .2) {#apz59 .2 .ref .apz} "Something Have Higher Rated"
+"Something was caught" is a kind of doctrine.
 Whether a view associates a path, and its location is allotted,
 Forms, and gallons. The situation is from its own view by its own consent
 Own cult by its own appetite
@@ -36,7 +36,7 @@ Ready.
 
 [Msdiv 60] (#msdiv60) {#msdiv60 .ref .msdiv} (8 - 2)
 
-[APZ 60.1] (#apz60 .1) {#apz60 .1 .ref .apz} "They fall into the group of wills”
+[APZ 60.1] (#apz60 .1) {#apz60 .1 .ref .apz} "They fall into the group of wills"
 'Wish he' is a desire to desire that theism and hope for theism
 The frontmen seek and behave themselves. 'Bath to the crowd' is the Kepatriya
 The crowd, Brahmina Piritatha Household, the Sirms were accessed by the crowd.
@@ -50,33 +50,33 @@ Ready.
 They are a Mutual Doctrine doctrine,
 These include a group of scriptors, a view is a way of reparation
 Alunahu is the place. 'Ketojang' is the Jar Dabar, tells the Whir.
-Reverse “opposing stories” is a story that has no core, and even if it goes opposite stories.
+Reverse "opposing stories" is a story that has no core, and even if it goes opposite stories.
 Saws Bandanayahia Saw. Equip saw. Debate saws. Testimonial
 Carts
 
 [APZ 60.3] (#apz60 .3) {#apz60 .3.ref .apz} "Pransing Wills Learned Stories
-Thuto” means' Prassha 'Wills
+Thuto" means' Prassha 'Wills
 Hopeannahu was looking for a prophesy
-Walk inSinnahu “learned stories” are permanent from eloquence and craving.
+Walk inSinnahu "learned stories" are permanent from eloquence and craving.
 By nalism, by anism, by characteristics, by fact, by topology, by its own
 The cult praise is wills.
 
 [Msdiv 61] (#msdiv61) {#msdiv61 .ref .msdiv} (8 - 3)
 
-[APZ 61.1] (#apz61 .1) {#apz61 .1 .ref .apz} "Personnel applied in the middle speech” is
+[APZ 61.1] (#apz61 .1) {#apz61 .1 .ref .apz} "Personnel applied in the middle speech" is
 Sirms of the Khalatriya group or Brahmina group or Domestic
 In the group or in the middle of the group, they are applied to their own speech
 
-[APZ 61.2] (#apz61 .2) {#apz61 .2 .ref .apz} "Dispensation Will Be Suspicious.”
+[APZ 61.2] (#apz61 .2) {#apz61 .2 .ref .apz} "Dispensation Will Be Suspicious."
 Thanksgiving, fame, glamour, likes and tolerates
-He would like to say, “Doubt. is a question at first of all about the speech
+He would like to say, "Doubt. is a question at first of all about the speech
 Something will be thinking. Will I win? Do I have a defeat? How to Night
 Will it? How to make remedies? How to make a fuse, how more
 How to make a mess, how to make a mess, how to make a mess
 Speech how to do, how to make a trimming and how to make a round
 Previous-doubt is thinking what no one thinks.
 
-[APZ 61.3] (#apz61 .3) {#apz61 .3.ref .apz} "Devied”
+[APZ 61.3] (#apz61 .3) {#apz61 .3.ref .apz} "Devied"
 What is the deviations of the group of people who examine certain questions. HOW,
 A sense of meaning is said to be five. Say without verse
 Led as five verses. You have made the meaning evil. by you
@@ -87,7 +87,7 @@ Stirling is bad. When you do not make a trimming. RoundingIn evils.
 The vicious stories are evils, the five. Doomnus of Pahagyakal.
 
 [APZ 61.4] (#apz61 .4) {#apz61 .4 .ref .apz} "A hole seeker is in humiliation
-Kippe” is a dandruff from the womb in disgrace. Business
+Kippe" is a dandruff from the womb in disgrace. Business
 Occurs. The sheaths, the malice, and the inhappiness. It is very humiliating.
 Holes are looking for. Wrong searches. Pollated places will be sought.
 Reductions are looking for. Conflicts are looking for. Opening places will be looking for.
@@ -95,15 +95,15 @@ Reductions are looking for. Conflicts are looking for. Opening places will be lo
 [Msdiv 62] (#msdiv62) {#msdiv62 .ref .msdiv} (8 - 4)
 
 [APZ 62.1] (#apz62 .1) {#apz62 .1 .ref .apz} "His dogma is incomplete
-said.” Some of his dyspheres, silence, is not complete:
-Saw. As stated: Business “Question queries deviated” is
+said." Some of his dyspheres, silence, is not complete:
+Saw. As stated: Business "Question queries deviated" is
 Any question testers are the five, and the group is five.
 
 [APZ 62.2] (#apz62 .2) {#apz62 .2 .ref .apz} "Letrary Tales.
-I also found in other recounts of “Zhocakarat”. In other thinking. The other
+I also found in other recounts of "Zhocakarat". In other thinking. The other
 Hikmenal. In other balanas. There is a great party, there is a great group of people
 The entourage was separated by this group. Not reconciled. Speak to the crowd
-Reason for congruent. A certain word that says “I will revisit” is nonsense
+Reason for congruent. A certain word that says "I will revisit" is nonsense
 Pit with a speech. Shocks. What conquers him is grieving. Defeat me
 Was grieving. It is grieving that he was a profit. I have been lossed, grieving
 makes. He had fame and grief. He is chastidious, grieves.
@@ -116,7 +116,7 @@ Medications are not purified. Thinking passes. Hold your hand and voice
 Pompey. grieves. 'There are imperfect stories, there are diminutive debts
 There is that my dogma is not complete, and the voice is not.
 
-[APZ 62.3] (#apz62 .3) {#apz62 .3.ref .apz} "Saw Me Won” is Hay Me
+[APZ 62.3] (#apz62 .3) {#apz62 .3.ref .apz} "Saw Me Won" is Hay Me
 The dogma exceeded the dogma. This thinks that I am overdone. Rehidu or from me
 It suppress and behaves detriously. dwelling. controls. Depend. Here
 Think I was suppressed. 'Say' is what says the word. Propellent Propellents
@@ -129,7 +129,7 @@ Sirms, if they are, to be sanctituary outside this plant
 Arrives. They are in sight. Optics on these ematores
 There is bhanda. The viewpoint debate has subsided.
 
-[APZ 63.2] (#apz63 .2) {#apz63 .2 .ref .apz} "is promoted here. Lowers.”
+[APZ 63.2] (#apz63 .2) {#apz63 .2 .ref .apz} "is promoted here. Lowers."
 Win is a defeat. Dividend. Yasa Ayasa. Reproach reproach.
 Provinted. Somnus Domnus Wei. Perform is unfulfilled. Compliance and Compliance
 That passes the promotion and the fall. Anurodor and deviations. Higher heart
@@ -141,7 +141,7 @@ By ascending, the heart becomes higher. The heart becomes lower by descending.
 
 [APZ 63.3] (#apz63 .3) {#apz63 .3.ref .apz} "See also In Opposition Speech
 Do not stick. This is also seen in the debates of the viewpoints
-“Do not stick in the opposite speech”
+"Do not stick in the opposite speech"
 'Opposition Speak' refers to the Jar, Debar, Debate, Debate, Debate or Not Core
 That's the story 'opposite stories, name'. Do not make coloding. Do not debate, half
 Debates shall be dispelled, and shall be salient. His overlapped debate
@@ -149,7 +149,7 @@ Wiggha medallists were disunleashing. Inborn into unrestrained heart dwelling,
 doer.
 
 [APZ 63.4] (#apz63 .4) {#apz63 .4 .ref .apz} "Other Meaning from Prasha Cheapest
-No” there is no mutual work at profit. Selly or
+No" there is no mutual work at profit. Selly or
 An unselfishness or an unpretentious or a meaning of this world or a shallow
 A meaning or deep meaning or a gulp or a clogging meaning or coming
 Any meaning or coming meaning or precise meaning or nicks
@@ -158,12 +158,12 @@ Unnoticed.
 
 [Msdiv 64] (#msdiv64) {#msdiv64 .ref .msdiv} (8 - 6)
 
-[APZ 64.1] (#apz64 .1) {#apz64 .1 .ref .apz} "Will it be or”
+[APZ 64.1] (#apz64 .1) {#apz64 .1 .ref .apz} "Will it be or"
 It is in its own sight by its own consent, by its own appetite
 The title cult has the reputation thanks to the
 glamour.
 
-[APZ 64.2] (#apz64 .2) {#apz64 .2 .ref .apz} "Personnel Middle Speaking”
+[APZ 64.2] (#apz64 .2) {#apz64 .2 .ref .apz} "Personnel Middle Speaking"
 Sirms of the Khalatriya group or Brahmina group or Domestic
 Stricly proclaimed the version of the group or the center's own discourse
 The baby is surrounded and surroundedNui
@@ -171,28 +171,28 @@ The baby is surrounded and surroundedNui
 [APZ 64.3] (#apz64 .3) {#apz64 .3.ref .apz} "Heavily beyond that pride
 It is happy to laugh and be overcome by it. Priorship
 Completed mandove will be. Repeated or flushed teeth and smiled.
-“It is a flag like a flag that exceeds the pride of it, and it is the same as a flag
-As will be the next Hearts. “The thought will come to that meaning” is that it is that
-Come to win and be overcome. The “thought thought” was as the mind. Conception
+"It is a flag like a flag that exceeds the pride of it, and it is the same as a flag
+As will be the next Hearts. "The thought will come to that meaning" is that it is that
+Come to win and be overcome. The "thought thought" was as the mind. Conception
 be as. Conscious was as.
 
 [Msdiv 65] (#msdiv65) {#msdiv65 .ref .msdiv} (8 - 7)
 
 [APZ 65.1] (#apz65 .1) {#apz65 .1 .ref .apz} "Will it destroy him
-The fact is. Is “any” a certain presumptuous forward like a flag, is it
+The fact is. Is "any" a certain presumptuous forward like a flag, is it
 His land of calamity is the land of persecution. The colliery is the ground. The trickle is the ground.
 
 [APZ 65.2] (#apz65 .2) {#apz65 .2 .ref .apz} "This third dimension is also overstated
-Makes.” It also tells the dimension of the person. The overarching also says. Ready. “Seen this too
-Do not debate.” What is to see and decide and prostate this.
+Makes." It also tells the dimension of the person. The overarching also says. Ready. "Seen this too
+Do not debate." What is to see and decide and prostate this.
 In the viewpoints of the viewpoints of the viewpoints of the viewpoints
-“Do not debate.” What is not to riot. Do not wiggle. Debate
+"Do not debate." What is not to riot. Do not wiggle. Debate
 Do not thou shalt dispel the debauchery and debauchery. Constipation.
 Fumb into the nouveth. In his thighs, the debauchery was dispelled.
 Separated. In the end. In the yard. The unrestricted heart will close.
 
 [APZ 65.3] (#apz65 .3) {#apz65 .3.ref .apz} "It does not mean a holy
-Saws adept.” Skillings are the adept of certain masses in relics
+Saws adept." Skillings are the adept of certain masses in relics
 Skills in Establishment doctrines, Skills in Prabeathpaddy doctrines
 SathipatshaSkills of Dadhi Leadings
 adept at Indiriya doctrines, adept in power doctrines, adept at Bocentra doctrines
@@ -204,25 +204,25 @@ Emancipation is not claimed, but not stated. Do not make business.
 [Msdiv 66] (#msdiv66) {#msdiv66 .ref .msdiv} (8 - 8)
 
 [APZ 66.1] (#apz66 .1) {#apz66 .1 .ref .apz} "Champion Yamsei Raja
-Reviews” Champion is a fearless Lomu Dahal who has a champion of the heroic
-There are traits that will not run away from the throne” Champion
-Like.” Heavily, Gherjana, Wictly Gherjana
+Reviews" Champion is a fearless Lomu Dahal who has a champion of the heroic
+There are traits that will not run away from the throne" Champion
+Like." Heavily, Gherjana, Wictly Gherjana
 What does comes to the opposite champion. Comes to the opposite man. Oppose
 Arrives to the enemy. He will hopefully be jaunting.
 
 [APZ 66.2] (#apz66 .2) {#apz66 .2 .ref .apz} "Champion who flees from it
 If the optical dynamic is in a way, then forward from it. Hemly
-Your opposing champion will be. The opposite man is. Any before the enemy passes “
-There is nothing for this war.” The first thing is against giving in the bodhi root
+Your opposing champion will be. The opposite man is. Any before the enemy passes "
+There is nothing for this war." The first thing is against giving in the bodhi root
 No Kelles who have not been reparated. Not Science,
 Unlabelated, the secret, originally syndee. Constipated. It was agile to be born.
-Wisdom is burned by the fire. “For some of this war” is a certain A
+Wisdom is burned by the fire. "For some of this war" is a certain A
 Happing for debate, for debate, for debur for war.
 The order is to go.
 
 [Msdiv 67] (#msdiv67) {#msdiv67 .ref .msdiv} (8 - 9)
 
-[APZ 67.1] (#apz67 .1) {#apz67 .1 .ref .apz} "Does anyone debate the outlook”
+[APZ 67.1] (#apz67 .1) {#apz67 .1 .ref .apz} "Does anyone debate the outlook"
 One has taken a certain view of December and learns, and then descends.
 contend. riots. Bandana Karath. Wigger. Debate Medagation
 You do not know this Dhamma discipline. I know this Dhamma discipline. Know, you are this Dhamma
@@ -232,18 +232,18 @@ Not initially said. The wrong twist is very accustomed to you. You made the dogm
 You are neoted. Behave in order to get rid of the incarnate. Problems if possible
 Remove,
 
-[APZ 67.2] (#apz67 .2) {#apz67 .2 .ref .apz} "Whether this is true in itself.”
+[APZ 67.2] (#apz67 .2) {#apz67 .2 .ref .apz} "Whether this is true in itself."
 Going, the locker is a plant. The same thing is true. The other dhamma is empty. contend.
 
-Speak Saw. Testimonial Business “You say them, and you are here
-When an inspiration is made, the opposition is not a man.” A Optical Dynamics You
+Speak Saw. Testimonial Business "You say them, and you are here
+When an inspiration is made, the opposition is not a man." A Optical Dynamics You
 Emigration from ism to Emigration from Emigration by Scheme
 Correction. Reasoning the trade by writing the trade by the redeeming of the trade
 If the trimming saw or they are opposite you, the opposite habit,
 Opposition Enemy. React Saw.
 
 [APZ 67.3] (#apz67 .3) {#apz67 .3.ref .apz} "Here you will be inspired
-Not a lead in the opposition.” Lower after the birth of the innate
+Not a lead in the opposition." Lower after the birth of the innate
 In time did the doer. Dumor. Wigger. Debate. Split It
 No. Not scientific. The unlabelated property is syndee. Unfit to be born. Consciousness
 In the burnt fire. And he gave birth to be born.
@@ -251,7 +251,7 @@ In the burnt fire. And he gave birth to be born.
 [Msdiv 68] (#msdiv68) {#msdiv68 .ref .msdiv} (8 - 10)
 
 [APZ 68.1] (#apz68 .1){#apz68 .1 .ref .apz} "Someone hurts opposing people
-“Behave,” the Sena tells the Mara Sena. The bodiess is a mara.
+"Behave," the Sena tells the Mara Sena. The bodiess is a mara.
 Wachi is a mara mara. A man is a mara brigade. Lobby, Malicious
 brains, virtue, dyspeptic, jealousy, meziness, deceitness, hardness
 Momentum, One Together, Ego, Emothness, Esteem All, All
@@ -264,9 +264,9 @@ Winning All Marasenaas all the Marasenaas through the four Lady
 The opposite was winning. In droplets. In pages. Hence the opposition Sena
 Dhurukamu says. Someone is the Earhath.
 
-[APZ 68.2] (#apz68 .2) {#apz68 .2 .ref .apz} "behaving” means behaving. dwelling
-Carat, hold postures. Control. Depend. “Views from Views
-Waraddah was not taken” is someone's December view
+[APZ 68.2] (#apz68 .2) {#apz68 .2 .ref .apz} "behaving" means behaving. dwelling
+Carat, hold postures. Control. Depend. "Views from Views
+Waraddah was not taken" is someone's December view
 Bindunahu was born in Sasindunahu, and he was burned with a fire called wisdom
 Also, they do not counter the view from the views
 And those who do not take sight of sight. Aftermath You, Among Them
@@ -283,21 +283,21 @@ Fire burnt out.
 [Msdiv 69] (#msdiv69) {#msdiv69 .ref .msdiv} (8 - 11)
 
 [APZ 69.1] (#apz69 .1) {#apz69 .1 .ref .apz} "Then you are pressed
-Arrives” is a lyrical joint. Verses are a matching of verses.
-It is an application for luxury. Has come to the stiffness” is thinking
+Arrives" is a lyrical joint. Verses are a matching of verses.
+It is an application for luxury. Has come to the stiffness" is thinking
 The reason is to go. (How) win me, and how can I be defeated?
 How to Night, How to Protute, How to Dispute
 How to mess up, how to clairvoyant, how to swell, how
 Arguing whether to round up is thinking with me
-And came, he came, and came. “Might Views Think”
+And came, he came, and came. "Might Views Think"
 A certain thought of 'manyandriya' '' consciousness' '' consciousness'
 If 'Tajja' is a relics of consciousness, then the view of the heart thinks thinking
 How to do, the world is held all day, and not all day. That is life, that body.
 The other life is the other body. The animal does not arise in death. Not
-“”
+""
 
 [APZ 69.2] (#apz69 .2) {#apz69 .2 .ref .apz} "Clean and Contest
-Coming, you are unsure to compete”
+Coming, you are unsure to compete"
 Prophecy. (ii) A prophecist Pajana has a well-known sense of immoticism,
 It is the same as the archaic, the holistic view. Dhoons to the Prophecy by any kind
 (Cleanness) Saws, and (iv) Wash the burns of the bodiess
@@ -313,7 +313,7 @@ He has impoverished sins have the impoverished cleanses which have impoverished 
 The dores are therefore the name of the dhoons.
 
 [APZ 69.3] (#apz69 .3) {#apz69 .3.ref .apz} "Pure and Join the Contest,
-You are unsure to compete” is a Buddhist Buddhist
+You are unsure to compete" is a Buddhist Buddhist
 It is not advisable to negotiate a two-way competition with the Whips.
 What are the reasons for it? Aftermath (ii) Heating, Silence, Lamination. A
 The prophets were arched, and were eminent, and were high.

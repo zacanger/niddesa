@@ -56,11 +56,11 @@ He left. He escaped from the forest.
 The Lord. Nagaseka because he does not sin. (4-10) 1 should be applied from the place of the snake.)
 
 [APZ 102.10] (# apz102.10) # apz102.10 .ref .apz} "
-Do you lie for a reason? ”Means‘ for what reason ’, for what reason, by what
+Do you lie for a reason? "Means' for what reason ', for what reason, by what
 In a sense, in a sense. 'Lying' means lying,
 Some person in this world speaks and practices to the church
 Went or went to a group or went to the middle of relatives or went to the village or Rajakula
-Evidence that went to the center or was not polite was examined ‘Emba man, here
+Evidence that went to the center or was not polite was examined 'Emba man, here
 Come on. If you know something, read it. 'I do not know what he knows or does not know
 I do not know. What I have not seen I have seen or I have not seen
 I do not see it because of myself or because of others or for any other reason
@@ -261,7 +261,7 @@ He was alone. He was alone because he was absolutely pure. Went to Ekana Road
 He was alone. He was the only one who came to Sambodhi.
 
 [APZ 107.2] (# apz107.2) # apz107.2 .ref .apz} "How luckyThe Lord
-Are you alone in being ordained? ”The Blessed One had black hair when he was young
+Are you alone in being ordained? "The Blessed One had black hair when he was young
 The sweet young man was accompanied by weeping lamentations with tears on his face at an early age
 All household pests are cut down against the wishes of parents and relatives
 Break down the pests of wives and children, destroy the pests of relatives and destroy the pests of friends.
@@ -270,7 +270,7 @@ Comes to be free from impurity and behaves and lives alone and maintains posture
 Rules, depends, thus the Blessed One is alone in ordination.
 
 [APZ 107.3] (# apz107.3) # apz107.3 .ref .apz} "How Blessed
-Are you uniquely lonely? ”The lone monk said,
+Are you uniquely lonely? "The lone monk said,
 Of people separated from the people of the forest by the few noises, the little noises
 The monasteries serve as a resting place suitable for secret affairs. He
 Travels alone. Stands alone, sleeps alone. In order to torment the village alone
@@ -279,7 +279,7 @@ Take a walk, walk alone and live. Maintains posture. There is control
 Does. Depends. Thus the Blessed One was uniquely alone.
 
 [APZ 107.4] (# apz107.4) {# apz107.4 .ref .apz} "How Blessed
-Is he alone in the sense of expelling lust? ”He was alone
+Is he alone in the sense of expelling lust? "He was alone
 The second is the loss of immediacy
 The false roots of the Neranjaranadithira, which are covered with, make great efforts with the army
 Pamatta Bandhu, also known as Namuchi, was chased away by a gang of thugs
@@ -291,7 +291,7 @@ The man wanders in this long samsara from one self to another
 Coming and going does not exceed samsara. "
 
 "Lust, which has been dismissed as causing misery, has no aggravation
-The mindful monk behaves. ”Thus the Blessed One expels lust
+The mindful monk behaves. "Thus the Blessed One expels lust
 Lonely in meaning.
 
 [APZ 107.6] (# apz107.6) # apz107.6 .ref .apz} "How Blessed
@@ -301,7 +301,7 @@ Mo.Positive Veethamohanu was left alone as he defeated six. The defilements are 
 Therefore, he was left alone without any defilement.
 
 [APZ 107.7] (# apz107.7) # apz107.7 .ref .apz} "How Blessed
-Did you go to the one-way street, alone? ”(Ii) The one-way road is four
+Did you go to the one-way street, alone? "(Ii) The one-way road is four
 Satipatthnas say. Fours to the chiefs, the five senses,
 To the Panchabalas, to the Saptabodhiyangas, to the Aryan Eightfold Path. 'Nationalism
 The compassionate Supreme Buddhas who have seen know the one and only way. The previous one
@@ -309,7 +309,7 @@ They crossed the Sasara by the same road. They cross now, they cross next. Thus
 The Blessed One was alone on the one and only path.
 
 [APZ 107.8] (# apz107.8) # apz107.8 .ref .apz} "How Blessed
-Are you alone when you come to Sambodhi? ”Bodhi Four
+Are you alone when you come to Sambodhi? "Bodhi Four
 Tells the wisdom of the ways. Wisdom Wisdom, Wisdom, Dhammavicha
 Sambojkdhanga, Vimansa, Vidarshana is a Samdha view. Blessed are you
 From that Bodhisattva, he realized that all editors are impermanent. all
@@ -347,7 +347,7 @@ There is great wisdom, therefore the Pingiya Sthaviras said.
 [Msdiv 108] (# msdiv108) # msdiv108 .ref .msdiv} (17-11)
 
 [APZ 108.1] (# apz108.1) # apz108.1 .ref .apz} "Someone preached the Dhamma to me
-Did you do that? ”Means that there is no doctor who has realized that fortune by self-consciousness
+Did you do that? "Means that there is no doctor who has realized that fortune by self-consciousness
 The Blessed One understood the truths of the Dhammas which he had not understood before
 He said. There too he came to omniscience. Dhamma sermons came to fruition in the fruits as well
 Kalaseka means. Dhamma is a consonant with good meaning in the beginning, good in the middle and good in the end
@@ -378,7 +378,7 @@ The Pingiya Sthaviras said,
 [Msdiv 109] (# msdiv109) # msdiv109 .ref .msdiv} (17-12)
 
 [APZ 109.1] (# apz109.1) # apz109.1 .ref .apz} "Pingiya, what?
-Will you separate from Him? ”What will separate you from the Buddha?
+Will you separate from Him? "What will separate you from the Buddha?
 Quit? Pingiya means "moment" or moment or moment
 That is. 'Pingiya' is from the Gautama enlightened being 'from the enlightened one'
 From the possessor of the wisdom cone, from the possessor of wisdom, from the abundance of searches
@@ -453,7 +453,7 @@ That is to say, having the wisdom of the Nibbana.
 Earth-like vast expanses Wisdom means.
 
 [APZ 114.6] (# apz114.6) # apz114.6 .ref .apz} "There are some who have great wisdom
-He also bends in one direction in one direction, ”he said
+He also bends in one direction in one direction, "he said
 Somewhere it will bend towards it. It bent, it was heavy, it clung to it
 Is dominated. Therefore the Pingiya Sthaviras said,
 
@@ -571,7 +571,7 @@ Udanaya, Ithivuttaka, Jataka, Abhuta Dhamma, Wedallaya, these Dhammas are unders
 He acquires insight into association with perception. This is the understanding of pervasiveness.
 
 [APZ 118.7] (# apz118.7) # apz118.7 .ref .apz} "Questions and Answers
-What is it? ”Some person here is in meaning, in theory, in character,
+What is it? "Some person here is in meaning, in theory, in character,
 There are questions in the matter and in the relics. Ask him questions
 Because understanding is. These questions are comprehension.
 
@@ -661,7 +661,7 @@ Nowhere means anywhere, spiritually or externally.
 [APZ 120.3] (# apz120.3) # apz120.3 .ref .apz} "I will definitely go to Nibbana
 There is no doubt that "is definitely the word for certainty."
 The word without two. The right word. Innocent word. The opposite word.
-‘I will definitely go’ means I will come. I will testify. That is.
+'I will definitely go' means I will come. I will testify. That is.
 'Here' in 'No doubt here' is in Nibbana. Suspicion is a surprise
 Wichita has no two ideas. Not apparent, not available. Failure,
 At first it was dry. Calm, soothing, unworthy to be born, by the fire of wisdom

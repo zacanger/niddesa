@@ -3,27 +3,27 @@
 85. [Like this, His Holiness Moiro:] I asked Shakya twice, and the eye did not
     answer for me,
 
-And until the third time, Tian Xian, “answer” was not heard by me.
+And until the third time, Tian Xian, "answer" was not heard by me.
 
-“I asked Shakya twice”: The Brahman asked Buddhist, worldly questions twice, and
-Worldman did not answer the question he asked [, thought]: “In the middle, the
-roots of this Brahman will become familiar.” “Shakya”, “Shakya Worldworld is a
-person from the Shakya family For Shakya. Or, “the rich, the rich, the wealthy.”
+"I asked Shakya twice": The Brahman asked Buddhist, worldly questions twice, and
+Worldman did not answer the question he asked [, thought]: "In the middle, the
+roots of this Brahman will become familiar." "Shakya", "Shakya Worldworld is a
+person from the Shakya family For Shakya. Or, "the rich, the rich, the wealthy."
 Also for Shakya. For him there are these wealth, namely: credit, quit, ashamed,
 ashamed, hearing about wealth, alms, wealth, wealth, remembrance, good fortune,
 god wealth, root wealth, wealth, wealth, Nibbana, to These kinds of treasures
-are the wealthy, the rich, the wealthy. Or, “The Probable, the Able, the Seed,
+are the wealthy, the rich, the wealthy. Or, "The Probable, the Able, the Seed,
 the Ample, the Hero, the Brave, the Heroic, the Courage, the Not Frightened, the
 Not Frightened, The Not Frightened, The Not Frightened, The Not Runaway, Those
-who have cut off terror and fear .” Also for Shakya. “I asked Shakya twice”: “I
-asked, begged, and asked, and made it clear again again.” For me asked Shakya
+who have cut off terror and fear ." Also for Shakya. "I asked Shakya twice": "I
+asked, begged, and asked, and made it clear again again." For me asked Shakya
 twice.
 
-“[His Holiness like this]”: “Like this, the continuation of the sentence...
-(cr.) “Moirrohaya”, the name of the Brahman... (cl.) For [His Holiness like
+"[His Holiness like this]": "Like this, the continuation of the sentence...
+(cr.) "Moirrohaya", the name of the Brahman... (cl.) For [His Holiness like
 this]
 
-“The eye did not answer for me”: “'Not answered for me. ', did not answer, tell,
+"The eye did not answer for me": "'Not answered for me. ', did not answer, tell,
 tell, teach, build, uncover, parse, clarify, explain, explain for me. For those
 with eyes, Worldview is the eye: the naked eye is the eye, the eye is also for
 those who have eyes, eye is also for those who have eyes, the Buddha eye is also
@@ -49,7 +49,7 @@ over pure, and Worldworld so with the naked eye as the eye.
 How is Worldview as the Eye? Worldom to clean, transcendent the eyes of heaven,
 see when life and death, in life, in inferior, wonderful, beauty, ugly,
 fortunate, unfortunate, unfortunate, unfortunate, in the knowledge of the whole
-life flow according to the industry: “These creations, with evil deeds, , evil
+life flow according to the industry: "These creations, with evil deeds, , evil
 deeds, rebuke the saints, wickedness and wickedness industry, they have been
 born to the bitter world, evil, lower bound, hell, or these beings, with good
 deeds, words of good deeds, good deeds, meaning Good deeds, do not rebuke the
@@ -129,7 +129,7 @@ dissidents, sharp breakers want to do evil opinions in the gesture of wisdom,
 they prepare problems later to see , and then asked the hidden and hidden
 [rationality], those questions were talked about and answered by Worldman for
 explaining reasons, and nearly abandoned those who became worldly [disciples],
-when Worldom was there that “Ehui” Glorious. Worldhotel so with eyes as an eye.
+when Worldom was there that "Ehui" Glorious. Worldhotel so with eyes as an eye.
 
 Worldhotel such a Buddha eye as an eye? Worldly observes the world with the
 Buddha's eye, seeing less dirt, much dirt; the lagan, blunt root; the deeds of
@@ -145,9 +145,9 @@ dwelt without being stained Similarly, worldly observes the world with the
 Buddha's eye, seeing less dirt, much dirt; the lagan, blunt root; the deeds of
 good deeds, evil deeds; the teaching, uneducated; some of those who live in
 other worlds Sin and terror [, others do not live in seeing sin and terror in
-other worlds] [DN.14, 69 para. Worldworld knows: “This man is a corrupt man,
+other worlds] [DN.14, 69 para. Worldworld knows: "This man is a corrupt man,
 this person is a trader, this man is a trader, this man is a walker, this person
-is a believer, this man is a wise walker.” Worldworld speaks unclear to the
+is a believer, this man is a wise walker." Worldworld speaks unclear to the
 corrupt. Worldworld informs the practice of Mercy to the people of the Parker
 Worldroom for the dementer to rest in recitation, questioning, hearing of timely
 law, discussion of timely law, teacher's cohabitation. Worldworld informs the
@@ -156,7 +156,7 @@ good consciousness of the Buddha, the good law of the law, the good practice of
 the monk and his own ring. Worldworld told the wise man of the wise man that the
 phase of Basha: inconstant, bitterness, and without me.
 
-“If you stand at the top of the rock mountain, you can see all the people,
+"If you stand at the top of the rock mountain, you can see all the people,
 
 Likewise, the good, and all the eyes, go up the high buildings of the law,
 
@@ -175,71 +175,71 @@ How can Worldhotel take all eyes as an eye? All eyes are called the state of all
 knowing wisdom. Worldworld arrival (with), full arrival (with), entry, full
 entry, full, fully sufficient, with all knowledge of the state wisdom.
 
-“For him there is nothing unseen here, and there is no knowledge, and cannot be
+"For him there is nothing unseen here, and there is no knowledge, and cannot be
 known,
 
 He testifies that whosoever exists should be guided by inference, as it is for
 all eyes. [Ps.1, para. 121]
 
-Worldhotel so with all eyes as an eye.” For those with eyes did not answer for
+Worldhotel so with all eyes as an eye." For those with eyes did not answer for
 me.
 
-“And it was not until the third time, the answer was not heard by me”: “Until
+"And it was not until the third time, the answer was not heard by me": "Until
 the third time the Buddha, the master of the law answered the question, and did
-not make it go.” This is how I learn, so I understand, and this is discerned by
-me. “Tenxian”, “Worldworld is the Tenjin and Fairy. For Tianxian. For example,
-“The King was called the king immortal; the Brahman was called the Brahman Sin,
-the same is the angels and immortals.” For Tianxian.
+not make it go." This is how I learn, so I understand, and this is discerned by
+me. "Tenxian", "Worldworld is the Tenjin and Fairy. For Tianxian. For example,
+"The King was called the king immortal; the Brahman was called the Brahman Sin,
+the same is the angels and immortals." For Tianxian.
 
-Or, 'Worldworld is a man. ' Also for the fairy; “The Seeker, Seeker, Seeker” is
+Or, 'Worldworld is a man. ' Also for the fairy; "The Seeker, Seeker, Seeker" is
 also the fairy... (medium); Dingyun... (medium) Dahui Yun... Great relief...
-“Great relief of wisdom seeker, seeker “The Seeker” is also fairy; “Shattered
-Seeker, Seeker, Seeker, Seeker” is also fairy; “upside down of destruction
-seeker, seeker, seeker” is also fairy; the longing love of thorns Pull out...
+"Great relief of wisdom seeker, seeker "The Seeker" is also fairy; "Shattered
+Seeker, Seeker, Seeker, Seeker" is also fairy; "upside down of destruction
+seeker, seeker, seeker" is also fairy; the longing love of thorns Pull out...
 big see the accumulation of unravelling... the big slow flag... the rest of the
 big storm... big burdens down... big round rotations off... the elimination of
 great annoyance... great annoyance... Stop interest... make the big flags
 stand... the big reckon... (medium) the great diligence... the great roots...
 all great powers... all great senses... Big eight holy... the greatest interests
-of the undead Nibbana The Seeker, Seeker, Seeker” is also fairy; “Seeking by the
+of the undead Nibbana The Seeker, Seeker, Seeker" is also fairy; "Seeking by the
 Great Power, Seeking, Pursuit, Seeking: Where is the Buddha? Where is
 Worldplace? Where is the Tenjin in Tenjin? Where is the Cow King in Man? Also
-for fairy people.” And until the third time, Tian Xian, “answer” was not heard
+for fairy people." And until the third time, Tian Xian, "answer" was not heard
 by me.
 
 Because then, the Brahman said:
 
-“[Like this, His Holiness Moiro:] I asked Shakya twice, and those with eyes did
+"[Like this, His Holiness Moiro:] I asked Shakya twice, and those with eyes did
 not answer for me,
 
-“The answer was not heard until the third time Tien Xian.”
+"The answer was not heard until the third time Tien Xian."
 
 86. This world, other worlds, and the worlds of the heaven, including the
     angels,
 
 I do not know your see: the famous Jo Tamo.
 
-“This world, other worlds”: “This world is a human world. “Other worlds” are all
+"This world, other worlds": "This world is a human world. "Other worlds" are all
 the worlds except the world of men. For this world, other worlds.
 
-“The world of the heaven, including the angels”: “Heavens, demons, and the world
-of Van; including Salmon, Brahmen, Heaven, and the generation of men.” For the
+"The world of the heaven, including the angels": "Heavens, demons, and the world
+of Van; including Salmon, Brahmen, Heaven, and the generation of men." For the
 world of the world, including the angels.
 
-“Do not know what you see”: “The world does not know what you see, likes,
+"Do not know what you see": "The world does not know what you see, likes,
 hobbies, claims, intentions, intentions, intentions: 'This is thisSo those who
-see, so like, so enthusiasts, so advocates, so intents, so intents” do not know,
-do not see, do not see, do not get, cannot find, do not get.” For not knowing
+see, so like, so enthusiasts, so advocates, so intents, so intents" do not know,
+do not see, do not see, do not get, cannot find, do not get." For not knowing
 your see.
 
-“The reputation of Jo Tamo”: “Worldworld is the winner of fame.” For those who
-have a reputation, or, “Worldrespect is the benefit of those who are honored,
+"The reputation of Jo Tamo": "Worldworld is the winner of fame." For those who
+have a reputation, or, "Worldrespect is the benefit of those who are honored,
 revered, respected, respected, respected, clothes, food, shelter, patient needs,
-medical necessities.” Also for the reputable.” For the famous Jo Tamo.
+medical necessities." Also for the reputable." For the famous Jo Tamo.
 
 Because then, the Brahman said:
 
-“This world, and other worlds, the world of the heaven, including the angels,
+"This world, and other worlds, the world of the heaven, including the angels,
 
 Do not know thy see: the famous Jo Tamoth.
 
@@ -247,24 +247,24 @@ Do not know thy see: the famous Jo Tamoth.
 
 How to observe the world, the death king can not see?
 
-“Such excellent viewers”: “Such excellent viewers, first viewers, the winning
+"Such excellent viewers": "Such excellent viewers, first viewers, the winning
 viewers, the winning viewers, the top viewers, the top viewers, the supreme
-viewers.” For such an excellent viewer.
+viewers." For such an excellent viewer.
 
-“There is a need to come with the problem”: “In order to question I need to
-come... (medium) please take on this burden.” It is also necessary to come with
+"There is a need to come with the problem": "In order to question I need to
+come... (medium) please take on this burden." It is also necessary to come with
 the question.
 
-“How to observe the people of the world”: “How to observe the world, the
-provist, the gauge, the judge, the difference, the clear.” How to observe the
+"How to observe the people of the world": "How to observe the world, the
+provist, the gauge, the judge, the difference, the clear." How to observe the
 world.
 
-“Dead King can not see”: “The dead king can not see, see, not see, not get, can
-not find, not get.” For the dead king can not see.
+"Dead King can not see": "The dead king can not see, see, not see, not get, can
+not find, not get." For the dead king can not see.
 
 Because then, the Brahman said:
 
-“Such excellent viewers, with the need to come with questions,
+"Such excellent viewers, with the need to come with questions,
 
 How to observe those in the world, and the king of death can not see?
 
@@ -274,26 +274,26 @@ After I was pulled away, so that he could become a man of death.
 
 So those who observe the world, the King of Death can not see.
 
-“Please observe that the world is empty”: the world of hell, the world of the
+"Please observe that the world is empty": the world of hell, the world of the
 beasts, the worlds of evil worlds, the worlds of mankind, the world of heaven,
 the worlds of the worlds, the worlds of worlds, the worlds of the world, the
 world of Other worlds, the worlds of the heaven, including the [world] of
-heaven. A Bichu said so to Worldend [SN.35.82]: “Dade! Known as the “world, the
-world”, Daedeu! What is called the “world”?” “Bichu! “Broken”, so it is called
-the “world.” And what is “broken”? Bichu! Eye is broken, color is broken, eye is
+heaven. A Bichu said so to Worldend [SN.35.82]: "Dade! Known as the "world, the
+world", Daedeu! What is called the "world"?" "Bichu! "Broken", so it is called
+the "world." And what is "broken"? Bichu! Eye is broken, color is broken, eye is
 broken, eye touch is broken, all with this eye for origin or pleasure, or
 bitter, or not suffering are also broken. Ear is broken... (medium) smell is
 broken... As broken, touched as broken... means fragmented, the law is broken,
 consciousness is broken, the touch is broken, where this sense is born or music,
-or bitter, or Do not suffer suffer are also broken. Bichu! “Breakdown,” is
-called the “world.”
+or bitter, or Do not suffer suffer are also broken. Bichu! "Breakdown," is
+called the "world."
 
-“Please observe that the world is empty”: to observe that the world is empty for
+"Please observe that the world is empty": to observe that the world is empty for
 two reasons: for consideration of not being turned away or because of the empty
 line. How can we observe the world is empty because of the consideration of not
 being turned up? There is no comfort on the color, the freedom in the subject,
 the freedom to think, the freedom on the line, the freedom in the sense is not
-available. This is said by Worldman [SN.22.59]: “The Picchu! The color is
+available. This is said by Worldman [SN.22.59]: "The Picchu! The color is
 without me. Bichu! Because if this color was me, it would not cause disease, and
 it would be in the color: 'My color should be like this; I don't have to do it.
 ' But, the Bichu! Because the color is without me, so the color causes disease,
@@ -306,24 +306,24 @@ But, the Bichu! For it is not me, and therefore the resulting disease is not
 received: 'This is my receiving; so do not my suffer. '
 
 Bichu! Want to be without me. Bichu! Because, if this thought was me, this
-thought would not cause disease, it would also get in the subject: “I want this;
-I want it not.” But, the Bichu! Because I want to be without me, so I want to
+thought would not cause disease, it would also get in the subject: "I want this;
+I want it not." But, the Bichu! Because I want to be without me, so I want to
 cause disease, I can't think: 'I want this; what I want is not. '
 
 Bichu! Line is no me. Bichu! Because if this line was me, the line would not
 cause disease, and it would get on the line: 'This is my line; my line doesn't.
 ' But, the Bichu! Because the line is without me, therefore, the line causes
-disease, also on the line does not get:“This shall be my deed; I do not do it.”
+disease, also on the line does not get:"This shall be my deed; I do not do it."
 
 Bichu! Knowing is no me. Bichu! For if this knowledge was me, it would not cause
 disease, but it would be obtained in knowledge: 'This is my knowledge; do not my
 knowledge. ' But, the Bichu! For knowledge is not me, therefore knowledge which
 leads to disease is not known: 'This is my knowledge; so do not my knowledge. '
 
-This is said by Worldman [SN.12.37]: “The Bichu This body is not yours, nor of
+This is said by Worldman [SN.12.37]: "The Bichu This body is not yours, nor of
 others, Bichu! This is an old industry that should be seen as being made,
 created by thought, and can be felt. There, the Picchu! The disciples of the
-hearing of the Holy Disciples do well: “Like this, when this exists, there is
+hearing of the Holy Disciples do well: "Like this, when this exists, there is
 that; by the birth of this, it is born; when this does not exist, there is no
 one; and with this extinction, then that Destroying, that is: by the reason of
 ignorance; knowing by behavior; by recognition and fame; with fame and six; to
@@ -334,7 +334,7 @@ the whole set of bitterness.
 
 But it perished by the unclear fade and destruction; and by extermination;...
 (medium) in life and old, death, sorrow, sorrow, bitterness, fear, and despair,
-so this is the destruction of this whole bitterness.” In this way, the world is
+so this is the destruction of this whole bitterness." In this way, the world is
 empty because of the consideration of not being turned up.
 
 How can we observe that the world is empty because of the empty line? In the
@@ -396,7 +396,7 @@ students Brahmen, not women, not men, not true me, It is not mine, not me, not
 mine, not anyone, not of any man, not of anyone, so that the world is empty for
 twelve reasons.
 
-This is said by Worldman [SN.22.33]: “The Bichu And whosoever is not you, give
+This is said by Worldman [SN.22.33]: "The Bichu And whosoever is not you, give
 off! And if it has been cut off, it will surely have a lasting interest and
 peace for you. And, the Picchu! What's not yours? Bichu! The color is not yours,
 and ye shall be discarded. And when it has been cut off, it will surely have a
@@ -411,19 +411,19 @@ has been cut off, it will surely have a lasting interest and peace for you.
 Bichu! And whosoever is not you, give off! It will surely be good for you and
 peace, if it has been cut off. Bichu! As in this woods, people will take grass,
 fuelwood, branches, leaves, or burned, or do whatever he wants, you will think,
-“People take us away, or burn them, or do whatever he wants.” Is it?” “No, Dade!
-What's the reason for that? Dade! For this is not me, nor is it me.” “Same,
+"People take us away, or burn them, or do whatever he wants." Is it?" "No, Dade!
+What's the reason for that? Dade! For this is not me, nor is it me." "Same,
 Bichu! And whosoever is not you, give off! And if it has been cut off, it will
 surely have a lasting interest and peace for you. And, the Picchu! What's not
 yours? Bichu! The color is not yours, and ye shall be discarded. If it has been
 cut off, it will surely have a lasting interest and peace for you; by...
 (medium) wanting... walk... Bichu! And those who know not you, let ye be
-discarded. “If it has been cut off, it will surely have a lasting interest and
-peace for you.”
+discarded. "If it has been cut off, it will surely have a lasting interest and
+peace for you."
 
-His Holiness Anan said this to Worldworld [SN.35.85]: “Known as “The world is
-empty, the world is empty”, the great virtue! What is called “the world is
-empty”?” “Anan! Because I or I am empty, it is called 'the world is empty. ' Ah
+His Holiness Anan said this to Worldworld [SN.35.85]: "Known as "The world is
+empty, the world is empty", the great virtue! What is called "the world is
+empty"?" "Anan! Because I or I am empty, it is called 'the world is empty. ' Ah
 Nan! What is to me or what I am empty? Ah Nan! Eye to me or what I am empty,
 color... (medium) is empty, eyes... is empty, eye touch... is empty, whosoever
 is born with this eye touch or fun, or bitter, or not hard to suffer also to me
@@ -432,38 +432,38 @@ taste... is empty, body... is empty, touched... is empty, meaning... is empty,
 law... is empty, consciousness... is empty, meaning... is empty, meaning... is
 empty, meaning... is empty, meaning... is empty, For the sake of joy, or
 bitterness, or not bitter, and not to suffer, also to me or what I am empty. Ah
-Nan! Because I or I am empty, it is called 'the world is empty. '” It is also
+Nan! Because I or I am empty, it is called 'the world is empty. '" It is also
 observing that the world is empty.
 
-“It is purely the birth of law, purely a sequel of lines,
+"It is purely the birth of law, purely a sequel of lines,
 
-For the truth see, the village chief! He has no fear. [Thag.715]”
+For the truth see, the village chief! He has no fear. [Thag.715]"
 
-“The same grass in the world, when Emily saw, [Thag.716]
+"The same grass in the world, when Emily saw, [Thag.716]
 
-Will not ask for anything else: in other birthplace.”
+Will not ask for anything else: in other birthplace."
 
 It is also observing that the world is empty.
 
-This is said by Worldman [SN.35.246]: “Same, Bichu! Picchu explore the color
+This is said by Worldman [SN.35.246]: "Same, Bichu! Picchu explore the color
 until the fun of all colors; to explore all the interesting places; to find out,
 until all the interesting places you want; explore the line until the fun of all
 rows; explore the fun of all rows; explore Known, until all the interesting
 places of knowledge, when he looks for color, until the fun of all
 colors...OK... Seek knowledge until all the interesting places of knowledge are
-timely, for whom there is no one who “me,” or “mine,” or “I am”. It is also
+timely, for whom there is no one who "me," or "mine," or "I am". It is also
 observing that the world is empty.
 
-“Please observe that the world is empty”: “The world is empty, please observe,
-please see, please measure, please judge, ask you to figure it out.” To ask you
+"Please observe that the world is empty": "The world is empty, please observe,
+please see, please measure, please judge, ask you to figure it out." To ask you
 to observe that the world is empty.
 
-“Moyulok! “Always mindful”: “Moylo,” Worldman named the Brahman by name.
-“Always”, all the time... (medium) old age. “Mindfulness (of)” is mindful in
+"Moyulok! "Always mindful": "Moylo," Worldman named the Brahman by name.
+"Always", all the time... (medium) old age. "Mindfulness (of)" is mindful in
 four ways: when practicing on the body is mindful... (medium) he is called the
-mindful.” For Moyuloo! Always mindful.
+mindful." For Moyuloo! Always mindful.
 
-“After pulling me”: “I am on sight” is known as twenty personas. Here, the
+"After pulling me": "I am on sight" is known as twenty personas. Here, the
 ordinary man who has not heard of the Holy One has not seen the Holy One, not
 proficient in the law of the Holy One, and not trained in the law of the good;
 he who has not seen the good man, and is not skilled in the law of the good man,
@@ -473,23 +473,23 @@ or I know in me, or I am in knowledge [SN.22.1], where like this Seen, evil
 opinion, jungle view, desert, distorted, shaken, bound, seize, accept, hold,
 execute, evil way, evil path, evil, evil, outward, outward, reversed (
 vipariyesa) clasp, viparīta clasp, upside down (vipallāsa) clasp, wicked clasp,
-“[see] true on non-real [see] The clenchor, all came to the place of Sixty-two
-evil views, which I met. “After pulling me off”: “After I saw pulling, after
+"[see] true on non-real [see] The clenchor, all came to the place of Sixty-two
+evil views, which I met. "After pulling me off": "After I saw pulling, after
 eradication, after pulling out, after pulling out, after removal, after removal,
 completely removed, after disconnection, deportation, after end, so that it went
-to absent.” For the removal of me after I met.
+to absent." For the removal of me after I met.
 
-“This can become a degree of death”: “So you can get rid of death, you can also
+"This can become a degree of death": "So you can get rid of death, you can also
 get rid of aging, you can also take off death, you can surpass, you can pass,
-you can overcome.” In order to be able to become a deceased person.
+you can overcome." In order to be able to become a deceased person.
 
-“Such observation of the world”: “Observe, measure, judge, distinguish, figure
-out the world.” For this kind of observation of the world.
+"Such observation of the world": "Observe, measure, judge, distinguish, figure
+out the world." For this kind of observation of the world.
 
-“The King of Death Invisible”: “Death is the king of death; Devil is also the
-king of death; death is also the king of death. “Invisible”, the King of Death
+"The King of Death Invisible": "Death is the king of death; Devil is also the
+king of death; death is also the king of death. "Invisible", the King of Death
 can not see, see, do not get, cannot find, not get. This is said by Worldman
-[MN.25]: “Bichu! Like a deer living in the forest, when walking in the forest,
+[MN.25]: "Bichu! Like a deer living in the forest, when walking in the forest,
 in the forest, walking safely, standing with peace of mind, sitting safely,
 lying down with peace of mind, what is the reason? Bichu! That's an unreachable
 area for the murderer. Same, Bichu! Here, Bichu from desire, from bad law, after
@@ -504,15 +504,15 @@ Zen, Picchu! This is known as Bichu Blind, after killing the eyes of the magic,
 wave into the invisible and insufficiency state.
 
 Besides, the Bichu! Bichu in all colors want to go beyond, to have the right to
-want, to do not want all kinds of thought [and know]: “Void is endless”, enter
+want, to do not want all kinds of thought [and know]: "Void is endless", enter
 into the void infinity, Bichu! This is known as Bichu Blind, after killing the
 eyes of the magic, wave into the invisible and insufficiency state.
 
-Besides, the Bichu! After Bichu goes beyond all the void [know]: “knowledge is
-infinitely”, enter into the infinity of knowledge... (medium).
+Besides, the Bichu! After Bichu goes beyond all the void [know]: "knowledge is
+infinitely", enter into the infinity of knowledge... (medium).
 
 Besides, the Bichu! Bichu went beyond everything to know the infinity [and
-know]: “Nothing”, enter after entering there is nothing... (middle).
+know]: "Nothing", enter after entering there is nothing... (middle).
 
 Besides, the Bichu! After bichu beyond everything, enter after living in the
 thought... (medium slightly).
@@ -527,14 +527,14 @@ the King of Death.
 
 Because then, Worldman said:
 
-“Please observe that the world is empty: Moiulo! Always mindfully,
+"Please observe that the world is empty: Moiulo! Always mindfully,
 
 After I was pulled away, so that he could become a man of death.
 
-So those who observe the world, the king of death will not see.”
+So those who observe the world, the king of death will not see."
 
-At the end of the Ode... (medium) “Daedeu! Worldson is my teacher, I am a
-disciple.”
+At the end of the Ode... (medium) "Daedeu! Worldson is my teacher, I am a
+disciple."
 
 The fifteenth of the instructions asked by Brahmen, a student of Morolaus
 [Completed].

@@ -110,11 +110,11 @@ a life without suffering or desire, I call them "Muni."
 
 Because of that, the Lord said:
 
-"It’s not to see, not to hear, not to know, Nanda! The skillful people here say
+"It's not to see, not to hear, not to know, Nanda! The skillful people here say
 Muni,
 
 Those who live a life without suffering and desire after leaving the army, I
-call them "Muni". 』
+call them "Muni". "
 
 48. [Venerable Nanda like this:] Any of these sandmen and brahmins, they say
     that there is purity in seeing and hearing,
@@ -142,7 +142,7 @@ talk, explain, speak, and see that there is purity, purity, and purity;
 separation, liberation, and separation; they also speak, speak, talk, Explain
 and speak for what is heard is pure, pure, and all-free; separation, liberation,
 and all-free; they speak, tell, talk, explain, and speak to see and hear are
-pure, pure and all-free; separate, liberate, and all Departure.” It is said that
+pure, pure and all-free; separate, liberate, and all Departure." It is said that
 there is purity in seeing and hearing.
 
 "It is also said that there is purity in taking precepts and prohibitions":
@@ -173,8 +173,8 @@ surpass, pass, pass, and overcome. "Dear Sir", this is love, honor, respect, and
 obedient The synonymous word is dear sir." To survive birth and aging, dear sir!
 
 "Master, I ask you, please tell me this": ""I ask you", I ask you; I beg you; I
-ask you [; You make me clear]; "Please tell me," ask you for me .『World
-Zun』……(Omitted) Anri (pseudonym) who testified, that is, "World Honored One".
+ask you [; You make me clear]; "Please tell me," ask you for me ."World
+Zun"……(Omitted) Anri (pseudonym) who testified, that is, "World Honored One".
 "Please tell me this", please say, please explain, please teach, please inform,
 please build, please uncover, please analyze, please clarify, please explain.
 "For the Lord, I ask you, please tell me this.
@@ -330,7 +330,7 @@ world of heaven and man,
 
 Dear Sir! To survive birth and aging? Lord, I ask you, please tell me this. "
 
-51. [World Zun: "Nanda!"] I don’t say "all the sandmen and brahmins are covered
+51. [World Zun: "Nanda!"] I don't say "all the sandmen and brahmins are covered
     by birth and aging",
 
 Anything you see or hear or feel here, or even the precepts and prohibitions are
@@ -340,14 +340,14 @@ After        all kinds of forms are also cut off, the omniscience of the
 trouble-free people after thirsty and love, I said, "Those people have indeed
 survived the storm.
 
-"[World Venerable: "Nanda!"] I don’t say, "All sandmen and brahmins are covered
-by birth and aging"": "Nanda! I don’t say, "All Shamen and Brahmins are hindered
+"[World Venerable: "Nanda!"] I don't say, "All sandmen and brahmins are covered
+by birth and aging"": "Nanda! I don't say, "All Shamen and Brahmins are hindered
 by birth and aging (block ), enveloping, obstructing, closing (covering),
 hiding, enveloping", I say, I explain, I teach, I inform, I build, I uncover, I
 analyze, I clarify, I explain "There are those For them, Shamen and Brahmins,
 birth, senescence and death have been cut off, and their roots have been cut
 off, just like a palm tree without roots, becoming non-existent, immortal things
-for the future"." !"] I don’t say that "all Shamen and Brahmins are covered by
+for the future"." !"] I don't say that "all Shamen and Brahmins are covered by
 birth and aging."
 
 "Anything seen or heard here, or even precepts and prohibitions are all
@@ -376,7 +376,7 @@ kinds of omniscience and omniscience after the thirst for love: knowing
 omniscience, measuring omniscience, and giving up omniscience. What is knowing
 and omniscience? "Knowing the craving: this is the craving for sex, this is the
 craving for sound, this is the craving for smell, this is the craving for taste,
-this is the craving for touch, this is the craving for Dhamma.” He Knowing,
+this is the craving for touch, this is the craving for Dhamma." He Knowing,
 seeing, this is knowing and omniscience.
 
 What is measuring omniscience? After doing this known, eager for him to measure
@@ -409,7 +409,7 @@ storm."
 
 Because of that, the Lord said:
 
-"[World Zun: "Nanda!"] I don’t say, "All Shamen and Brahmins are covered by
+"[World Zun: "Nanda!"] I don't say, "All Shamen and Brahmins are covered by
 birth and aging."
 
 Anything you see or hear or feel here, or even the precepts and prohibitions are
@@ -419,7 +419,7 @@ After        all kinds of forms have been cut off, the omniscience of the
 trouble-free people after thirsting for love, I said, "Those people have indeed
 survived the storm." "
 
-52. I am very happy with Daxian’s words, which is good at telling: Gautam is a
+52. I am very happy with Daxian's words, which is good at telling: Gautam is a
     non-dependent author,
 
 Anything you see or hear or feel here, or even the precepts and prohibitions are
@@ -468,7 +468,7 @@ thirsty and love: knowing and omniscience, measuring omniscience, and giving up
 omniscience. What is known and omniscience? "Knowing the craving: this is the
 craving of sex, this is the craving of sound, this is the craving of smell, this
 is the craving of taste, this is the craving of touch, this is the craving of
-Dhamma.” He Knowing, seeing, this is knowing and omniscience.
+Dhamma." He Knowing, seeing, this is knowing and omniscience.
 
 What is measuring omniscience? After doing this, I eagerly love him to measure
 impermanence, suffering, disease, tumor, arrow, curse, disease, other side,

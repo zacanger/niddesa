@@ -91,7 +91,7 @@ Do not love, do not lust, do not produce, do not cause.
 [Msdiv 133] (# msdiv133) {# msdiv133 .ref .msdiv} (13 - 4)
 
 [APZ 133.1] (# apz133.1) {# apz133.1 .ref .apz} "By virtue of the exalted virtue
-Purity is also said. ”Are some of the important Shramana Brahmins who have exalted the seela
+Purity is also said. "Are some of the important Shramana Brahmins who have exalted the seela
 Yes. They are in a state of seal, in a degree of non-transgression, in a degree of purity
 Liberation is the liberation from the purgatory of purity.
 And declares. It also means practice. Chandika Puthra is the same as Shramana
@@ -100,7 +100,7 @@ I say the invincible shramana who came to the noble arrival with merit. any
 Of the four, the chaplain, here Cain does not sin, does not utter sinful words, sinner
 Kalpana does not think, does not lead a lame life, Thapati, of these four Dhammas
 The right person is the one who is talented, who has great merit, who is to come
-I call him the invincible man who came. ”In the same way the seal was exalted
+I call him the invincible man who came. "In the same way the seal was exalted
 There are some shramana brahmins who are arguing. They discipline in a virtuous manner
 Purity is purity to the extent that it does not exceed the degree of modesty
 Purity is called liberation, liberation is liberation. And declares. Practice
@@ -130,7 +130,7 @@ That is.
 [Msdiv 134] (# msdiv134) {# msdiv134 .ref .msdiv} (13 - 5)
 
 [APZ 134.1] (# apz134.1) {# apz134.1 .ref .apz} "So politely and verbally
-What happened? ”Means two things.
+What happened? "Means two things.
 Otherness is either extinguished or wiped out. Because it is not possible or because it is dead. How
 How do you do that? How do you do that?
 Not omniscient. Dhamma is not self-evident. The genre is not superfluous. Vision is good
@@ -285,7 +285,7 @@ Will dream. Nihina says this is lame but this is small. Even if you say so. Thus
 And. This is also the practice.
 
 [APZ 138.3] (# apz138.3) {# apz138.3 .ref .apz} "True argument since
-What? ”Which of the following arguments of these Shramana Brahmins is not true?
+What? "Which of the following arguments of these Shramana Brahmins is not true?
 That is not the case.
 
 [APZ 138.4] (# apz138.4) # apz138.4 .ref .apz} "These are all clever arguments.
@@ -405,7 +405,7 @@ I know or see with the wisdom of perception, or I see with the eyes. I see a pro
 Also it means, as it were, immaterial.
 
 [APZ 143.2] (# apz143.2) # apz143.2 .ref .apz} "Some people view
-Purity is desired. ”Is the view of some Shramana Brahmins
+Purity is desired. "Is the view of some Shramana Brahmins
 Purity, Purity, Purity, Immortality, Liberation, Liberation,
 To hope. The world is divine, the animal does not rise from the dead. Not at all.
 This is also true of some Shramana Brahmins who view other ideas as empty
@@ -563,7 +563,7 @@ He has neglected the word "sanctified" because it satisfies the lust
 Peace be upon you. Hate is calmed because hatred is calmed, delusion is calmed
 If. ((3-4) (i) paragraph should be used) From all unskilled collections
 Calm because it calmed down, calmed down because it calmed down
-If the twins are St. “Among the unsettled is among the unsettled
+If the twins are St. "Among the unsettled is among the unsettled
 Among the non-subalterns, among the non-sublime, among the non-sublime
 That is.
 

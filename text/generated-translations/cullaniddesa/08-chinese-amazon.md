@@ -5,47 +5,47 @@
 
 Do they say Muni is a wise man? Or is it alive?
 
-“There are Munies in the world”: “Existence” exists, is known, there, found. “In
-the world”, in the worlds of bitter worlds... The name of Moni's wicked
+"There are Munies in the world": "Existence" exists, is known, there, found. "In
+the world", in the worlds of bitter worlds... The name of Moni's wicked
 outlanes, Nigantas, the hair and the bitter. For the existence of the Moni in
 the world.
 
-“[His Holiness like this]”: “Like this, the continuation of the sentence...
-(medium) “His Holiness”, [this is] the word of love... (medium), the name of the
-Brahman... ” For [His Holiness like this].
+"[His Holiness like this]": "Like this, the continuation of the sentence...
+(medium) "His Holiness", [this is] the word of love... (medium), the name of the
+Brahman... " For [His Holiness like this].
 
-“Why do people say this? “People are for Chardly, Brahmen, Bisha, the Sudala, in
-the family, out of the family, the heavens, the heavens, the people. “(They)
-say, “They tell, talk, explain, and speak. “Why is it so”, the question of
+"Why do people say this? "People are for Chardly, Brahmen, Bisha, the Sudala, in
+the family, out of the family, the heavens, the heavens, the people. "(They)
+say, "They tell, talk, explain, and speak. "Why is it so", the question of
 doubts, confusion questions, doubts, more than one question, such as
-anti-question, questioning, why, why in the end?” Why do people say that?
+anti-question, questioning, why, why in the end?" Why do people say that?
 
-“Whether they say Muni is a wise man”: “They say, tell, talk, explain, speak,
+"Whether they say Muni is a wise man": "They say, tell, talk, explain, speak,
 say that Muni has, fully has, arrives, fully arrives, fully enough, fully
-sufficient, with eight supreme wisdom, or five myths Wisdom.” To whether they
+sufficient, with eight supreme wisdom, or five myths Wisdom." To whether they
 say Muni is a wise man?
 
-“Still alive”: “Or do they say, tell, talk, explain, say, say that Muni has,
+"Still alive": "Or do they say, tell, talk, explain, say, say that Muni has,
 fully has, arrives, fully arrives, fully enough, fully sufficient, have engaged
-in all kinds, poles, first The hard-man, the unclean life.” For or alive?
+in all kinds, poles, first The hard-man, the unclean life." For or alive?
 
 Because then, the Brahman said:
 
-“Why do people say that there are Monies in the world [as this, His Holiness:]
+"Why do people say that there are Monies in the world [as this, His Holiness:]
 
-Do they say Muni is a wise man? Or is the one who lives?”
+Do they say Muni is a wise man? Or is the one who lives?"
 
 47. not to see, not to smell, not wisdom, hard to Tuo! Here the good men say
     Muni,
 
 Those who live a life without distress and without desire after the Legion, I
-say they are “Muni.”
+say they are "Muni."
 
-“Not seeing, not in the smell, not wisdom”: “Not in sight, not pure. “Not to
-smell”, not to smell pure. “It is not wise,” neither is it eight to wisdom, nor
+"Not seeing, not in the smell, not wisdom": "Not in sight, not pure. "Not to
+smell", not to smell pure. "It is not wise," neither is it eight to wisdom, nor
 by five gods, nor wickedness. It is not seen, the smell of it, or wisdom.
 
-“Nanda! The good here say Muni: “The good ones,” those who are good, those who
+"Nanda! The good here say Muni: "The good ones," those who are good, those who
 are good, those who are good, those who are good, those who have arisen, those
 who remembered the best, those who remember the best, those who are righteous,
 and those who are righteous, The root of the good, the good, the good, the good,
@@ -53,17 +53,17 @@ the good, the good, the good of the fruit, the Nibbana, they do not say, do not
 talk, do not talk, do not say, do not say, do not say that Muni has, completely
 possesses, Reach, fully arrive, fully sufficient, fully sufficient, have the
 purity, or the purity of what is heard, or Eighth wisdom, or wickedness, or
-evil, or see, or smell, or wisdom.” For hard to do! The good guys here say Muni.
+evil, or see, or smell, or wisdom." For hard to do! The good guys here say Muni.
 
-“Whosoever lives without distress and without desire after leaving the Legion, I
-say they are “Muni”: Legions are called Demons, devil acts devil, devil acts
+"Whosoever lives without distress and without desire after leaving the Legion, I
+say they are "Muni": Legions are called Demons, devil acts devil, devil acts
 devil, wicked devil, greed for demons; For the demon; devil army; anger...
 (medium) resentment... hidden evil... arbitrary... jealousy... hypocrisy...
 cunning... stubborn... Passion... slow... slow... relax... ... all pollution...
 all evil deeds... all annoyed... all irritated... all irritated... all bad
 creation as an army of demons. This was said by Worldman [Sn.3.2, 438-441]
 
-“To be your first legion, disjoy is called the second,
+"To be your first legion, disjoy is called the second,
 
 Hunger and thirst are your third, thirst love is called fourth.
 
@@ -78,30 +78,30 @@ Whoever will praise themselves, disdain others.
 Demon! This is your Legion, the evil (black) attacker,
 
 He who has no courage does not defeat him, after victory will be able to gain
-peace.”
+peace."
 
 When all Demon and all hostile pollution are conquered, defeated, destroyed,
-collapsed, turned open face, because then they are called after the Legion. “No
-distress”, greed is distressed; is distressed; bitter is distressed; anger is
+collapsed, turned open face, because then they are called after the Legion. "No
+distress", greed is distressed; is distressed; bitter is distressed; anger is
 distressed; resentment is distressed...Those who are cut off, cut off, calmed
 down, stopped, unable to be born, burned by wisdom fire, they are called no
-distress. “No desire”: desire is called thirsty love, that is greed, lust (total
+distress. "No desire": desire is called thirsty love, that is greed, lust (total
 greed)... (medium) greed, greed, bad root. Whoever for them this desire is cut
 off, severed, calmed down, stopped, incapable of being born, burned by wisdom
 fire, they are called the unwilling, Arrohan, the troubles have been exhausted.
-“Whoever lives without distress and without desire after leaving the Legion, I
-say they are 'Muni'”: “Those who leave the Legion without distress and without
+"Whoever lives without distress and without desire after leaving the Legion, I
+say they are 'Muni'": "Those who leave the Legion without distress and without
 desire to live (walk), live, act, turn, guard To make the survival, and make the
 living, I say, I explain, I teach, I tell, I build, I uncover, I interpret, I
-explain, I explain. They are the Muni of the world.” For those who leave the
-Legion who live without distress and without desire, I say they are “Muni.”
+explain, I explain. They are the Muni of the world." For those who leave the
+Legion who live without distress and without desire, I say they are "Muni."
 
 Because then, Worldman said:
 
-“Not to see, not smell, not wisdom, hard to do! Here the good men say Muni,
+"Not to see, not smell, not wisdom, hard to do! Here the good men say Muni,
 
 I say that those who live a life without distress and without desire after the
-Legion, I say they are “Muni.”
+Legion, I say they are "Muni."
 
 48. [His Holiness like this:] Any of these Salmon and Brahmen, they say that
     they are pure in their sight and what they smell,
@@ -113,61 +113,61 @@ Worldworld! Are those homemade doers out there, who spend birth and aging?
 
 Dear sir! Worldworld, I ask you, please tell me this.
 
-“All these salmons, and Brahmen”: “Whosoever, all completely, in every aspect,
-without any surplus, the whole land, this is the word of all, for “whatsoever.”
-“Shamon”, anyone who walks into the march from outside here, enters the parade.
-“Brahmen,” anyone who calls a friend to others. For whosoever these Salmon,
+"All these salmons, and Brahmen": "Whosoever, all completely, in every aspect,
+without any surplus, the whole land, this is the word of all, for "whatsoever."
+"Shamon", anyone who walks into the march from outside here, enters the parade.
+"Brahmen," anyone who calls a friend to others. For whosoever these Salmon,
 Brahmen.
 
-“[His Holiness like this]”: “Like this, the continuation of the sentence...
-(medium) “His Holiness”, [this is] the word of love... (medium), the name of the
-Brahman... ” For [His Holiness like this].
+"[His Holiness like this]": "Like this, the continuation of the sentence...
+(medium) "His Holiness", [this is] the word of love... (medium), the name of the
+Brahman... " For [His Holiness like this].
 
-“They say that they see and what they smell are pure”: “They say, tell, talk,
+"They say that they see and what they smell are pure": "They say, tell, talk,
 explain, speak to see pure, clean, all pure; detach, liberate, disconnect; they
 also say, tell, talk, explain, speak, say, speak, say, speak, say, speak. They
 say that there is pure, clean, all pure; detachments, liberation, disengagement;
 they say, tell, talk, explain, say to see and smell are pure, clean, all pure;
-detachate, liberate, from all over.” It is pure for them to see and smell.
+detachate, liberate, from all over." It is pure for them to see and smell.
 
-“They also say that the abstraction and forbidden are pure”: “They say, tell,
+"They also say that the abstraction and forbidden are pure": "They say, tell,
 talk, explain, speak, speak, speak, speak, speak, speak, speak, speak, speak,
 speak, speak, speak, speak, speak, speak, and speak. To forbidden have pure,
 clean, all pure; detach, liberate, disengage; they say, tell, talk, explain, say
-to quit and forbidden are pure, clean, all pure; detach, release, all out.” Say
+to quit and forbidden are pure, clean, all pure; detach, release, all out." Say
 to them that there is pure abstination and forbidden.
 
-“Say all kinds of purity”: “They say, tell, talk, explain, speak with all kinds
-of Swiss phase is pure, clean, all over pure; detach, release, disengagement.”
+"Say all kinds of purity": "They say, tell, talk, explain, speak with all kinds
+of Swiss phase is pure, clean, all over pure; detach, release, disengagement."
 To say that all kinds of colors are pure.
 
-“Worldworld! Whether those who made their own doers there”: “Whether...”,
-“Questions of doubts, questions of confusion, questioning of doubts,
+"Worldworld! Whether those who made their own doers there": "Whether...",
+"Questions of doubts, questions of confusion, questioning of doubts,
 questioning, more than one question sentence, such as anti-question,
-questioning, why, Why in the end? For whether... yet. “Those” are evil.
-“Worldworld,” “This is synonyms of respect... Anli (Kana), the testimony of
-(medium), that is Worldworld.” For Worldworld! Are those... yet. “The home-made
-doers there,” “there” in their own see, their likes, their hobbies, their own
-claims. “Homemade”, discreet, discreet, guarded, protected, guarded, protected.
-“Passer”, the passer, the dweller, the man who moves, the turn, the guardian,
+questioning, why, Why in the end? For whether... yet. "Those" are evil.
+"Worldworld," "This is synonyms of respect... Anli (Kana), the testimony of
+(medium), that is Worldworld." For Worldworld! Are those... yet. "The home-made
+doers there," "there" in their own see, their likes, their hobbies, their own
+claims. "Homemade", discreet, discreet, guarded, protected, guarded, protected.
+"Passer", the passer, the dweller, the man who moves, the turn, the guardian,
 the survivor, the survivor. For Worldworld! Are those who are there homemade
 doers.
 
-“What about living through birth and aging? Dear Sir”: “Birth, aging, death they
-spend, transcend, pass, pass, overcome. “Dear Sir,” this is synonyms of love,
-respect, respect and obedience for dear gentlemen.” To survive birth and aging,
+"What about living through birth and aging? Dear Sir": "Birth, aging, death they
+spend, transcend, pass, pass, overcome. "Dear Sir," this is synonyms of love,
+respect, respect and obedience for dear gentlemen." To survive birth and aging,
 dear sir!
 
-“Worldly I ask you, tell me this”: 'I ask thee, I ask thee; I beg thee; I beg
+"Worldly I ask you, tell me this": 'I ask thee, I ask thee; I beg thee; I beg
 thee; I ask thee [; You make me clear]; 'Tell me for me. '
-“Worldworld”...Anatachi (Kana), who testifies, is “Worldworld”. “Please tell me
-this,” please say, please explain, please tell you, please tell, please build,
-please uncover, please explain, please explain, please explain, please explain.”
+"Worldworld"...Anatachi (Kana), who testifies, is "Worldworld". "Please tell me
+this," please say, please explain, please tell you, please tell, please build,
+please uncover, please explain, please explain, please explain, please explain."
 For Worldhotel I ask you, please tell me this.
 
 Because then, the Brahman said:
 
-“[His Holiness like this:] Any of these Salmon and Brahmen, they say that they
+"[His Holiness like this:] Any of these Salmon and Brahmen, they say that they
 are pure in their sight and what they smell,
 
 It is also said that there is purity in terms of restraint and prohibition,
@@ -175,9 +175,9 @@ saying that all kinds of
 
 Worldworld! Are those homemade doers out there, who spend birth and aging?
 
-Dear sir! Worldworld, I ask you, Tell me this.”
+Dear sir! Worldworld, I ask you, Tell me this."
 
-49. [Worldworld: “Nanda!”] And whosoever these Salmon, and Brahmen, they say
+49. [Worldworld: "Nanda!"] And whosoever these Salmon, and Brahmen, they say
     that they are pure in seeing and what they smell,
 
 It is also said that there is purity in terms of restraint and prohibition,
@@ -186,59 +186,59 @@ saying that all kinds of
 Even those who made themselves there, I said they did not survive birth and
 aging.
 
-“All these salmons, and Brahmen”: “Whosoever, all completely, in every aspect,
-without any surplus, the whole land, this is the word of all, for “whatsoever.”
-“Shamon”, anyone who walks into the march from outside here, enters the parade.
-“Brahmen,” anyone who calls a friend to others. For whosoever these Salmon,
+"All these salmons, and Brahmen": "Whosoever, all completely, in every aspect,
+without any surplus, the whole land, this is the word of all, for "whatsoever."
+"Shamon", anyone who walks into the march from outside here, enters the parade.
+"Brahmen," anyone who calls a friend to others. For whosoever these Salmon,
 Brahmen.
 
-“[Worldworld: “Nanda!”] : “Nanda,” Worldman named the Brahman by name.
-“Worldworld,” this is synonymous with respect... Anli (Kana), who testifies
-(cum), that is, “Worldworld.” For [Worldhotel: “Nanda!”].
+"[Worldworld: "Nanda!"] : "Nanda," Worldman named the Brahman by name.
+"Worldworld," this is synonymous with respect... Anli (Kana), who testifies
+(cum), that is, "Worldworld." For [Worldhotel: "Nanda!"].
 
-“They say that they see and what they smell are pure”: “They say, tell, talk,
+"They say that they see and what they smell are pure": "They say, tell, talk,
 explain, say to see that there is pure, clean, all pure; detach, liberate,
 disengage... (middle) they say, tell, talk, talk, talk, Explanation, words to
-see and smell are pure, clean, all pure; detach, release, disconnect.” It is
+see and smell are pure, clean, all pure; detach, release, disconnect." It is
 pure for them to see and smell.
 
-“They say that the abstraction and prohibition are pure”: “They say, tell, talk,
+"They say that the abstraction and prohibition are pure": "They say, tell, talk,
 explain, say, speak, say, say, say, quanting and forbidden. Pure, clean, purity;
-disengagement, relief, disengagement.” Say to them that there is pure
+disengagement, relief, disengagement." Say to them that there is pure
 abstination and forbidden.
 
-“Say all kinds of purity”: “They say, tell, talk, explain, speak with all kinds
-of Swiss phase is pure, clean, all over pure; detach, release, disengagement.”
+"Say all kinds of purity": "They say, tell, talk, explain, speak with all kinds
+of Swiss phase is pure, clean, all over pure; detach, release, disengagement."
 To say that all kinds of colors are pure.
 
-“Even those who make themselves there”: “Even if”, the continuation of the
+"Even those who make themselves there": "Even if", the continuation of the
 sentence; the link of the sentence; the success of the sentence; the combination
 of words; the connection of words; this is the second sentence, it is' even
-'even'. “Those” are evil. “There” in your own see, your liking, their hobbies,
-their own claims. “Homemade”, discreet, discreet, guarded, protected, guarded,
-protected. “Passer”, the passer, the dweller, the man who moves, the turn, the
+'even'. "Those" are evil. "There" in your own see, your liking, their hobbies,
+their own claims. "Homemade", discreet, discreet, guarded, protected, guarded,
+protected. "Passer", the passer, the dweller, the man who moves, the turn, the
 guardian, the survivor, the survivor. For even those who are there homemade
 drikers.
 
-“I said they did not survive birth and aging”: “Birth, aging, death, they did
+"I said they did not survive birth and aging": "Birth, aging, death, they did
 not pass, did not pass, did not pass, did not pass, not overcome, born, old,
 death is not left, not left, not crossed, not crossed , not crossed, not
 overcome, they turn in birth, aging, death, they turn back in the round circuit,
 accompanied by birth, followed by old, conquered by illness, tortured by death,
-no shelter, no refuge, No return, no return.” I said, I explain, I teach, I
-tell, I build, I uncover, I interpret, I clarify, I explain.” Say for me that
+no shelter, no refuge, No return, no return." I said, I explain, I teach, I
+tell, I build, I uncover, I interpret, I clarify, I explain." Say for me that
 they haven't been born, old.
 
 Because then, Worldman said:
 
-“[Worldworld: “Nanda!”] And whosoever these Salmon, and Brahmen, they say that
+"[Worldworld: "Nanda!"] And whosoever these Salmon, and Brahmen, they say that
 they are pure in seeing and what they smell,
 
 It is also said that there is purity in terms of restraint and prohibition,
 saying that all kinds of
 
 Even those who made themselves there, I said they didn't survive birth and
-aging.”
+aging."
 
 50. [His Holiness like this:] Any of these Salmon and Brahmen, they say that
     they are pure in their sight and what they smell,
@@ -252,59 +252,59 @@ and in the world of men,
 Dear sir! Living through birth and aging? Worldworld, I ask you, please tell me
 this.
 
-“All these salmons, and Brahmen”: “Whosoever, all completely, in every aspect,
-without any surplus, the whole land, this is the word of all, for “whatsoever.”
-“Salmon”, where anything from hereOutside into the parade, enter the parade.
-“Brahmen,” anyone who calls a friend to others. For whosoever these Salmon,
+"All these salmons, and Brahmen": "Whosoever, all completely, in every aspect,
+without any surplus, the whole land, this is the word of all, for "whatsoever."
+"Salmon", where anything from hereOutside into the parade, enter the parade.
+"Brahmen," anyone who calls a friend to others. For whosoever these Salmon,
 Brahmen.
 
-“[His Holiness like this]”: “Like this, the continuation of the sentence...
-(medium) “His Holiness”, [this is] the word of love... (medium), the name of the
-Brahman... ” For [His Holiness like this].
+"[His Holiness like this]": "Like this, the continuation of the sentence...
+(medium) "His Holiness", [this is] the word of love... (medium), the name of the
+Brahman... " For [His Holiness like this].
 
-“They say that they see and what they smell are pure”: “They say, tell, talk,
+"They say that they see and what they smell are pure": "They say, tell, talk,
 explain, say to see that there is pure, clean, all pure; detach, liberate,
 disengage... (middle) they say, tell, talk, talk, talk, Explanation, words to
-see and smell are pure, clean, all pure; detach, release, disconnect.” It is
+see and smell are pure, clean, all pure; detach, release, disconnect." It is
 pure for them to see and smell.
 
-“They say that the abstraction and prohibition are pure”: “They say, tell, talk,
+"They say that the abstraction and prohibition are pure": "They say, tell, talk,
 explain, say, speak, say, say, say, quanting and forbidden. Pure, clean, purity;
-disengagement, relief, disengagement.” Say to them that there is pure
+disengagement, relief, disengagement." Say to them that there is pure
 abstination and forbidden.
 
-“Say all kinds of purity”: “They say, tell, talk, explain, speak with all kinds
-of Swiss phase is pure, clean, all over pure; detach, release, disengagement.”
+"Say all kinds of purity": "They say, tell, talk, explain, speak with all kinds
+of Swiss phase is pure, clean, all over pure; detach, release, disengagement."
 To say that all kinds of colors are pure.
 
-“Muni! If you say they haven't been through the waterfall”: “If they are evil.
-“Muni”, Munna is known as Wisdom... (in the middle) after he was a muni after
-dyed net. “You say not to pass the waterfall,” the torrents of desire, some of
+"Muni! If you say they haven't been through the waterfall": "If they are evil.
+"Muni", Munna is known as Wisdom... (in the middle) after he was a muni after
+dyed net. "You say not to pass the waterfall," the torrents of desire, some of
 them, the torrents seen, unclear torrents are not passed, not crossed, not
 overtaken, not overcome, they turn back in birth, aging, death, they are in
 Revolving on the circuit, accompanied by birth, followed by the old, conquered
 by illness, was tortured by death, no shelter, no refuge, no return, no return.
-“You say, “You say, you explain, you teach, you tell, you build, you uncover,
-you interpret, you explain, you explain.” For Muni! If you say they haven't
+"You say, "You say, you explain, you teach, you tell, you build, you uncover,
+you interpret, you explain, you explain." For Muni! If you say they haven't
 spent the waterfall.
 
-“Then whoever is in heaven, and in the world of men, through birth and aging,
-dear sir”: “And who is born in the world of heaven and demon, and in the world
+"Then whoever is in heaven, and in the world of men, through birth and aging,
+dear sir": "And who is born in the world of heaven and demon, and in the world
 of God, including Salmon, Brahmen, Heaven, and in the generations of men, Aging,
-death he passes, transcends, passes, crosses, overcame. “Dear Sir,” this is
-synonyms of love, respect, respect and obedience for dear gentlemen.” For such
+death he passes, transcends, passes, crosses, overcame. "Dear Sir," this is
+synonyms of love, respect, respect and obedience for dear gentlemen." For such
 words who spend birth and aging in heaven, in the world of men, dear sir!
 
-“Worldly I ask you, tell me this”: 'I ask thee, I ask thee; I beg thee; I ask
-thee; I ask thee; thou shalt make me clear [...]. “Worldworld”, synonyms of
-respect... Anli (Kana), the testimony of “Worldworld”. “Please tell me this,”
+"Worldly I ask you, tell me this": 'I ask thee, I ask thee; I beg thee; I ask
+thee; I ask thee; thou shalt make me clear [...]. "Worldworld", synonyms of
+respect... Anli (Kana), the testimony of "Worldworld". "Please tell me this,"
 please say, please explain, please tell you, please tell, please build, please
-uncover, please explain, please explain, please explain, please explain.” For
+uncover, please explain, please explain, please explain, please explain." For
 Worldhotel I ask you, please tell me this.
 
 Because then, the Brahman said:
 
-“[His Holiness like this:] Any of these Salmon and Brahmen, they say that they
+"[His Holiness like this:] Any of these Salmon and Brahmen, they say that they
 are pure in their sight and what they smell,
 
 It is also said that there is purity in terms of restraint and prohibition,
@@ -313,47 +313,47 @@ saying that all kinds of
 Muni! If you say that they have not spent the waterfall, then who is in heaven
 and in the world of men,
 
-Dear sir! Living through birth and aging? Worldworld, I ask you, Tell me this.”
+Dear sir! Living through birth and aging? Worldworld, I ask you, Tell me this."
 
-51. [Worldworld: “Nanda!”] I don't say, “All Salmon, Brahmen, are covered by
-    birth and aging.”
+51. [Worldworld: "Nanda!"] I don't say, "All Salmon, Brahmen, are covered by
+    birth and aging."
 
 Whosoever is seen or heard here, or even after all the forbidden and forbidden
 have been discontinued,
 
 All kinds are also cut off after all, I know that after thirsty love without
-troubles, I said, “Those people do survive the storm.”
+troubles, I said, "Those people do survive the storm."
 
-“[Worldworld: “Nanda!”] I don't say, “All Salmon, Brahmen, are covered by birth
-and aging”: “Nanda! I don't say, “All Salmon, Brahmen, are obstructed by birth,
+"[Worldworld: "Nanda!"] I don't say, "All Salmon, Brahmen, are covered by birth
+and aging": "Nanda! I don't say, "All Salmon, Brahmen, are obstructed by birth,
 aging obstructed (blocked), covered, closed, closed (covered), covered, covered,
-covered, “I explain, I teach, I teach, I build, I build. Uncover, I parse, I
-clarify, I say, “There are those Salmon, Brahmen, for whom birth and aging death
+covered, "I explain, I teach, I teach, I build, I build. Uncover, I parse, I
+clarify, I say, "There are those Salmon, Brahmen, for whom birth and aging death
 have been cut off, the roots have been cut off, like a rooted palm tree, become
-inhabited, for the future. Thing.” For [Worldhotel: “Nanda!”] I don't say, “All
-Salmon, Brahmen, are covered by birth and aging.”
+inhabited, for the future. Thing." For [Worldhotel: "Nanda!"] I don't say, "All
+Salmon, Brahmen, are covered by birth and aging."
 
-“After all that has been seen or heard here, or even forbidden, has been
-discarded”: “After all that has been seen and discarded, after forsakening,
+"After all that has been seen or heard here, or even forbidden, has been
+discarded": "After all that has been seen and discarded, after forsakening,
 after abandonment, after expulsions, ends, and makes it non-existent;Whosoever
 is heard of pure disconnection... (middle) after all the feeling of pure
 parse... after everything is seen and heard of pure disconnection... after all
 the quantum is cut off... after all forbidden pure parse... whatsoever after all
 forbidden pure parse... After all abstentions and forbidden purities are cut
 off, after abandonment, abandonment, deportation, after the end, and make them
-to absent.” For whomever is seen or heard here, or even forbidden, have been
+to absent." For whomever is seen or heard here, or even forbidden, have been
 discontinued.
 
-“All kinds of shapes are also cut off”: “With all kinds of Swiss phase has pure,
+"All kinds of shapes are also cut off": "With all kinds of Swiss phase has pure,
 clean, all pure; detachment, release, after disengagement, discard, after
 abandonment, after abandonment, after removal, after the end, make it to Does
-not exist after.” For all kinds of colors are also cut off.
+not exist after." For all kinds of colors are also cut off.
 
-“Knowing the trouble-free people after thirsty love, I say, 'those people do
-live through the rim. '” “The thirst love of the color of the thirst, the thirst
+"Knowing the trouble-free people after thirsty love, I say, 'those people do
+live through the rim. '" "The thirst love of the color of the thirst, the thirst
 of the voice, the thirst of the smell, the thirst love of taste, the thirst of
-the law. “Known after thirst love”, after three kinds of known thirst love:
-known, measured, disconnected. What is known? “Knowing thirst love: this is the
+the law. "Known after thirst love", after three kinds of known thirst love:
+known, measured, disconnected. What is known? "Knowing thirst love: this is the
 thirst love of color; this is the thirst love of the voice, this is the thirst
 love of the smell, this is the thirst love of taste, this is the thirst love of
 the law. He knew and saw it, and it was known.
@@ -363,35 +363,35 @@ makes the measure of impermanent, bitter, sick... (medium) He makes it a measure
 away, and this is a measure of all known.
 
 What is disconnection? By this measure, thirst loved him to dispel, dispel, and
-end, and make it to absent. This is said by the Worldmen, “The And whosoever is
+end, and make it to absent. This is said by the Worldmen, "The And whosoever is
 about the desires and greed of thirst love shall be cut off, so that the thirst
 love shall be cut off, and the root shall be cut off, like a palm tree without
-roots, for the future [SN.22.25]. This is cut off all over. “Known after thirsty
-love”, after all three known thirsty love. “No annoyance”, there are four kinds
+roots, for the future [SN.22.25]. This is cut off all over. "Known after thirsty
+love", after all three known thirsty love. "No annoyance", there are four kinds
 of troubles: the troubles of desire, some troubles, the troubles of seeing, the
 unclear troubles. For them, these troubles have been cut off, the roots have
 been cut off, like a rooted palm tree, become inhabited for the future, they are
 called no worries, Arrohan, the troubles have been exhausted, for all know that
 thirsty love After the trouble-free person.
 
-“I say, “Those who do live through the storm”: I say, I explain, I teach, I
+"I say, "Those who do live through the storm": I say, I explain, I teach, I
 tell, I build, I unveil, I interpret, I interpret, I explain, I explain, I say,
-“The violence they want The flow has passed; some of the riots have passed; the
+"The violence they want The flow has passed; some of the riots have passed; the
 torrents of see have passed; the unclear rim has passed; all the circuits have
-passed, have come out, have crossed, crossed, crossed, overcome.” To know the
-trouble-free people after thirsty love, I say, “Those people do survive the
-storm.”
+passed, have come out, have crossed, crossed, crossed, overcome." To know the
+trouble-free people after thirsty love, I say, "Those people do survive the
+storm."
 
 Because then, Worldman said:
 
-“[Worldworld: “Nanda!”] I don't say, “All Salmon, Brahmen, are covered by birth
-and aging.”
+"[Worldworld: "Nanda!"] I don't say, "All Salmon, Brahmen, are covered by birth
+and aging."
 
 Whosoever is seen or heard here, or even after all the forbidden and forbidden
 have been discontinued,
 
-I said, “Those who do not have trouble after thirsty love,” I said, “Those
-people do survive the storm.”
+I said, "Those who do not have trouble after thirsty love," I said, "Those
+people do survive the storm."
 
 52. I rejoice in the words of Daisen, which speaks well: Qiao Tamo is a man who
     has no authority,
@@ -400,45 +400,45 @@ Whosoever is seen or heard here, or even after all the forbidden and forbidden
 have been discontinued,
 
 All kinds are also cut off, I know that after thirsty love without troubles, I
-also said, “They spend the storm.”
+also said, "They spend the storm."
 
-“I rejoice the words of Daisin”: “This, your words, your way, teaching,
-admonition, admonition. “I rejoice,” I rejoice; I rejoice; I rejoice; I want, I
-take” [, I beg], I hope, I pray, I pray. “Tai Sin”, why is Worldplace Tai Sin?
-“Seeker, Seeker, Seeker, Seeker” is Daisin... Where is the cow king among the
-people?” For Tai Sin. I rejoice the words of Daisen.
+"I rejoice the words of Daisin": "This, your words, your way, teaching,
+admonition, admonition. "I rejoice," I rejoice; I rejoice; I rejoice; I want, I
+take" [, I beg], I hope, I pray, I pray. "Tai Sin", why is Worldplace Tai Sin?
+"Seeker, Seeker, Seeker, Seeker" is Daisin... Where is the cow king among the
+people?" For Tai Sin. I rejoice the words of Daisen.
 
-“The Good Testier: Jo Tamo is the Unfounded”: ““The good to tell, the good to
+"The Good Testier: Jo Tamo is the Unfounded": ""The good to tell, the good to
 tell, the good to preach, the good teaching, the good to know, the good built,
 the good unveiled, the good interpreting, the good interpreting, good
-Explanation, good explanations. “Jo Tamo is the unfit”, according to what is
+Explanation, good explanations. "Jo Tamo is the unfit", according to what is
 known as the pollution and the creation of the creations. According to the
 break, the silence according to the death, according to the conception,
 according to the stop, immortality, Nibbana. To be told for good: Jo Tamo is the
 unbearable.
 
-“Whosoever has seen or heard here, or even forbidden has been discarded”: “After
+"Whosoever has seen or heard here, or even forbidden has been discarded": "After
 all that has been seen and discarded, after forsakening, after abandonment,
 after deportation, ending, and making it to abstain; all After the heard of pure
 disconnection... (medium) where everything felt pure after disconnection...
 after everything seen and heard of pure disconnection...... after all forbidden
 pure disconnection... after all forbidden pure disconnection... after all
 abstentions and forbidden pure discarded, forsaken, after abandonment, after
-deportation, after ending, and making them to absent.” For whomever is seen or
+deportation, after ending, and making them to absent." For whomever is seen or
 heard here, or even forbidden, have been discontinued.
 
-“All kinds of shapes are also cut off”: “With all kinds of Swiss phase has pure,
+"All kinds of shapes are also cut off": "With all kinds of Swiss phase has pure,
 clean, all pure; detachment, release, after disengagement, discard, after
 abandonment, after abandonment, after removal, after the end, make it to Does
-not exist after.” For all kinds of colors are also cut off.
+not exist after." For all kinds of colors are also cut off.
 
-“Knowing the untroubled people after thirsty love, I also say, “They spend the
-blast”: “thirsty love” for the color of thirst love, the voice of thirst love,
-the smell of thirst love, the thirst of taste, the thirst of the law. “Known
-after thirst love”, after three known thirst love: known, measured,
-disconnected. What is known? “Knowing thirst love: this is the thirst love of
+"Knowing the untroubled people after thirsty love, I also say, "They spend the
+blast": "thirsty love" for the color of thirst love, the voice of thirst love,
+the smell of thirst love, the thirst of taste, the thirst of the law. "Known
+after thirst love", after three known thirst love: known, measured,
+disconnected. What is known? "Knowing thirst love: this is the thirst love of
 color; this is the thirst love of the voice, this is the thirst love of the
-smell, this is the thirst love of taste; this is the thirst love of the law.” He
+smell, this is the thirst love of taste; this is the thirst love of the law." He
 knew and saw it, and it was known.
 
 What is Measurement Known? For such knowledge, the thirst of love for him is
@@ -453,22 +453,22 @@ fun, overkill, too sick, out, this is a measure of all known.
 What is disconnection? And after this measure, thirst loved him to be cut off,
 dispel, and put an end to it, and that it came to nonexistent.
 
-“Known after thirsty love”, after the three known thirst love. “No annoyance”,
+"Known after thirsty love", after the three known thirst love. "No annoyance",
 there are four kinds of troubles: the troubles of desire, some troubles, see
 troubles, unclear troubles. For them, these troubles have been cut off, the
 roots have been cut off, like a rooted palm tree, become inhabited for the
 future, they are called no worries, Arrohan, the troubles have been exhausted,
-for all know that thirsty love After the trouble-free person. “Knowing that
+for all know that thirsty love After the trouble-free person. "Knowing that
 those who have no worries after their thirst, I also say, 'They have passed
-through the blast, '” I also say, 'The riot of their desire has passed; some of
+through the blast, '" I also say, 'The riot of their desire has passed; some of
 them have passed; and the riot of seeing has passed; The riot of unknown has
 passed; all the circuits have passed, come out, have crossed, crossed, crossed,
-and overcome.” To know the worry-free people after thirsty love, I also say,
-“They survive the storm.”
+and overcome." To know the worry-free people after thirsty love, I also say,
+"They survive the storm."
 
 Because then, the Brahman said:
 
-“I rejoice in the words of Daisin, which is telling: Joe Tamo is the unfit, and
+"I rejoice in the words of Daisin, which is telling: Joe Tamo is the unfit, and
 the statement asked by Brahman of the intua student seventh [completed].
 
 

@@ -1,7 +1,7 @@
 15. The explanation asked by the student Brahmin of Mo E Yihua
 
 85. [Venerable Moe Yixie like this:] I asked Sakyamuni twice, but those with
-    eyes didn’t answer for me.
+    eyes didn't answer for me.
 
 And until the third time, Tianxian, "Answer" was not heard by me.
 
@@ -36,7 +36,7 @@ are also those who have eyes, and all eyes are also those who have eyes.
 
 How does the Blessed One regard the naked eye as having eyes? There are five
 colors in the eyes of the Lord: cyan, yellow, red, black, and white. [World
-Zun’s eye hairs] The eye hairs are blue, extremely blue, correct, beautiful, and
+Zun's eye hairs] The eye hairs are blue, extremely blue, correct, beautiful, and
 equivalent to flax (Sri Lanka version), and the others are yellow, extremely
 yellow, golden, and correct. Beautiful, beautiful, equal to the flower of the
 winged tree. The two eyes of the Blessed One are red, extremely red, straight,
@@ -105,8 +105,8 @@ interest , Everything revolves in the Buddha's wisdom.
 
 All body kamma follows the wisdom of the Buddha and the Blessed One; all
 language kamma follows the wisdom of the Buddha and the Blessed One; all mental
-kamma and the Blessed One’s wisdom; the wisdom of the Buddha and the Blessed One
-is barrier-free; the wisdom of the Buddha and the Blessed One’s wisdom on the
+kamma and the Blessed One's wisdom; the wisdom of the Buddha and the Blessed One
+is barrier-free; the wisdom of the Buddha and the Blessed One's wisdom on the
 future It is barrier-free; about the current wisdom is barrier-free, all that
 should be guided to infer is that of wisdom; all that of wisdom is to be guided
 to infer, and that should be guided to infer The ultimate is wisdom; the
@@ -124,7 +124,7 @@ transcendence has no way to be led inferential. These laws live in mutual
 restriction.
 
 The wisdom of the Buddha and the Blessed One is transferred in all the Dhamma,
-all the Dhamma is the Buddha, the Blessed One’s turn to belong, the hope is to
+all the Dhamma is the Buddha, the Blessed One's turn to belong, the hope is to
 belong, the intention is to belong, the mind is to arise, the wisdom of the
 Buddha and the Blessed One is transferred to all living beings, the Blessed One
 Know the intentions of all living beings, know the potential tendency of
@@ -149,10 +149,10 @@ dissidents, sharp breakers who want to do evil views with a wise attitude, they
 are ready Later, I saw the Tathagata and asked about the hidden and secret
 [yili]. Those questions were discussed and answered by the Blessed One with
 reasons, but they abandoned those nearby and became the [disciples] of the
-Blessed One. At that time, the Blessed One was there, "Yihui" 』Hui Yao. In this
+Blessed One. At that time, the Blessed One was there, "Yihui" "Hui Yao. In this
 way, the Blessed One regards the insight as an eye.
 
-The Buddha takes Buddha’s eyes as the one who has eyes like this? When the
+The Buddha takes Buddha's eyes as the one who has eyes like this? When the
 Blessed One observes the world with the eyes of the Buddha, he sees those with
 less dust and more dust; those with roots and blunt roots; those with good deeds
 and evil deeds; those who are easy to teach and difficult to teach; some who
@@ -193,7 +193,7 @@ please get up! hero! Victor on the battlefield! Caravan leaders, debt-free
 people walk in the world,
 
 World Lord! Please teach Dhamma! There will be (will) knowers. [DN.14, paragraph
-69]』
+69]"
 
 The Buddha takes the eyes of the Buddha as an eye.
 
@@ -201,11 +201,11 @@ How does the Blessed One regard all eyes as having eyes? All eyes are called
 state wisdom of all knowing. The Blessed One arrives (has), fully arrives (has),
 enters, fully enters, has enough, has all the state wisdom of knowing.
 
-『For him, there is nothing unseen here (in this world), there are still
+"For him, there is nothing unseen here (in this world), there are still
 unknowable, unknowable things,
 
 He proves that everything that exists should be led to infer, because the
-Tathagata is like that for all eyes. [Ps.1, paragraph 121]』
+Tathagata is like that for all eyes. [Ps.1, paragraph 121]"
 
 The Blessed One regards all eyes as having eyes like this. "For those who have
 eyes, they didn't answer for me.
@@ -220,10 +220,10 @@ immortal. ." is a god.
 
 Or, "The Lord is a monk. "" is also an immortal; "the seeker, pursuer, and
 seeker of the Great Ring Aggregate" is also an immortal... (slightly omitted);
-Dading Yun...(slightly omitted) Dahui Yun...great Liberation Aggregate...『Great
-Liberation Wisdom Seekers, seekers, and seekers who see abundance” are also
-immortals; “seekers, seekers, and seekers who gather in the dark” are also
-immortals; “seekers and seekers of destruction of the Great Upside Down” "The
+Dading Yun...(slightly omitted) Dahui Yun...great Liberation Aggregate..."Great
+Liberation Wisdom Seekers, seekers, and seekers who see abundance" are also
+immortals; "seekers, seekers, and seekers who gather in the dark" are also
+immortals; "seekers and seekers of destruction of the Great Upside Down" "The
 Seeker" is also an immortal; the thirsty love of the drawing of the arrow...the
 unraveling of the accumulation of the sight...the collection of the big slow
 flag...the calming of the great work...the increase of the great torrent...
@@ -234,19 +234,19 @@ Zhengqin... The big gods...the big roots...the great powers...the great
 enlightenments...the big eight sacred paths...the seekers, pursuers, and seekers
 of the immortal Nibbana of the great supreme interests" are also immortals; All
 beings seek, pursue, and search: Where is the Buddha? Where is the Lord? Where
-is the god among the gods? Where is the king of cows among people? 』It is also
+is the god among the gods? Where is the king of cows among people? "It is also
 a fairy. "So until the third time, Tianxian, "Answer" was not heard by me.
 
 Because of that, the brahmin said:
 
 "[Venerable Venerable Mo 闍闍 like this:] I inquired about Sakyamuni twice, but
-those with eyes didn’t answer for me.
+those with eyes didn't answer for me.
 
 And it was not until the third time that the "solution" was heard by me. "
 
 86. This world, other worlds, the Brahman world, including the gods,
 
-I don’t know what you see: Well-known Joe Damo.
+I don't know what you see: Well-known Joe Damo.
 
 "This world, other worlds": ""This world" is the human world. "Other worlds" are
 all worlds except the human world." It is this world and other worlds.
@@ -256,10 +256,10 @@ demons, and Brahman; including the generations of Shamon, Brahman, heaven, and
 man." It is the Brahma world, including the gods.
 
 "I do not know what you see": "The world does not know what you see, like,
-hobbies, opinions, intentions, intentions: "This is thisThose who don’t see it,
+hobbies, opinions, intentions, intentions: "This is thisThose who don't see it,
 those who like it so much, those who love it so much, those who advocate this,
-those who intend to do so, those who intend to do so," don’t know, don’t see,
-don’t see, don’t get, can’t find, don’t get. "For not knowing what you saw.
+those who intend to do so, those who intend to do so," don't know, don't see,
+don't see, don't get, can't find, don't get. "For not knowing what you saw.
 
 "Famous Qiaotam": ""The Lord is the gainer of fame." For the famous person, or,
 "The Lord is the one who is respected, respected, respected, respected, clothes,
@@ -270,11 +270,11 @@ Because of that, the brahmin said:
 
 "This world, other worlds, the Brahman world, including the gods,
 
-I don’t know what you see: Well-known Joe Damo. "
+I don't know what you see: Well-known Joe Damo. "
 
 87. Such a remarkable seer comes with questions in need,
 
-How to observe the world, the dead king can’t see?
+How to observe the world, the dead king can't see?
 
 "Such an excellent seer": "Such an excellent seer, the first seer, the most
 victorious seer, the extraordinary seer, the first seer, the highest seer, the
@@ -294,7 +294,7 @@ Because of that, the brahmin said:
 
 "Such an outstanding seer comes with questions in need,
 
-How to observe the world, the dead king can’t see? "
+How to observe the world, the dead king can't see? "
 
 88. Please observe that the world is empty: Mo Eyi! Always thoughtfully,
 
@@ -326,7 +326,7 @@ cannot be obtained, the freedom in action cannot be obtained, and the freedom in
 consciousness cannot be obtained. This was said by the World-Honored One
 [SN.22.59]: "Bhikkhus! Form is selfless. Bhikkhus! Because if this form is me,
 this form will not cause disease, and will also be obtained in form: "My form is
-like this ; Don’t be like this in my form." But, bhikkhus! Because form is
+like this ; Don't be like this in my form." But, bhikkhus! Because form is
 selfless, therefore, form causes disease and cannot be obtained in form: "My
 form should be like this; my form should not be like this."
 
@@ -335,29 +335,29 @@ this feeling will not cause disease, and it will also be gained in the feeling:
 "My feeling should be like this; my feeling should not be like this. "But,
 monks! Because feeling is an egolessness, so feeling leads to illness, and you
 cannot get it: "My feeling should be like this; my feeling should not be like
-this. 』
+this. "
 
 Bhikkhus! I think there is no self. Bhikkhus! Because, if this thought is me,
 this thought will not cause disease, and it will also be obtained by receiving:
 "I want this; my want is not like this. "But, monks! Because thinking is
 no-self, so if you want to cause illness, you can't get it: "I want it like
-this; I don't want it like this. 』
+this; I don't want it like this. "
 
 Bhikkhus! There is no self. Bhikkhus! Because if this line is me, this line will
 not cause disease, and you will also get in the line: "My line should be like
 this; my line should not be like this. "But, monks! Because the action is
 non-self, therefore, the action causes disease, and it is not obtained in the
-action:"My deeds should be like this; my deeds should not be like this. 』
+action:"My deeds should be like this; my deeds should not be like this. "
 
 Bhikkhus! Consciousness is selfless. Bhikkhus! Because, if this consciousness is
 me, this consciousness will not cause disease, and will be obtained in
 consciousness: "My consciousness should be like this; my consciousness should
 not be like this. "But, monks! Because consciousness is non-self, consciousness
 causes illness and cannot be obtained in consciousness: "My consciousness should
-be like this; my consciousness should not be like this. 』」
+be like this; my consciousness should not be like this. "'
 
 This was said by the Blessed One [SN.12.37]: "Bhikkhus! This body is not yours,
-nor other people’s, bhikkhus! This is old kamma, which should be seen as
+nor other people's, bhikkhus! This is old kamma, which should be seen as
 created, created by thought, and can be felt. There, bhikkhus! There are the
 holy disciples who have heard of the reason-based origination: "Like this, when
 this exists, there is that; when this arises, that arises; when this does not
@@ -436,7 +436,7 @@ promising. Observe that the world is empty for ten reasons.
 Or, observe that the world is empty for twelve reasons: Form is not a living
 being, not a life, not a human being, not a student Brahman, not a woman, not a
 man, not the real self, not what we are, not me, not mine, not anything Human
-beings are not anyone’s; to feel... (slightly) thinking... action...
+beings are not anyone's; to feel... (slightly) thinking... action...
 Consciousness is not a living being, not a life, not a human being, not a
 student Brahman, not a woman, not a man, not the true self, not what we are, not
 me, It's not mine, it's not anyone's, it's not anyone's, so observing the world
@@ -448,7 +448,7 @@ happiness for you. And, bhikkhus! What is not yours Bhikkhus! Whatever is not
 yours, you must give up! If you give up it, it will have long-term benefits and
 happiness for you; Bhikkhus! Give up what is not yours, you must give up! If you
 give up it, you must give up There is long-lasting benefit and happiness for
-you; monks! If you don’t think about it, you have to give up! If you give up it,
+you; monks! If you don't think about it, you have to give up! If you give up it,
 there will be long-lasting benefits and happiness for you; Bhikkhus! If you do
 not, you have to give up If you cut it off, there will be long-lasting benefits
 and happiness for you; monks! Those who know what is not you, you must let go!
@@ -528,7 +528,7 @@ the real", all come to the reach of the sixty-two evil views, this is what I
 see. "Pull me away and see after": "I will see after removal, after eradication,
 after removal, after removal, after removal, after complete removal, after
 abandoning, after expelling, after finishing, making it go to nowhere
-Existence.” To get rid of me, follow up.
+Existence." To get rid of me, follow up.
 
 "In this way, you can become a dead person": "In this way, you can save yourself
 from death, you can save yourself from aging, you can save yourself from death,

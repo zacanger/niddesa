@@ -47,7 +47,7 @@ and those who are wise,
 After        has overcome all the dangers, the person with thoughts should walk
 with him happily. "
 
-132. If you don’t get a wise companion: those who walk with you, those who live
+132. If you don't get a wise companion: those who walk with you, those who live
      with kindness, those who are wise,
 
 Like a king abandoning national territory, he should walk alone like a rhino
@@ -81,7 +81,7 @@ abandon the national territory, it should be like a rhino horn Go alone.
 
 Because of that, the single enlightened person said:
 
-"If you don’t get a wise companion: those who walk with you, those who live with
+"If you don't get a wise companion: those who walk with you, those who live with
 kindness, those who are wise,
 
 Like a king abandoning national territory, he should walk alone like a rhino
@@ -131,14 +131,14 @@ don't open the river with belief, don't welcome things , Do not use back slander
 (Sri Lanka version), do not use homesteads, do not use animals, do not use
 astrology, do not [be] envoys, do not [when] send envoys, do not [when] run
 errands, do not use medical treatment[ , Not to build a new job], to give food
-and to don’t give in return, after he has properly obtained, obtained, obtained,
+and to don't give in return, after he has properly obtained, obtained, obtained,
 possessed, and received according to the law. "He uses it illegally and
 improperly to survive after obtaining, obtaining, obtaining, possessing, and
 receiving. This is called a no-fault eater.
 
 "Those who do not get these no-fault eaters": "Those who do not get these
-no-fault eaters can't get them, after they don’t get them, after they don’t get
-them, after they don’t have them, they don’t receive them," it means they don’t
+no-fault eaters can't get them, after they don't get them, after they don't get
+them, after they don't have them, they don't receive them," it means they don't
 get them. A negligent eater should walk alone like a rhino horn.
 
 Because of that, the single enlightened person said:
@@ -189,10 +189,10 @@ What is a thirsty partner? "Thirst for love", the lust for lust... (in the
 abbreviated) Dhamma's thirsty. Speaking of this thirsty lover, the partner who
 is called thirsty.
 
-『People who have thirsty love as their partner, reincarnate for a long time,
+"People who have thirsty love as their partner, reincarnate for a long time,
 
 becomes this state, other states, does not go beyond reincarnation.
-』[It.15/Sn.3.12,745 偈]
+"[It.15/Sn.3.12,745 偈]
 
 This is a thirsty partner.
 
@@ -252,9 +252,9 @@ recognized by the tongue The taste of knowing... can be touched by body
 knowledge, what is desired, cute, desirable, cute, accompanied by desire, and
 greedy, monks! These are called the five desires. Bhikkhus People! All the
 happiness and joy that arise from these five desires, monks! This is called
-lust, filthy happiness, ordinary people’s happiness, and non-sacred music. I
+lust, filthy happiness, ordinary people's happiness, and non-sacred music. I
 said: "It should not be practiced, it should not be practiced, it should not be
-more Practicing, you should be afraid of this kind of happiness.”” All the
+more Practicing, you should be afraid of this kind of happiness."" All the
 desires are indeed honey-like and pleasing. "Intention": "Fan Xin...
 (abbreviated) corresponds to that consciousness. They make the mind happy,
 praise, satisfy, and laugh." All kinds of desires are indeed honey-like and
@@ -275,7 +275,7 @@ cause, because of desire, desire is the cause.
 
 Bhikkhus! If a virtuous man rises up, works hard, and fails to get wealth, he
 will be sad, tired, weeping, pounding his chest and crying, and come to
-confusion [and say]: "My rise is empty, and my efforts are fruitless. . 』Monks!
+confusion [and say]: "My rise is empty, and my efforts are fruitless. . "Monks!
 This is called the fault of desire, the directly visible accumulation of
 suffering, desire is the cause, desire is the cause, because of desire, desire
 is the cause.
@@ -284,10 +284,10 @@ Bhikkhus! If a virtuous man gets wealth by rising up, working hard, and working
 hard, he will feel pain and worry in order to protect those wealth: "How can
 neither the king take my wealth, nor the thieves will take it, nor the fire will
 burn it out." , Will not water flow away, nor will the unlovable heirs take it
-away? 』When he guards and protects those wealth, or the king takes it, or the
+away? "When he guards and protects those wealth, or the king takes it, or the
 thieves take it, or the fire burns, or the water runs away, or the unlovable
 heir takes it away, he sad... (omitted) came to confusion [and Say]: "What I
-have no longer exists. 』Monks! This is called the fault of desire, the directly
+have no longer exists. "Monks! This is called the fault of desire, the directly
 visible accumulation of suffering, desire is the cause, desire is the cause,
 because of desire, desire is the cause.
 
@@ -441,17 +441,17 @@ in the future.
 
 Do not commit any crimes in the world, after leaving all bonds and bonds,
 
-Those who don’t stick to everything and are free, like this are truly called
+Those who don't stick to everything and are free, like this are truly called
 dragon elephants.
 
 This is the one who "does not commit crimes" as the dragon elephant.
 
 How is the single enlightened person "not going" as a dragon elephant? The One
-Enlightened One shouldn’t do what he doesn’t want to do; what he doesn’t want to
-do is not what he should do; he who doesn’t go idiotic should not do what he
-should; Go away with anger; don’t go because of ignorance; don’t go because of
-slowness; don’t go because of seeing; don’t go because of abandonment; don’t go
-because of doubt; don’t go because of potential troubles; don’t be quarreled
+Enlightened One shouldn't do what he doesn't want to do; what he doesn't want to
+do is not what he should do; he who doesn't go idiotic should not do what he
+should; Go away with anger; don't go because of ignorance; don't go because of
+slowness; don't go because of seeing; don't go because of abandonment; don't go
+because of doubt; don't go because of potential troubles; don't be quarreled
 (disharmony) The net method carries, takes away, carries, and moves. In this
 way, the single enlightened person "will not go" as a dragon elephant.
 
@@ -523,8 +523,8 @@ those who do not have difficulties, such as libido, solitary, quiet, and
 enlightenment. "This is impossible. But, Ananda! "Whoever the bhikkhu lives
 alone, away from the group, this should be expected: such a bhikkhu will be
 happy, lonely, quiet, enlightened, etc. That kind of enjoyment, those who have
-no difficulty, those who have no difficulty, and those who have no difficulty.”
-This is possible. Ananda! Indeed, “everyone who enjoys gatherings, is better
+no difficulty, those who have no difficulty, and those who have no difficulty."
+This is possible. Ananda! Indeed, "everyone who enjoys gatherings, is better
 than gatherings, likes gatherings, specializes in gatherings, and is better than
 gatherings. Bhikkhus who are pleased in the group will enter and live in a
 temporary, cola heart-free, or non-temporary, unshakable [heart-free]." This is

@@ -76,7 +76,7 @@ Rich.
 [APZ 12.6] (# apz12.6) # apz12.6 .ref .apz} "People and sages stick to what"
 What did you stick to, what did you get, "Rishi" called Rishi
 Were ordained by some sage dynasty. Animals are mystics. Jatadhara
-Ascetics. Manuja means people. “Kshatriyas are Brahmins
+Ascetics. Manuja means people. "Kshatriyas are Brahmins
 To the gods "Kshatriyas are certain Kshatriyas.
 Brahmins are those who despise others. You go to the gods
 Live organisms are twice as active. Nipples to the vocal cords
@@ -95,7 +95,7 @@ Maharaja Vratha has two great kings. For those with lunar eclipses
 The moon is double. For those who are sunburned, the sun is doubled.
 For those with sensory deprivation, the senses are twofold. For those who have Brahma Vratha
 Brahma becomes twice. God is second to those who are God-fearing. Directions
-The direction is twofold for the vultures. Does anyone accept someone’s dexterity
+The direction is twofold for the vultures. Does anyone accept someone's dexterity
 They are twos.
 
 [APZ 12.7] (# apz12.7) # apz12.7 .ref .apz} "Many Sacrifices in This World"
@@ -128,12 +128,12 @@ To decide, to make known, to grow, to ask questions, this
 Inquiry into the expression of the unseen.
 
 [APZ 12.11] (# apz12.11) {# apz12.11 .ref .apz} "Comparing what you see
-Where is the desire? ”Whether it is a feature or a knowledge from nature, look at the skin
+Where is the desire? "Whether it is a feature or a knowledge from nature, look at the skin
 Questionnaires to equate with determined pundits, this is what I saw
 Comparisons of comparison,
 
 [APZ 12.12] (# apz12.12) # apz12.12 .ref .apz} "Suspicion
-Which one? ”The original was skeptical, but wondered two ideas
+Which one? "The original was skeptical, but wondered two ideas
 Breaking the wonder of whether it bears, or does, or does not, or how
 In order to ask questions. These are the urges to quell the wonder. These quizzes
 Three. There are three other issues. Human problems are non-human problems
@@ -151,7 +151,7 @@ Inquirers, Shakras inquire, Brahmans inquire. Twice this nominee is questioned
 Problems.
 
 [APZ 12.14] (# apz12.14) # apz12.14 .ref .apz} "Creator Questions
-Who? ”The Blessed One has all the senses and all the senses
+Who? "The Blessed One has all the senses and all the senses
 Creates an image. That created image comes to the Blessed Buddha and asks questions.
 The Blessed One will solve it. These are the desires of the creators
 There are three questions.
@@ -219,7 +219,7 @@ And thus thanks and speaks to the Southerners. Stories about receiving the image
 And. Although talking about the sound benefit. Although talking about the benefits of smell. Taste
 Talking about benefits and 'talking about hope'
 (3-2) 1 (ii) should be applied.) Self-benefit to the Brahmanical God
-Talking about. Especially speaking, that is. “Blessed One, Punnaka,
+Talking about. Especially speaking, that is. "Blessed One, Punnaka,
 Sacrifices, "Donates, Teeth, Robes, Pills"
 Pirikara, Food, Beverages, Clothing, Aircraft, Perfume, Sleep, Habitat, Lamps
 Hopefully, that is.
@@ -296,7 +296,7 @@ Doesn't it mean "shock" to someone who deserves it
 That is. 'Vibration' is the vibration of desire, the vibration of vision, the dimension, the vibration
 Trauma There are no such shocks as karmic shock. Unavailable, unborn, useless
 At first it was soothing. Unworthy to be born. Wisdom burned in the fire
-That is. ‘Nowhere’ means somewhere in the psyche or external or spiritual
+That is. 'Nowhere' means somewhere in the psyche or external or spiritual
 External or means. 'In the world' means paragraph (1-1) 1 (i) in the world of hell
 Should) 'The pious immoral, the smokeless, the ragadhi, the miserable
 I would say the nation has crossed the line. Because the lust called 'Shantha' is satisfied

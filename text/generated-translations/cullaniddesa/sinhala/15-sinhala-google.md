@@ -49,7 +49,7 @@ Exists for realization. How is that? The four Satipatthnas are a combination of 
 The four main elements are the five limbs, the five senses, the five forces, the sapta bodhisattvas, the Aryans.
 The Eightfold Path is also known as the Shanti Padayo. Shantipadaya security word,
 Abhayapadaya, Achchayuthapadaya, Amrutapadaya Nibbana Padaya, say, preach,
-Please enforce. Please keep it open. Please share. ”All-seeing eyes
+Please enforce. Please keep it open. Please share. "All-seeing eyes
 True "means" all-seeing "is omniscience. Blessed Buddha
 God's eyes and birth were not born before but at the same time. Therefore
 The Buddha himself has eyes that see everything.
@@ -137,7 +137,7 @@ The greed of the nominees really goes "by all means."
 Do not leave the omnipotence of all omnipotenceWhich is not included in
 A word. This is omnipresent. Names are intangible masses. 'Images' are four
 Great demons are also sublime images. Gedha means lust. Is there any lust
-Whether it is attachment or ambition, greed or a vicious root. “Associations
+Whether it is attachment or ambition, greed or a vicious root. "Associations
 The non-manifest means "associates are four associations."
 Illusory, visually, ignorant. 'To him' means deserving
 Whether or not these associations are apparent to the weary means to Him

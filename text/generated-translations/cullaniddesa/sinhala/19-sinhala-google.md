@@ -114,7 +114,7 @@ The world is the world with God.
 
 [APZ 88.2] (# apz88.2) # apz88.2 .ref .apz} Blessed One Bhikkhu
 The Lord was informed: 'Lord, the world says the world, how much the world goes
-Is that so? ”Says Mahana, perishable, the world is perishable
+Is that so? "Says Mahana, perishable, the world is perishable
 The idea is destroyed. The image is destroyed, the retina is destroyed, the eyelids are destroyed
 If something is born due to the comfort of the eye, it will also perish. The touch is destroyed. Mind
 Will be destroyed. Dhamma is destroyed. Psychology is destroyed. Touch of mind
@@ -124,7 +124,7 @@ Or it will be destroyed. That is why Mahana is the world. "
 [APZ 88.3] (# apz88.3) {# apz88.3 .ref .apz} "sees the world as zero"
 The world looks at it in two ways. Absence as a treat or relic edit
 Visually or. However, the world is characterized by zero
-See, “Mahanai, the image is received, not as pain, not as a sign
+See, "Mahanai, the image is received, not as pain, not as a sign
 Not available. Not available as edits. Not available in the form of consciousness. This
 The Blessed One preached.
 
@@ -216,7 +216,7 @@ While the grass-like world will one day see wisdom, it is not for the faint of h
 Not for the sake of crisis elsewhere. This is how the world looks at zero.
 
 [APZ 88.12] (# apz88.12) {# apz88.12 .ref .apz} Long live Ananda Sthavirathema
-He said this to the Blessed One. “Lord, the world is zero and the world is zero
+He said this to the Blessed One. "Lord, the world is zero and the world is zero
 It is said. How can the world be called zero? "" Ananda, something
 The world is called zero because it is zero to itself or to itself.
 Ananda, what is zero to oneself or to oneself? Ananda by himself

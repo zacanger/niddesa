@@ -48,7 +48,7 @@ has no desire for him, does not live together, does not live, and does not stay
 (live all over)." It is someone who has no desire for him.
 
 "[World Zun: "Dashiya!"]": ""Dashiya", the World Zun called the Brahman by his
-name. "World Zun", this is a respectful synonym... That’s the World Honored
+name. "World Zun", this is a respectful synonym... That's the World Honored
 One." is [World Honored One: "Dushangya!"]
 
 "For him, thirsty is not found": "thirsty", the lust of color, the lust of
@@ -142,7 +142,7 @@ desire and being.
 "He is the one who is away from the desire, not the one who desires": "He is not
 the one who desires, he does not desire for all the colors, all the sounds...
 (slightly) all the smells... all the things seen, heard, perceived, and knowable
-Fahe doesn’t hope, accept, hope, hope, or pray.” Because he is the one who is
+Fahe doesn't hope, accept, hope, hope, or pray." Because he is the one who is
 away from the wish, not the one who wants it.
 
 "He is a wise man, not a wise man": ""He is a wise man", he is a wise man, a
@@ -192,7 +192,7 @@ The explanation asked by the Brahmin of the Duchiya student is ninth
 
 Summary:
 
-Those who can’t hold their cravings, have departed from cravings, have been
+Those who can't hold their cravings, have departed from cravings, have been
 puzzled are no owners, and have no attachments to desires and beings. He does
 not go further.Step relief.
 

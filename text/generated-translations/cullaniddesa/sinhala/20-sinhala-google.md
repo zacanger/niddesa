@@ -78,7 +78,7 @@ Did.
 [APZ 91.4] (# apz91.4) # apz91.4 .ref .apz} "In four directions and four directions
 Nothing you have not seen, heard, touched or known in the ups and downs
 No. There is no selfishness or altruism. Not apparent. I am
-If you know, please preach that Dhamma. ”The Dhamma is pure at the root
+If you know, please preach that Dhamma. "The Dhamma is pure at the root
 The clean end in the middle is pure meaningful, all perfect with words
 Say Nibbana and Nibbana Gamani Pratipada. Preach, exhort
 Please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please, please

@@ -34,11 +34,11 @@ KamaWhether it is there, whether there is a kama, room room room room, kama scul
 This is how to get into the room, the room is porn, the room is porn
 I saw the root of the deposition. From conception there is a caricature. A scratch
 I do not conceive. This is the cleavage room, which shall not be the Kama (tho).
-Saw. (ii) “KAMA MANSSA (Wish) is the one who likes, desires,
+Saw. (ii) "KAMA MANSSA (Wish) is the one who likes, desires,
 The galley is the clinging, which adheres to the adepts.
 KAMA likes.
 
-[APZ 1.4] (#apz1 .4) {#apz1 .4 .ref .apz} "He gets the swell treasures”
+[APZ 1.4] (#apz1 .4) {#apz1 .4 .ref .apz} "He gets the swell treasures"
 To that person, or to Brahman, or to the vician, or to the person.
 The holy man or layman, or pavedah, or God or man. It is
 By objects are called rooms. Favorite images and sounds and odors
@@ -46,49 +46,49 @@ Meroys are also touches. Samijthi is a fulfillment, flourishes, vexes
 receive. Preferable, rederessable.
 
 [APZ 1.5] (#apz1 .5) {#apz1 .5 .ref .apz} "Ref.apz
-Wei” is a monotonous saying that there is no doubt that there is any other idea
+Wei" is a monotonous saying that there is no doubt that there is any other idea
 to say. The unmistakable word. Two is the undivided word, the second undivided word, the neogus
 The word is the debugged word, this is the word in which the norm is.
 
 [APZ 1.6] (#apz1 .6) {#apz1 .6 .ref .apz} "Rules, is the properties of the treads
 Composite Composite Comfortable Smiles
 Exacertion of pleasure is a tidal sensation of an emotionalism
-It's what a spreader is”
+It's what a spreader is"
 
-[APZ 1.7] (#apz1 .7) {#apz1 .7 .ref .apz} (i) “Will fantasy be a certain thought called manas.
+[APZ 1.7] (#apz1 .7) {#apz1 .7 .ref .apz} (i) "Will fantasy be a certain thought called manas.
 Manoconsciousness relics caused by hydiana, pandiera manyana
 If, this is said to be fantasy (heart). This is the heart of the heartJoined with the rule
 Birn with Wei is born together in its application
 Join was the same. (References are interesting) is the Thutu Hearts
 Harshasith has the secret minds that Santosha minds have climbed up to the heigh
 The Greatly Hearts Molok Hearts are Molok Hearts
-Wei. Does anyone like the man who has been, and “has” come to it
+Wei. Does anyone like the man who has been, and "has" come to it
 The idea of being endowed, born (ii) man is the bad human man man, the person,
 The life is the primanic animal.
 
-[APZ 1.8] (#apz1 .8) {#apz1 .8 .ref .apz} "Does anyone like,” is something inspiration
+[APZ 1.8] (#apz1 .8) {#apz1 .8 .ref .apz} "Does anyone like," is something inspiration
 What is it, whether something is fused, something is longed for, or any image or sound, or
 An odor or or taste or touch or hope is spoken of and man
-So the bugs have done this, so that the thing is desired is to be desired.”
+So the bugs have done this, so that the thing is desired is to be desired."
 
 [Msdiv 2] (#msdiv2) {#msdiv2 .ref .msdiv} (1 - 2)
 
-[APZ 2.1] (#apz2 .1) {#apz2 .1 .ref .apz} "Swell Him Who Like Kam”
+[APZ 2.1] (#apz2 .1) {#apz2 .1 .ref .apz} "Swell Him Who Like Kam"
 Swell to him is to that man, or Brahman, or Doctor, or Holy Spirit
-or to the layman, or to the puddy, or to God or man, or to the man,” to the wills of kamah”
+or to the layman, or to the puddy, or to God or man, or to the man," to the wills of kamah"
 Kama Inspiration Facts Receiver and Desire Receiver
 He who speaks of it. or go out of caramatrum, and also bear
 Ection by hand or inhalation, or by cow, or by inhalation
 (goat) by plane or sheep, or by otu, or by mule or go'
 Walk from the room, go through the kama craving, and the parquet.
-Swell to him that makes. “If the will is the “will” to the born animal
+Swell to him that makes. "If the will is the "will" to the born animal
 It is necessary to have certain wishes for the 'Caramandiya' (KamaBind to) Kimatruzvu
 Rooms from the room to the room, from the room to the Kama Urtuwa room
 The rooms of the carcage are also the rooms of him. Wizarding
 Amin' will be snatched. WILL WILL WILL WEY.
 
-[APZ 2.2] (#apz2 .2) {#apz2 .2 .ref .apz} "animal” is (hereinafter 1, 7 (ii))
-Should be applied) "To clean the rooms.” Go to those rooms or puriators. He or that
+[APZ 2.2] (#apz2 .2) {#apz2 .2 .ref .apz} "animal" is (hereinafter 1, 7 (ii))
+Should be applied) "To clean the rooms." Go to those rooms or puriators. He or that
 The rooms are decelerated. How are those rooms deteriorating? Crops for his stay
 Kings or Moving. Thieves or abducted maths. Fire or burn. Water or float.
 Children who do not like them or bring them. Lent or loaned
@@ -103,7 +103,7 @@ Dangerness occurs. Disappears. Break.
 [APZ 2.3] (#apz2 .3) {#apz2 .3.ref .apz} "King and the burglar. Fire
 Dai, Naessii, and again leave the body with all things from death. This point is discreet
 Know eats. Unto heaven, not reproached and reproached in the same manner as in the heaven
-Coming.”
+Coming."
 
 [APZ 2.4] (#apz2 .4) {#apz2 .4 .ref .apz} "The rooms are purified, hulakin
 Scholarship is different. If you have a hullet or a vein from the apricots
@@ -122,9 +122,9 @@ who has been in a position that has undergone a certain doctrine,
 A man or a Brahman or a Doctor, or a Zeater or a Domestic
 Or a palpable or a man or a man.
 
-[APZ 3.2] (#apz3 .2) {#apz3 .2 .ref .apz} (i) “drives away rooms”
+[APZ 3.2] (#apz3 .2) {#apz3 .2 .ref .apz} (i) "drives away rooms"
 As a result, the rooms will be two part. (hereinafter 1—1 (ii) to 3 (i) final
-Apply up.) “drives away rooms” as suppressions or
+Apply up.) "drives away rooms" as suppressions or
 As a result of loss or irritations of kamahana. How to dispel the cum as suppressions
 Does it? Kamayo is parable to a bone (ii) look almely subdued
 As digests, the rooms are displeased. Caramyo meat clot resembles multiple
@@ -160,10 +160,10 @@ All things are committed by omnidirectional (as if not left)
 Loss will irritate the rooms.
 
 [APZ 3.3] (#apz3 .3) {#apz3.3 .ref .apz} "Rooms like someone's pine snake head
-The snake is said “nagaya” from “tub”. Circle Serverses
+The snake is said "nagaya" from "tub". Circle Serverses
 In this case, crawling is called Yenui Snake. Wakwa Yenui is named. belly singers
 Reptile name. The head down is called Yenui 'Pannu'. Heating is being dismantated
-'Siringsap' is called. The cyst of the bill is called "bilis”. Zine in the cave
+'Siringsap' is called. The cyst of the bill is called "bilis". Zine in the cave
 Keranui. The 'cave' is called. For him the groove is called 'sinuthu'. his
 Since the subject is frictional, the rock is poisonous. Since his tongue is two, he name Dujevha.
 The taste is inhaled by two tongue, the name of which is called 'vials'. Living in Yamseh
@@ -173,7 +173,7 @@ Cure will dispel the rooms, which abhor the foul. (HERE 3—2)
 Should be applied.)
 
 [APZ 3.4] (#apz3 .4) {#apz3 .4 .ref .apz} "In remembrance of the world if this is not the same
-Excess with.” “Hethemay” means “Hethemay”, and whoever will dispel the kama.
+Excess with." "Hethemay" means "Hethemay", and whoever will dispel the kama.
 'Visualism is a name for craving. Any, lust, tilt, any
 A neat, a certain cord, a certain nandy lust, a certain powerful lust
 There is a desire for a certain desire, a gracing, a broth (shaken) is deceived
@@ -192,7 +192,7 @@ Sitemism, powerful will, the root of foul, the cause of misery, the mara,
 mara bilya, mara subject, crazva river, crazva net, crazva chain, crazha
 Reference, Heterogeneous Lobby, Akushalamuwa
 
-[APZ 3.5] (#apz3 .5) {#apz3 .5 .ref .apz} "WHOMETHICA” is a circle
+[APZ 3.5] (#apz3 .5) {#apz3 .5 .ref .apz} "WHOMETHICA" is a circle
 Is Wisathika named? Spreadable in the sense of scattering in the sense of spreadings
 Toxic in the sense that captures the prey in the sense, heterogeneous,
 Heterogeneous toxins are called toxins. A magnified craving
@@ -205,10 +205,10 @@ Bewayewa, Neplagagnanasayal Bewahe and Chathuwakara Bewawawatha (Asanasatta)
 Presently seen, heard, touching the nose, tongue, body, toothed
 The 'expansive' of the Dharma spreads the nui.
 
-“In the world” is the mass of the divine world, in the world of mankind, in the world of hell
+"In the world" is the mass of the divine world, in the world of mankind, in the world of hell
 The relics are in the world, in the world of institutions.
 
-[APZ 3.6] (#apz3 .6) {#apz3 .6 .ref .apz} "Remembrance” is a remembrance of four points
+[APZ 3.6] (#apz3 .6) {#apz3 .6 .ref .apz} "Remembrance" is a remembrance of four points
 Segmented. Looking according to what is said, in the emotion of the pain, in the doctrines
 If it is remembered that the formation of unconscious by looking according to doctrine, Anicudu
 In a matter, remembrance is impoverished by mindfulness, and also the doctrines of remembrance.
@@ -240,10 +240,10 @@ DharmaThen, brides and crosses, swims, exceeds, lowers.
 [APZ 4.1] (#apz4 .1) {#apz4 .1 .ref .apz} If the fields are gold or plaths
 Alketha, Veektha, Munkeetha, Maketha, Sent, Wheat field, Thalaketha etc.
 A field. These are the gardening fortages of the garden gardening monasteries.
-“Bile” tells the yellowers.
+"Bile" tells the yellowers.
 
-[APZ 4.2] (#apz4 .2) {#apz4 .2 .ref .apz} "Cattle “Cattle”
-By means of cattle saw. “Assa” saw horseshoe fellow beasts. “Daza”
+[APZ 4.2] (#apz4 .2) {#apz4 .2 .ref .apz} "Cattle "Cattle"
+By means of cattle saw. "Assa" saw horseshoe fellow beasts. "Daza"
 are four slave ones. Inside the slave born in wealth (the busted slave,
 Whether the slave who came to the third or slave is unwillingly or the slave who came to the slave
 Mohui.
@@ -252,7 +252,7 @@ Mohui.
 Even if one comes to the third slave, who is made of wealth, and the slave. Bearing
 There were also slaves. Men are three men. Block the doer.
 Workers. (ii) Live with many children from the room
-says the girl, who belongs to the girl. “Bandhu is the four relatives
+says the girl, who belongs to the girl. "Bandhu is the four relatives
 There are people. Bandhua with respect to cousins, Bandhua concerning tribes.
 Bandhuya regarding the mantras. In regards to crafts, these are Bandhua.
 Many rooms are many rooms. That is, the Favorana image (here 1, 1
@@ -261,13 +261,13 @@ Whoever is a man who has been so used, any kind of thing
 A man or Brahman who has any doctrine appointed to a place or
 A Doctor or a Zeater or a Domestic or a Prophet or a God or
 In a manor just. A man is (hereinafter 1, 7 (ii)) to be used.
-“Anugijthi” is a fire in the objects due to the clashamans, its galloping
+"Anugijthi" is a fire in the objects due to the clashamans, its galloping
 Repeatedly.
 
 [Msdiv 5] (#msdiv5) {#msdiv5 .ref .msdiv}
 
-[APZ 5.4] (#apz5 .4) {#apz5 .4 .ref .apz} "Weak Clazzio He Madith.” Going
-“Weak” is a weak clesiosis. Slightly energized with a little power;
+[APZ 5.4] (#apz5 .4) {#apz5 .4 .ref .apz} "Weak Clazzio He Madith." Going
+"Weak" is a weak clesiosis. Slightly energized with a little power;
 Silent, degraded, fallen, lamented, little. To someone
 The power of the audiovisual power, the power of samadhi, the power of the pledge, the power of the tingling,
 The person who is not subject to the power of the hustle, is perpendicular, and is subject to
@@ -339,7 +339,7 @@ clesiosis. In the midst of these three are enemies.
 
 [APZ 5.9] (#apz5 .9) {#apz5 .9 .ref .apz} "Lobby is a mis-maker. Lobby Misturi
 A provoker is a fear of the lobby. It has arisen in people
-Not figuring out” the lobbying person does not know good. The Lorbfied Person Doctrine
+Not figuring out" the lobbying person does not know good. The Lorbfied Person Doctrine
 It is not known that some lobby will subdue man, but he will be blinded. Malice
 Inflammation is a rash. Malice is a fear that arises between a thinker. It is
 The animal itself is not figuring out.
@@ -357,17 +357,17 @@ Three Dhammas were born in the study. There are three of them,
 The doctrine of the name is born in the study. The Majalisist (here in this General)
 (ii) be applied) The doctrine of malice is born in the study. Mahaiyi
 The doctrine of the brainy to decomposition the abress, to suffer for the disposition of man
-Birthed in education. “The lobies that are down in himself, and the malice, what is the
-Sin Chetanao persecuted the man who was close to it. The core of the gradient is like Nasarak.”
+Birthed in education. "The lobies that are down in himself, and the malice, what is the
+Sin Chetanao persecuted the man who was close to it. The core of the gradient is like Nasarak."
 Mezili its lienThe name of the anthology (hazards). By the Trusts
 This is in the vein.
 
-[APZ 5.12] (#apz5 .12) {#apz5 .12 .ref .apz} (i) “Lust and this (Lobby)
+[APZ 5.12] (#apz5 .12) {#apz5 .12 .ref .apz} (i) "Lust and this (Lobby)
 Sleep and segmented. This arisen (frustration) arisen. Psychic
-The weepers come out of this and pull the youngsters like a window.” Mezili there
-(ii) if the hazards are (-hazards) and (i) the hazards of him.” Going A
+The weepers come out of this and pull the youngsters like a window." Mezili there
+(ii) if the hazards are (-hazards) and (i) the hazards of him." Going A
 Hazards are underneath that person. Maths to the year. restrain. Close Spread
-Maths of Hathpena. Madith. Therefore, he is sad because of the hazards “he is sad
+Maths of Hathpena. Madith. Therefore, he is sad because of the hazards "he is sad
 The person pursues sadness with the infestation. Afterward passes.
 According to (iii) the nation pursues sadness. After that goes according to. Jara sadness,
 Business sadness, death sadness, sadness, sadomanasse synapse sadness, neurotic sadness,
@@ -383,7 +383,7 @@ Sadness caused by inflammation, sorrow-vision vision caused by the eczema
 Sadness, (Each of these tracks the places of sadness. After that goes according to
 Should be used.)
 
-[APZ 5.13] (#apz5 .13) {#apz5 .13 .ref .apz} "Water gets into the beak ship”
+[APZ 5.13] (#apz5 .13) {#apz5 .13 .ref .apz} "Water gets into the beak ship"
 Yamsei, a broken shipWhether the bike enters, and the water is tracked due to it.
 Afterward passes. Goes according. Before the water is tracked. Afterapasinda
 Waters and traces water. And the person is pursuing sadness with the same hazards
@@ -401,11 +401,11 @@ In the period of rice, before the period of the period of the period of the gene
 In the aftermath of the filter, in the aftermath of the light, in the frost period
 The age of the middle period of the younger period is the following age.
 
-[APZ 6.15] (#apz6 .15) {#apz6 .15 .ref .apz} "remembrance” is four points
+[APZ 6.15] (#apz6 .15) {#apz6 .15 .ref .apz} "remembrance" is four points
 In remembrance, mindfulness is looking at the formation of mindfulness
 Looking according to the doctrine of the doctrine of the mind, which is viewed by the heart of the pain in the pain
 Sathipattaya is remembrance in four unicu matter (here
-(1-3) Section 5 (ii) shall be applied.) Kama is the “drive away the rooms”
+(1-3) Section 5 (ii) shall be applied.) Kama is the "drive away the rooms"
 The two types of kamas are the two objects of kama. They are objects
 They are. (Parts 1, 1 (ii) and 2 (i) shall apply herein.) They are the clessed-rooms
 They are.
@@ -417,14 +417,14 @@ Since the kamayo is similar to a bone (1) 2 (ii) should be applied here.) Thus
 As suppressions, the rooms are dismantled. (Here (1-3) 2 (iii) (iv) Applied
 The rooms should be discontinued as a result.
 
-[APZ 6.17] (#apz6 .17) {#apz6 .17 .ref .apz} (i) “The rooms are the same
+[APZ 6.17] (#apz6 .17) {#apz6 .17 .ref .apz} (i) "The rooms are the same
 Make sure that the objects of the room are discarded, except for the rooms of the room.
 (ii) committed, destroyed and brought to the state of undecomposition, roomers, business
 Recovery, Therinaminda Redewary-, Inflation Cuts (hereinafter (1-4) 5 (ii)
 Should be applied) (iii) Carmogary, Dithththogy, Avijor, Climb
 doer. The swimmers will be exceeded.
 
-[APZ 6.18] (#apz6 .18) {#apz6 .18 .ref .apz} "Ship is lighthearted”
+[APZ 6.18] (#apz6 .18) {#apz6 .18 .ref .apz} "Ship is lighthearted"
 Rapid from the light ship, except the heavy ship sprinkled the waterhole
 Go to the street. Also, the object rooms are selected except for the area of the house (here
 17 (iii) shall be applied) to Nibbana which is hereby claimed to be parathiary
@@ -438,7 +438,7 @@ is. Whoever goes to the paragus, and he shall name Paragu. Whosoever went to the
 Heating is the name of fat paragus. This was dispatched by the chapters.
 
 [APZ 6.19] (#apz6 .19) {#apz6 .19 .ref .apz} "The transverse Brahman who crossed
-Build up.” Brahmina is Mahani,The secrets have this name. Him
+Build up." Brahmina is Mahani,The secrets have this name. Him
 Then went to what to know, what to clean and what to do, and the proses
 Matters went to the same time in meditation.
 Then went to the society, knowing all the doctrines and went to that time all the suffering
@@ -485,7 +485,7 @@ was there. (Eyes, etc.) stood the ends of the relics. (eye, etc.) stood the ends
 There was conception end. Sasara stood the end. (Sasara) The fence was at the end.
 Was in the last jewelery. AnthiWas itself in the body. The Secrets of the Last Two
 He is the one. This is the last one of his penguins, birth is death, behaving,
-He has no rebirth, “will be remedied and parted.”
+He has no rebirth, "will be remedied and parted."
 
 Komasuthaniddezno.
 

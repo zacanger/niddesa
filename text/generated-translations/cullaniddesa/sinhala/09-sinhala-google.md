@@ -149,7 +149,7 @@ Was.
 
 [APZ 33.11] (# apz33.11) # apz33.11 .ref .apz} "The sin he committed was himself
 Dirty. He cleanses himself of sin that he did not commit. Purity and
-Impurity does not cleanse one another. ”This is the Blessed One
+Impurity does not cleanse one another. "This is the Blessed One
 Preached by.
 
 [APZ 33.12] (# apz33.12) # apz33.12 .ref .apz} "Brahman is the same.
@@ -179,7 +179,7 @@ So the Blessed One said.
 [Msdiv 34] (# msdiv34) {# msdiv34 .ref .msdiv} (5-4)
 
 [APZ 34.1] (# apz34.1) # apz34.1 .ref .apz} "Your Majesty, please
-Admonish. ”Great Admonition, admonish.
+Admonish. "Great Admonition, admonish.
 Great Lord, please. Your Majesty,
 
 Please have mercy. Doing kindness means being merciful and gracious
@@ -187,7 +187,7 @@ Generating, pitying.
 
 [APZ 34.2] (# apz34.2) # apz34.2 .ref .apz} "Somehow I found the doctrine of rest
 Do you know? "Says to Nibbana. Some A (5-3)
-13 (ii) should apply.) “Do I know something, or do I know something?
+13 (ii) should apply.) "Do I know something, or do I know something?
 It means to understand, to receive, to see, and to perceive.
 
 [APZ 34.3] (# apz34.3) # apz34.3 .ref .apz} "I'm as different as the sky

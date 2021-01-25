@@ -71,7 +71,7 @@ Optical dynamics were (paragraph (12-1) 1 (iii) should apply)
 Dirty "means one's own vision, one's own will, one's own will
 By taste, by one's own creed, they are defiled, defiled.
 "Pure Wise Clever Scholars" means pure Wisdom Shining Wisdom
-That is. Pure wisdom means having rebirth or pure vision. “Purity
+That is. Pure wisdom means having rebirth or pure vision. "Purity
 In the Pali language it is said, "Kusala means the wise and prudent."
 The wise are said to be wise and prudent.
 "Wise" also means scholars, wise, intelligent.
@@ -124,7 +124,7 @@ It also means practice.
 [APZ 118.3] (# apz118.3) # apz118.3 .ref .apz}
 Thus learned paramaEven if he gets down and debates. Quarrelsome, quarrelsome, quarrelsome
 Do, you argue, you do not know this Dhamma discipline, so if possible confuse (
-(12-1) Paragraph 1 (iii) should apply) Haruwa. “Why shramanas
+(12-1) Paragraph 1 (iii) should apply) Haruwa. "Why shramanas
 Don't say one "is therefore a matter of fact and consequence of that fact
 Not saying one thing at a time, saying one thing at a time, many things
 That is to say, in practice.
@@ -165,7 +165,7 @@ Statements, especially sayingsThat is to say. Again or his
 He expresses and practices his views. The world is great, this is it
 The truth is, everything else is empty. Declares, but the world is blessed (here (3-6)
 Paragraph 1 (ii) must be applied) The animal does not rise from the dead. No, not at all
-The truth is that everything else is empty. And practice. “Talented people are meritologists
+The truth is that everything else is empty. And practice. "Talented people are meritologists
 Talents, pundits, steadfast theorists, theorists, causalists, characterists
 Rationalism is positionalism.
 
@@ -189,7 +189,7 @@ How is the antidote to annihilation and the Aryan octagonal path, (
 (12-7) Paragraph 1 (ii) should be applied)
 
 [APZ 121.2] (# apz121.2) කල්පනා # apz121.2 .ref .apz} "
-There are two Dhammas, truth and falsehood. ”Argument, Argument and Concept
+There are two Dhammas, truth and falsehood. "Argument, Argument and Concept
 Arguing and contemplating, evolving, evolving, evolving visions
 My truth is that you are a liar. Thus
 It also means practice.
@@ -272,7 +272,7 @@ Becomes Wise "means he becomes a Wise Wise with him
 Becomes a genius. Becomes a childish genius. It means to be a little wiser.
 
 [APZ 125.3] (# apz125.3) # apz125.3 .ref .apz} "Wisdom is your medicine
-Knows. ”Is the one who is courageous, wise, intelligent and intelligent
+Knows. "Is the one who is courageous, wise, intelligent and intelligent
 The doctor said, "No one is foolish among the pilgrims.
 There is no one among the younger, the lesser, the lesser, the lesser, the lesser. All of them
 Those who have great wisdom have great wisdom. Those who have foremost wisdom,
@@ -289,7 +289,7 @@ That is,
 
 [APZ 126.2] (# apz126.2) # apz126.2 .ref .apz} "Thus many ideologues
 As the saying goes. Is Tirtha and says to take a view. Ideologists are theorists
-Even if it says. Although many ideologues say. “They are lustful in their own eyes
+Even if it says. Although many ideologues say. "They are lustful in their own eyes
 Alunahuvethi "means alunahuvethi from the point of view of one's own vision.
 
 [Msdiv 127] (# msdiv127) {# msdiv127 .ref .msdiv} (12 - 15)

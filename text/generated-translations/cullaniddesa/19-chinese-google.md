@@ -24,7 +24,7 @@ actions are impermanent" as he sees like this, he tells , Explain, teach,
 inform, establish, uncover, analyze, clarify, and explain; "all actions are
 suffering"... (abbreviated) "all dhammas are selfless" ...... "every collection
 of dhamma is extinguishing dhamma" like him Seeing like this he tells, explains,
-teaches, informs, establishes, uncovers, analyzes, clarifies, and explains.” For
+teaches, informs, establishes, uncovers, analyzes, clarifies, and explains." For
 as he sees like this he tells.
 
 "The scumbags, the vastly wise ones": "The scumbags, greed is scum; hatred is
@@ -72,7 +72,7 @@ becoming non-existent, something that will not live in the future. Therefore,
 the Buddha is a person who has no desire to forest, a person who desires forest,
 a person who has left the forest, and has been thrown away. Those who go to the
 forest, those who have abandoned the forest, those who have been freed from the
-forest, and those who have overcome all the forest. 』It's the one who has no
+forest, and those who have overcome all the forest. "It's the one who has no
 desire. "Dragon Elephant", "Dragon Elephant [and] the Lord does not commit
 crimes" is the dragon elephant; "Don't go" is the dragon elephant; "Don't come"
 is the dragon elephant... (Omitted) This is the "World Lord does not come" as
@@ -96,7 +96,7 @@ Or, use three aspects as liars: just before [say] [mind]: "I will say liars.
 have said the lies. Take these three behaviors as lies. Or, use the four
 behaviors as a liar: just before [saying] [thought]: "I will say a liar. "When I
 said, [thinking]: "I'm talking liar. When I have said it [thinking]: "I have
-said the lies. 』There are opinions of different attachments (errors), and these
+said the lies. "There are opinions of different attachments (errors), and these
 four behaviors are regarded as lie. Or, take five forms... (omitted) Six
 forms... Seven forms... Eight forms are lie: Just before [say] [Mind]: "I will
 speak lie . "When I said [thinking]: "I'm talking liar. "When I have said it
@@ -137,7 +137,7 @@ slowness, "I am the same" for slowness, "I am the inferior" for slowness, there
 are four kinds of slowness: to gain to make it slow, to fame to make it slow,
 Use praise to make it slow, and music to make it slow. There are five kinds of
 slowness: "I do get the desired color." To make it slow, "I do get the desired
-sound... (omitted) smell... taste ……Touched.” To make it slow down, with six
+sound... (omitted) smell... taste ……Touched." To make it slow down, with six
 kinds of slowness: the eyes have the feet to make it slow, the ears have the
 feet... (omitted) the nose is the feet... the tongue is the feet...the body is
 Fullness...satisfaction of the mind makes it slow. Seven kinds of slowness:
@@ -304,7 +304,7 @@ Because of that, the presenter Binchia said:
 After I abandon all the rare things like this, like a goose has reached the
 great lake. "
 
-106. Whatever they told me before, before Gotama’s teaching: like this that was
+106. Whatever they told me before, before Gotama's teaching: like this that was
      once, like this and that will be,
 
 That's all rumors, all that is an increase in theory.
@@ -312,7 +312,7 @@ That's all rumors, all that is an increase in theory.
 "What they told me before": ""Fan", Fanbawali Brahman and Fan other his Asari,
 they explain, explain, teach, inform, establish, uncover, analyze, clarify, and
 explain their own views, My likes, my hobbies, my own opinions, my own
-intentions, my own intentions.” They told me before.
+intentions, my own intentions." They told me before.
 
 "Before the teachings of Gautam": "Before the teachings of Gautam, on the other
 side of the teachings of Gautam, before the teachings of Gautam; before the
@@ -360,7 +360,7 @@ enlightenment" as alone.
 
 How is the Blessed One alone in the name of a monk? When the Blessed One was
 young, the black-haired youth possessed the happiness of youth. At the beginning
-of life, even if the parents didn’t want, tearful, crying, and sighing, they
+of life, even if the parents didn't want, tearful, crying, and sighing, they
 still abandon their relatives, cut off all obstacles in the home, and cut off
 their children. After wife barrier, cut off family barrier, cut off friend
 barrier [, cut off storage barrier], shave hair and put on robes, change from
@@ -385,14 +385,14 @@ the relatives of the liberated. Afterwards, the netted, strong flowing,
 entangled thirsty loves him to abandon, drive away, end, and make him go to
 non-existence.
 
-『People who have thirsty love as their partner, reincarnate for a long time,
+"People who have thirsty love as their partner, reincarnate for a long time,
 
 becomes this state, other states, does not go beyond reincarnation.
 
 knows this kind of trouble: craving is the origin of suffering,
 
 Departure from thirsty love, no taking, bhikkhus should march conscientiously.
-』[It.15/Sn.3.12,745-746 verse]
+"[It.15/Sn.3.12,745-746 verse]
 
 This is the Blessed One who is alone with the thirsty home.
 
@@ -405,11 +405,11 @@ alone. [In this way, the Blessed One is alone with "always free from greed". ]
 How is the Blessed One who "has passed the road without fork" as alone? The road
 without forks is called the Four Mindfulness...(Omitted) Eight-branch Holy Path.
 
-『The one who sees the death of life, the one who is pitiful, knows that there
+"The one who sees the death of life, the one who is pitiful, knows that there
 is no way,
 
 used this way to cross the storm in the past, and they will be and present.
-』[SN.47.18]
+"[SN.47.18]
 
 This is the way the Blessed One "has passed the road without fork" as alone.
 
@@ -430,23 +430,23 @@ of pollution, the darkness of evil deeds, those who do blindly, do not look for
 eyes, do not do wisdom and wisdom The annoying companion party does not lead to
 the exclusion, removal, abandonment, abandonment, exorcism, and end of Nibbana,
 the Blessed One, to make it non-existent. "Sit down", "The Blessed One is
-sitting in Bosha led the Gota Temple. 』Sit down.
+sitting in Bosha led the Gota Temple. "Sit down.
 
-『When Muni was sitting on the hillside, he had reached the other side of
+"When Muni was sitting on the hillside, he had reached the other side of
 suffering,
 
-disciples serve, Sanming’s death deceased. [SN.8.10]』
+disciples serve, Sanming's death deceased. [SN.8.10]"
 
 This is also the one who sits down. Or, "In the state where all efforts have
 ceased, the Blessed One is the one who sits, the one who has fallen, and the one
 who has practiced... (Omitted) The cycle of life and death, without his
-regeneration. 』This is also the one who sits down. "For the alone, the dark
+regeneration. "This is also the one who sits down. "For the alone, the dark
 disperser, and the sitting down.
 
 "He is the shining person, the author of the light": "The shining person is the
 wise, wise, wise, enlightened, wise, distinguished, and wise. "The luminous
 author", Author of light, author of light, author of light, author of light,
-author of light, author of light, author of light.” For him is the author of
+author of light, author of light, author of light." For him is the author of
 light, author of light.
 
 "Qiao Damo is the one who is broad and wise": "Qiao Damo is the one who
@@ -456,10 +456,10 @@ deliberate, the fully deliberate nature, the one who lives in the understanding,
 The character, the more, the heavy, the object of that, the harder, the lean,
 the winner, and the better.
 
-『The flag is the sign of the car, the smoke is the sign of the fire,
+"The flag is the sign of the car, the smoke is the sign of the fire,
 
 The king is the symbol of the country, and the husband is the symbol of the
-woman. [SN.1.72]』
+woman. [SN.1.72]"
 
 In the same way, Qiao Damo is the symbol of the vastness (the broad wisdom), the
 wisdom as the symbol, the wisdom as the banner, the wisdom as the flag, and the
@@ -639,7 +639,7 @@ more, from the that as the object From the one who works hard, from the one who
 leans towards that, from the one who overcomes, and from the one who increases."
 It is from the wiser of Gautam.
 
-「From Qiao Damo ZhiThe vast wise man": "The earth is called the broad, and the
+'From Qiao Damo ZhiThe vast wise man": "The earth is called the broad, and the
 Blessed One possesses the same broad and extended wisdom as that of the earth.
 Wisdom is called wisdom, which is wisdom, understanding... (abbreviated) No
 delusion, choice of law, right view. The Blessed One arrives (To have), to reach
@@ -726,16 +726,16 @@ the night.
 
 "Because of that, I think there is no renunciation": "When practising with that
 Buddha's mindfulness, I think it is "no renunciation". I think, I know that it
-is "no renunciation." I know so; I am so. I know; I don’t do it like this; I
-know so sure; I know it well.” Because of that, I think I haven’t left.
+is "no renunciation." I know so; I am so. I know; I don't do it like this; I
+know so sure; I know it well." Because of that, I think I haven't left.
 
 Because of that, the presenter Binchia said:
 
 "I saw him like my eyes, Brahman! Day and night,
 
-I spend the night in salute, just because of that I think I haven’t left. "
+I spend the night in salute, just because of that I think I haven't left. "
 
-114. Letters, joys, thoughts, thoughts, these did not depart from Gautam’s
+114. Letters, joys, thoughts, thoughts, these did not depart from Gautam's
      teachings,
 
 Where the wise person walks, I pay respect to the other person in that
@@ -776,7 +776,7 @@ Gautam,
 Where the wise person walks, I pay respect to the other person in that
 direction. "
 
-115. Because of my aging and weakness, just because my body didn’t walk there,
+115. Because of my aging and weakness, just because my body didn't walk there,
 
 I walked continuously with my thoughts, Brahman! Because my mind is united with
 him.
@@ -882,7 +882,7 @@ the troubles of desire, some troubles, the troubles of seeing, and the troubles
 of ignorance. Those troubles have been abandoned for the Buddha and the Blessed
 One. Broken, the root has been cut off, just like a palm tree without roots, it
 becomes a non-existent thing that does not live in the future. Therefore, the
-Buddha is called the one who has no troubles.” It is the one who has passed the
+Buddha is called the one who has no troubles." It is the one who has passed the
 waterfall and has no trouble.
 
 Because of that, the presenter Binchia said:
@@ -904,7 +904,7 @@ take faith as the forerunner, those who believe in victorious, those who have
 reached the state of Arahat; such as Arubiyah, are those who are believers ,
 Those who believe in faith, those who take faith as the forerunner, those who
 overcome faith, those who increase their faith, and those who reach the state of
-Arahat.” For example, Bakali is the one who releases the faith, as well as Bodo
+Arahat." For example, Bakali is the one who releases the faith, as well as Bodo
 Uda and Aroviyatama.
 
 "The same you should also issue a letter": "The same you should release, issue,
@@ -912,8 +912,8 @@ fully issue, increase, issue, and fix the letter: "All actions are impermanent"
 You should release, issue, issue completely, increase Send out and fix the
 letter; "All deeds are suffering"... (abbreviated) "All Dhamma is without self"
 You should release, send out, send out completely, increase the send out, and
-fix the letter... It’s the extinction of Dhamma" You should release, release,
-fully release, increase the release, and fix the letter.” For the same, you
+fix the letter... It's the extinction of Dhamma" You should release, release,
+fully release, increase the release, and fix the letter." For the same, you
 should also send the letter.
 
 "Binchia! You will go to the other side of the realm of the god of death": The
@@ -931,7 +931,7 @@ Because of that, the Lord said:
 
 You should also send a letter, Binchia! You will go beyond the realm of death. "
 
-118. In this way I gain more confidence: After hearing Muni’s words,
+118. In this way I gain more confidence: After hearing Muni's words,
 
 has opened the covering person, the enlightened person, the non-desolate person,
 and the eloquent person.
@@ -942,7 +942,7 @@ actions are impermanent" I am more confident, I More trust (fixed), I am more
 victorious; "All actions are suffering" I have more confidence... (omitted) "All
 laws are selfless" I have more confidence... (omitted) "Where Any collection is
 an end to the law" I am more confident, I trust (fixed) more, I am more
-victorious.” For this, I gain more confidence.
+victorious." For this, I gain more confidence.
 
 "After hearing the words of Mou Ni": Mou is called Zhi... (omitted) He is Mou Ni
 after being dyed with the net. "After hearing Muni's words": "Your speech,
@@ -996,7 +996,7 @@ to argue.
 
 Because of that, the presenter Binchia said:
 
-"This way I gain more confidence: After hearing Muni’s words,
+"This way I gain more confidence: After hearing Muni's words,
 
 has opened the covering person, the enlightened person, the non-desolate person,
 and the eloquent person. "
@@ -1076,7 +1076,7 @@ doubter; when the nick arrives, he becomes the unmarked; when the doubter
 arrives, he becomes the doubter; when the doubter arrives, he becomes the
 doubter; there is greed. Those who come will become greedy ones; those who have
 anger will become ridicules when they come; those who have idiots will become
-idiots when they come; those who have polluters will become non-polluting ones.”
+idiots when they come; those who have polluters will become non-polluting ones."
 The doubters agree.
 
 Because of that, the presenter Binchia said:
@@ -1095,7 +1095,7 @@ me as a victorious soul.
 "Those that cannot be moved, cannot be shaken": "Those that cannot be moved are
 called immortality, Nibbana, that is the cessation of all actions, the cessation
 of all attachments, the extinction of craving, greed, annihilation, and Nibbana
-"Can’t be moved", "Can’t be greedy, angered, ignorant, angry, resentful,
+"Can't be moved", "Can't be greedy, angered, ignorant, angry, resentful,
 concealed, bossy, jealous, stingy, deceitful, cunning, stubborn, passionate,
 slow, extremely slow, stubborn, relaxed, All pollution, all evil deeds, all
 scorching heat, all troubles, all troubles, all heat, all unwholesome deeds are

@@ -10,12 +10,12 @@
 Inwillfulness is to know and learn, and those who are in this matter, Earahth
 Sekana Sampana, Wijjacharana Sampana, Sumuthana Lokaviduya Rehabilitation
 The Driving that discipline men, God, is the Buddhist to men, is the Buddhist.
-Heard” “Heroes” I go, O Heroes, are the prophists
-Weeranam. Hero is called “Hero”. Shaktheni Hero. Meaning
+Heard" "Heroes" I go, O Heroes, are the prophists
+Weeranam. Hero is called "Hero". Shaktheni Hero. Meaning
 Suitable for Hero because Hero is a surname. The wicker is not afraid.
 Do not be alarmed, do not flare. Since the fear and fear of the incendiary
 What separated from all sins here was hell beyond sorrow, 'Hero.
-The chief minister, Kathenui Weera. Propagation of “Kama'a Willy'
+The chief minister, Kathenui Weera. Propagation of "Kama'a Willy'
 As a room. The objects are also clesy rooms. (Mahaniddeya (1) 1
 (ii) 2, 3 shall be applied.) Bhavanni Budurajanan
 Known also in claycas. Since the object was known, clesiasticam
@@ -27,18 +27,18 @@ Do not like. Rooms do not desire.
 So the Buddha does not want the rooms, there is an impoverished, and there is a vagadziral
 There is Kama, there is Kama, There is Kama, There is Kama, There is Kama, There is Kama
 Ragah, Kelles did not dare, the twine was faintedBrahman
-It is inhabited by such self-esteem. “Hello Jathukankana, thus”
-“Ikhuti” is the vowel joint (2-1) applied from where 1 vowel
-Must.) “Hello” is the favorite word (2-1) 2 should be applied. Garuchanaya
-Hello “Jathukansa” is the prey of that Brahman, whose name is to impose “Ojaya
-You shall go to the critics,” Oghi shall go over.
+It is inhabited by such self-esteem. "Hello Jathukankana, thus"
+"Ikhuti" is the vowel joint (2-1) applied from where 1 vowel
+Must.) "Hello" is the favorite word (2-1) 2 should be applied. Garuchanaya
+Hello "Jathukansa" is the prey of that Brahman, whose name is to impose "Ojaya
+You shall go to the critics," Oghi shall go over.
 To comment is to question, ask, invite.
 
-[APZ 65.2] (#apz65 .2) {#apz65 .2 .ref .apz} "KAMA DISTED” is
+[APZ 65.2] (#apz65 .2) {#apz65 .2 .ref .apz} "KAMA DISTED" is
 Kamatha, Midukamathahuthu, Contruded Kathhu, Conscious Kamma
 The lower lust, the lower lust to the thhahu. Redeemed lust to Sithhu, constipated lust
 Let us come to thehu. Let's come, complete, let's go.
-“Shanthi” in one way is the Nibbana which is the same as Shanthi.
+"Shanthi" in one way is the Nibbana which is the same as Shanthi.
 Will that be a congruence of all editors, and dispel all the help?
 Viraganated Nibbana, the name of the craving. This is the Trusts
 Dedication by. 'This Nibbana is the plant, this Nibbana is the prostate, that is
@@ -49,15 +49,15 @@ Existing to make reflexes. How is that? Four Sathipatayo
 Four Leaders, Padawachendiyaya, Sasara Bothayangayo, Aryan
 They are the Ashtangan road, if Shanthi Padas. The protection of the shantyverse,
 Ababyverse, Aachword, Aruthword Nibbana, Kaymanuwi, Deshannu Manuwi,
-Measure to be imposed. Measure the bandage, open openings. Divide “All eyes
-True”, “seeing all things” is the almighty. Bhavath Budurajanan
+Measure to be imposed. Measure the bandage, open openings. Divide "All eyes
+True", "seeing all things" is the almighty. Bhavath Budurajanan
 His eyes, and jinness, are born not before, but at once. Hence
 The Buddhism itself has all eyes with sight.
 
 [APZ 65.3] (#apz65 .3) {#apz65 .3.ref .apz} "This is what I do not know
-What is not known in Manuvi” is the unpretentious Nibbana. Nakatungurusa
-Nibbana. “Bhagavath” is the Word of Honor. (Applied to the Great Niddice (7-2) 1
-Must.) Reduced imposition. This is Bhagagaha. “Komayo” is a promo
+What is not known in Manuvi" is the unpretentious Nibbana. Nakatungurusa
+Nibbana. "Bhagavath" is the Word of Honor. (Applied to the Great Niddice (7-2) 1
+Must.) Reduced imposition. This is Bhagagaha. "Komayo" is a promo
 As Kama is two parts. That is, object rooms and cleavage rooms. (Great
 (1) 1 (ii) 2—3 shall be applied in the Niddeis.) Vocational Problessees
 Knowing, restrain and restrain clicamas. Behave. postures
@@ -74,28 +74,28 @@ To me which is discreet, I am a little discreet. I have a characteristic pledge.
 Great commendations. There are no prophecies, there are commendments, and there are commendments
 True, there are indivisible pledges, there are nibberish prodences. Bhuriyi
 tells the earth. The earth was made with the widest prophecy of the same.
-There are great pledgesThe “doctrine” is the middle good, where the root is good, the ends are good,
+There are great pledgesThe "doctrine" is the middle good, where the root is good, the ends are good,
 Defined, Genuine, All Complete, Pure Brahmology
 Four Sathipatthaya, Four Asset Chief Padawachendiriya, Tandalaya
 Bocentrya, Aryan Ashtangal Road Nibbana Nibbana Reaction
 Manurements of caranu. Maniform, open, open, divide, divide,
-Ready. “If something I know” is figuring out if I know something
-If you are making, coming, making the recomitant. “HERE
-Dandruing of race shit” is a comparison of race jaarmoras here,
+Ready. "If something I know" is figuring out if I know something
+If you are making, coming, making the recomitant. "HERE
+Dandruing of race shit" is a comparison of race jaarmoras here,
 Constant, impeccable Nibbana. Therefore, the Brahmina said:
 
 [Msdiv 66] (#msdiv66) {#msdiv66 .ref .msdiv} (11-2)
 
-[APZ 66.1] (#apz66 .1) {#apz66 .1 .ref .apz} "The fire in the rooms is impoverished”
+[APZ 66.1] (#apz66 .1) {#apz66 .1 .ref .apz} "The fire in the rooms is impoverished"
 There are two names, objects and clayey rooms
-Ready. (1) 1 (ii) 2—3 shall be applied in the Great Actance.) “Guyness” is
+Ready. (1) 1 (ii) 2—3 shall be applied in the Great Actance.) "Guyness" is
 tells craving. A lust is a lust, a central lotus
 It is the root of the epileptic. The fire in the room is impoverished, and into the nostra,
 The 'Jathukansa 'is the prey of Brahman to the Armantled
-“Bhagawath” is the honorary word. (Should be applied in the Great Reform (7-8) 1.)
+"Bhagawath" is the honorary word. (Should be applied in the Great Reform (7-8) 1.)
 Reduced imposition. Something that's going to be.
 
-[APZ 66.2] (#apz66 .2) {#apz66 .2 .ref .apz} "Ewlekariya Seen”
+[APZ 66.2] (#apz66 .2) {#apz66 .2 .ref .apz} "Ewlekariya Seen"
 The 'Intellectio' is a Resource Resource,
 Correct Reverse, Dharman Dhamma Reverse, Complete
 Making, feeling the size of the troopers that there is a closed door in the inverter, sleeping
@@ -112,7 +112,7 @@ Conscious. So did the bugger.
 
 [Msdiv 67] (#msdiv67) {#msdiv67 .ref .msdiv} (11-3)
 
-[APZ 67.1] (#apz67 .1) {#apz67 .1 .ref .apz} "Something in the preview and dried it”
+[APZ 67.1] (#apz67 .1) {#apz67 .1 .ref .apz} "Something in the preview and dried it"
 If any clayeshias were born because of past editors, then the clayeshias dried,
 Without causing, the complete demise of the impossibility is the future editors
 Prophylactic sneezes, mucus sneezes, vision sneezes, clayey
@@ -133,12 +133,12 @@ Blew.
 .ref .msdiv} (11-4)
 
 [APZ 69.1] (#apz69 .1) {#apz69 .1 .ref .apz} "Brahman Omnidirectional
-“The omnivance of the names goes to the true” of all things, 'omnivorous'
+"The omnivance of the names goes to the true" of all things, 'omnivorous'
 All omnidirectional omnidirectional without leaving omnidirectional
 Word. This is omnipous. Names are immorbient masses. 'Figs' are four
 Great demographers are images of decovery. Keti tells cravings. Any lust
-It is not an allusion or a central lotus that is the root of the epileptic. “Inspirations
-There are four wonders called “Science”. KAMAHA,
+It is not an allusion or a central lotus that is the root of the epileptic. "Inspirations
+There are four wonders called "Science". KAMAHA,
 Bavavara, visible, unscientific. 'Him 'is Arhetthu
 Neither are these miracles unto him, whether they are not science, nor are they they?
 Not Divisional, Nouwadda, Plainty, Originals, and Shantha to be born

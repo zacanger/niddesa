@@ -7,9 +7,9 @@
 [Msdiv 70] (#msdiv70) {#msdiv70 .ref .msdiv} (9 - 1)
 
 [APZ 70.1] (#apz70 .1) {#apz70 .1 .ref .apz} "Crazha, Arathi, Raga, Seeing the Mun
-Do not desire in Maithunia” is the maura daughters who have seen the craving, arathi, raga
-There was no desire or lust or love in the Maithuna doctrine” in the Dead Face
-It may or may not touch this pinch and the plinth.” Going
+Do not desire in Maithunia" is the maura daughters who have seen the craving, arathi, raga
+There was no desire or lust or love in the Maithuna doctrine" in the Dead Face
+It may or may not touch this pinch and the plinth." Going
 Kimi, this body was fills with the vertebral. Fills with impurity. salivate
 Fillen. Lain was fouled. Escape from the apricots. Connected with veins. blood
 Mesin is light. shouting and waving. With holes, shedding pipes from the crowd
@@ -32,24 +32,24 @@ Not. What is your vision, in what view? ' Ready.
 
 [Msdiv 72] (#msdiv72) {#msdiv72 .ref .msdiv} (9 - 3)
 
-[APZ 72.1] (#apz72 .1) {#apz72 .1 .ref .apz} "I say this he does not think”
+[APZ 72.1] (#apz72 .1) {#apz72 .1 .ref .apz} "I say this he does not think"
 I say this, 'Iden'. This is what I say, this is the same
 Optic GloomI go. (3-2) 1 (iii) Generator applied to the locator
-Must) The animal does not arise in death, but does not. “Not to him is not to me,
-Not to him,” I say in a throwback.
+Must) The animal does not arise in death, but does not. "Not to him is not to me,
+Not to him," I say in a throwback.
 
 [APZ 72.2] (#apz72 .2) {#apz72 .2 .ref .apz} "Magandiyai load
-The words” are the name of that Brahman.
+The words" are the name of that Brahman.
 
-“Bright” is the Word of Honor. (HERE 7—2 (1) Where 'the Gasts'
-To be used where 'imposition' is.) “Identificate of Dharmalawa
-What does” and “in doctrines” is determined in ideological doctrines to December
+"Bright" is the Word of Honor. (HERE 7—2 (1) Where 'the Gasts'
+To be used where 'imposition' is.) "Identificate of Dharmalawa
+What does" and "in doctrines" is determined in ideological doctrines to December
 Decided and decided to go down to the adjudication
 This is true, by being restrained, partnering, gathered, and captivated,
 What happened, was, mischanging peeler
 Duct peeler sticky peeler. Not scientific. Unnoticed. Mentalis,
 Originally begged, compounded, begged to be born, and the fire of wisdom was burned,
-“View not to take views” is the view of the views
+"View not to take views" is the view of the views
 Do not take views. I do not paramour, do not enter there. Should not be redone or taken.
 Should not enter, do not enter or redeemate the world here
 Truth, the other things are empty, this point of view, the desert of vision, evil
@@ -76,39 +76,39 @@ A doctrine, a pause doctrine, a doctrine, a rioting doctrine, etc.
 Do not take views, do not pardo, do not enter. Should not be redone.
 should not enter, should not enter
 
-[APZ 72.3] (#apz72 .3) {#apz72 .3.ref .apz} "Looking for comfort in the heart”
+[APZ 72.3] (#apz72 .3) {#apz72 .3.ref .apz} "Looking for comfort in the heart"
 The comfort of the heart is the shanness of the academic Ragaya, the Dheshaya
 Shanity, Shanity of Mohaya, of the transplanted hatred of the Crop, of virtue, of the Dosage,
 Esch_way, in the deception of sortness, in stiffness, in assembling, in the way
 In the most mankind, in all the follicles of the medium size, in all the impurity, in all
 In afflictions, in all burners. In all the assemblies of all happenings
-Shanity, redemption, redemption, constipation. “Search” is a search
-How to look, decideRequires to do. “Noditimi” is
+Shanity, redemption, redemption, constipation. "Search" is a search
+How to look, decideRequires to do. "Noditimi" is
 I did not see, did not see, did not redeemate.
 
 [Msdiv 73] (#msdiv73) {#msdiv73 .ref .msdiv} (9 - 4)
 
-[APZ 73.1] (#apz73 .1) {#apz73 .1 .ref .apz} "Any judgments contemplated”
-To take the view of December, the judgment goes to the saw. “Thought” is a monitization
+[APZ 73.1] (#apz73 .1) {#apz73 .1 .ref .apz} "Any judgments contemplated"
+To take the view of December, the judgment goes to the saw. "Thought" is a monitization
 The prepared put is born by a reposition, number, reason
 A tuberculosis doctrine, a doctrine, a pause doctrine, a detritus doctrine, Veparinama
-Dharmaekai is the term “Magandiyathama”. Verses
-Collectors. Verses are sacred, luxury. “Magandea” is a
+Dharmaekai is the term "Magandiyathama". Verses
+Collectors. Verses are sacred, luxury. "Magandea" is a
 Brahman is the name, the imposition, the law.
 
 [APZ 73.2] (#apz73 .2) {#apz73 .2 .ref .apz} "Will it be good that the heart is comfort
-They shall be said in the same way” and 'they' are 'in the same way as December.
+They shall be said in the same way" and 'they' are 'in the same way as December.
 Optic Gathuvoi tells the Gathuvoi 'Muni' here (2-8) 10 'Muni'
 Should be completed and used from where 14.) The craving network was exceeded
-The same name Muni. In the views of “order of action”, such as:
+The same name Muni. In the views of "order of action", such as:
 Do not take views. I do not paramour, do not enter, in education
 Shanness is true.
 
-[APZ 73.3] (#apz73 .3) {#apz73 .3.ref .apz} "Some This Idea” is a certain
+[APZ 73.3] (#apz73 .3) {#apz73 .3.ref .apz} "Some This Idea" is a certain
 Objective The term 'how' if 'is known by educators
 Doubt critique, query critique, no one queries, is it not:
-How, how and how. “By the educators” is by fishermen, by panders
-By, the prognosts are called by the intelligentsia. “Known”
+How, how and how. "By the educators" is by fishermen, by panders
+By, the prognosts are called by the intelligentsia. "Known"
 is known. It was said, was devoted. Worred, formed. Divide
 was, was described, was profiled.
 
@@ -122,18 +122,18 @@ Sanctification, immancipation, liberation, not said. The sanctification of the H
 Purity immancipation is not emancipation.
 
 [APZ 74.5] (#apz74 .5) {#apz74 .5 .ref .apz} "Manage the Trustees
-Kia” is the armonary to that Brahman in the name. Bhagawa is the Word of Honor.
+Kia" is the armonary to that Brahman in the name. Bhagawa is the Word of Honor.
 (Here (7-2) 1 Whips will be used to 'impose' from the onus
 Must)
 
 [APZ 74.6] (#apz74 .6) {#apz74 .6 .ref .apz} "either in person or in action or in the holy
-“Infinity, sanctification, purity, impurity, impregnation,
+"Infinity, sanctification, purity, impurity, impregnation,
 Emancipation, Reciprocation, Untold. Neither did the business, and the holy,
 Sanctification, purity, immancipation, emancipation, impregation, not untold.
 did not. Ready.
 
 [APZ 74.7] (#apz74 .7) {#apz74 .7 .ref .apz} "Seeing, Hearing, Discreetly,
-It is not without the answer of the eczema,” it is not without the answer, seeing is what to do
+It is not without the answer of the eczema," it is not without the answer, seeing is what to do
 The object objectiveview should be preferred. There is a fruit in what was given. Regrated
 There are rewards in the thing. There are rewards of what is done and rewards of good ungood kamma
 There are. There is this world. There are parotists. There is the mother. There is a father. There are opaetic animals. Someone
@@ -148,13 +148,13 @@ Pansukulykawu, Thechivarikawa, Seddana Tour, Khalupatsha Devotiya,
 Nezajjikawa, Reality, Reality.
 
 [APZ 74.8] (#apz74 .8) {#apz74 .8 .ref .apz} "By seeing, hearing, hearing,
-It is not without the name of the statue”
+It is not without the name of the statue"
 Not in the way. Not by eye. Not from wisdom. Shields
 Not in the way. Not in the way. The study came to Shantha
 Wei. Other than these doctrines, the study does not come to Shantha. These Dharms
 Equipment to come to Shantha.
 
-[APZ 74.9] (#apz74 .9) {#apz74 .9 .ref .apz} "These are not too hard”
+[APZ 74.9] (#apz74 .9) {#apz74 .9 .ref .apz} "These are not too hard"
 The 'these' are the original trimming of the insecticide doctrines
 Wish. A democracy should like not to do in the doctrines. a
 Herfrom the insecticide dharms, like a palm tree, which was originally slain and fade
@@ -170,13 +170,13 @@ Not to be converted into, to the secret, and not to any extent. Paramortize does
 Not in. Ready.
 
 [APZ 74.10] (#apz74 .10) {#apz74 .10 .ref .apz} "Jewelery without association
-Not sticking.” “Sunsattana” is' Sunsattana 'as the lust was constipated
+Not sticking." "Sunsattana" is' Sunsattana 'as the lust was constipated
 NAMI. And if the malice was constipated. Constipated because the brains were constipated
 NAMI. (3-4) 1 should be applied to the place where the term is held.
 
 Since the twisting was disenchanted because they were disenchanted because they were dismantled
 Convenient. There are two notions of 'not association'. Cravings
-Optics are also fixed. Changes to “impoverished” instead of “motherhood”
+Optics are also fixed. Changes to "impoverished" instead of "motherhood"
 (2-6) 1 (ii) (iii) shall be applied. This is the point of view. Cravings
 The imperceptions are imperceptible, and the eye does not breathe, and the ear does not breathe
 Without breathing the nose and breathing the tongue, without inhaling the body, without inhaling the heart
@@ -191,7 +191,7 @@ Nouveth. Cravings are nodules about immorality.
 [Msdiv 75] (#msdiv75) {#msdiv75 .ref .msdiv} (9 - 6)
 
 [APZ 75.1] (#apz75 .1) {#apz75 .1 .ref .apz} "Not seeing, not hearing,
-Not discreet” is holistic in view, vividPromotions, purity, impurities,
+Not discreet" is holistic in view, vividPromotions, purity, impurities,
 liberated, imported, not told, not proclaimed, uninstructed,
 (ii) the sanctification, purity, impurities, liberation,
 (iii) in view and in grade (hereinafter (ii) applied.)
@@ -199,22 +199,22 @@ liberated, imported, not told, not proclaimed, uninstructed,
 Brahman's name
 
 [APZ 75.2] (#apz75 .2) {#apz75 .2 .ref .apz} "either in the form or in the sacred
-Not saying” is also from the user (applied here (ii).) (Applied herein (ii))
+Not saying" is also from the user (applied here (ii).) (Applied herein (ii))
 By and by way (herein (ii) applied.) Ready.
 
 [APZ 75.3] (#apz75 .3) {#apz75 .3.ref .apz} "Not seeing, not hearing,
-Not discreet, not from nuance. Not that it goes by mode” outlook
+Not discreet, not from nuance. Not that it goes by mode" outlook
 Thus said, The shadow should be liked, and the shadow should be liked,
 Thus said, that the wisdom should also like, and that the sealant should also like:
 Thus said, saying, the action should also be liked, and by that way to give will.
 (Not to be supported) It is not possible to reproach.
 
-[APZ 75.4] (#apz75 .4) {#apz75 .4 .ref .apz} "I think the doctrine is very delusional”
+[APZ 75.4] (#apz75 .4) {#apz75 .4 .ref .apz} "I think the doctrine is very delusional"
 This is the Momuha doctrine of the pope, the inferior doctrine, the senseless doctrine, the Amara
 Wickedness is the doctrine. Thus, I know, and find out
 
 [APZ 75.5] (#apz75 .5) {#apz75 .5 .ref .apz} "Exacted in some view
-Hopefully” is the sanctification of certain heavenly Brahmins
+Hopefully" is the sanctification of certain heavenly Brahmins
 Purity immancipation is expected to be liberated. LOLOLOLOKA SHANGHA
 This same is true, inherent blank. Certain Brahmins are holy in view
 The sanctification of purity is expected to emanate liberation.
@@ -226,25 +226,25 @@ Ready.
 [Msdiv 76] (#msdiv76) {#msdiv76 .ref .msdiv} (9 - 7)
 
 [APZ 76.1] (#apz76 .1) {#apz76 .1 .ref .apz} "Repeat due to views
-Critique” is the view of the Magandara Brahmina because of the view,
+Critique" is the view of the Magandara Brahmina because of the view,
 Sticking is critique because of the alley. Binding is critique because of bonding. Shield
-Because of the scapegoy is critique. “Repeated Repeated” is Repeated Requisition
+Because of the scapegoy is critique. "Repeated Repeated" is Repeated Requisition
 Ready. Magandiya is the Almantra in the name of that Brahman
 makes. The adherents are the Word of Honor. (HERE (7-2) 1 'BUYS
 Should be used from where he goes' to 'spinning')
 
 [APZ 76.2] (#apz76 .2) {#apz76 .2 .ref .apz} "In hardness views
-Have come to the end” Is a view that you take, paralyzing
+Have come to the end" Is a view that you take, paralyzing
 You are in the same view as the sticky sticky. Pakulunah in the dark
 Ready.
 
 [APZ 76.3] (#apz76 .3) {#apz76 .3 .ref .apz} "A signal of remembrance around a molecule
-Not seen” is from this by spiritual presence or by reflevity or Dhamma
+Not seen" is from this by spiritual presence or by reflevity or Dhamma
 Sexy or application signal or flammable signal or characteristic sign or fact signal
 Or the fainting signal or not received, and this is where the consciousness is. Realidu
 or indirectly to the other signal or to the grievance or grievance signal
 or congruent to the incarnate signal or signal signal support or signal support
-Here was the unseen consciousness: “And few did not see a signal”
+Here was the unseen consciousness: "And few did not see a signal"
 Ready.
 
 [APZ 76.4] (#apz76 .4) {#apz76 .4 .ref .apz} "SoAs you are very deluded
@@ -255,7 +255,7 @@ Wickedness was accepted as the doctrine, and the balloon. Saw. Yu
 [Msdiv 77] (#msdiv77) {#msdiv77 .ref .msdiv} (9 - 8)
 
 [APZ 77.1] (#apz77 .1) {#apz77 .1 .ref .apz} "Whoever is the skin or is a wit or
-The lower thinks and debates it” is the same, or
+The lower thinks and debates it" is the same, or
 Whether anyone thinks that I am or diminish, or that in that dimension it is.
 In view, he will stir with the person. Bhuddle. Wigger
 Debate will be done in the way. You do not know this Dhamma discipline, (ii) you are wrong
@@ -266,18 +266,18 @@ nighted. (iii) Construct the next appointment of an instillation
 Replicates the handicrae.
 
 [APZ 77.2] (#apz77 .2) {#apz77 .2 .ref .apz} "The shocked season of three dimensions,
-Wise is not a sense of him” is if one had these three dimensions in the same way
+Wise is not a sense of him" is if one had these three dimensions in the same way
 If the first happened if they were born
 If the Gnanagnia is burned, then in these three dimensions will not be shaken. Non-shaken
-They say that the person is equal, or is embodied, or “that
-Not for me” is not for me.
+They say that the person is equal, or is embodied, or "that
+Not for me" is not for me.
 
 [Msdiv 78] (#msdiv78) {#msdiv78 .ref .msdiv} (9 - 9)
 
 [APZ 78.1] (#apz78 .1) {#apz78 .1 .ref .apz} "What Is That Brahmina Three
 Do you say, Brahmina is Brahmina as Dhamma was excluded
 (ii)(From (4-3) 1 of Brahmina should be used here.)
-The same name Brahmama who disposed of uninspired excreted.”
+The same name Brahmama who disposed of uninspired excreted."
 
 [APZ 78.2] (#apz78 .2) {#apz78 .2 .ref .apz} "The Brahmina is the third true. What
 Does it say that the world is the plant, this itself, the fact, the unconscious blank? Kima
@@ -287,43 +287,43 @@ Does Hiss Brahmina say? Kima Kimi Principles
 Does? Ready.
 
 [APZ 78.3] (#apz78 .3) {#apz78 .3.ref .apz} "Debate Lie with Whoever
-Will” Your Own Truth Is Your Mousine In What Dimension
+Will" Your Own Truth Is Your Mousine In What Dimension
 Which person with a view does the fuss with? whether to dare, whether to discharge, whether to dispel,
 Whether debating, upset, you will not know this Dhamma discipline. (Here (9-8) 1
-“You should use this doctrine from”.) Constipation, if possible, provokes inflammation.
+"You should use this doctrine from".) Constipation, if possible, provokes inflammation.
 
 [APZ 78.4] (#apz78 .4) {#apz78 .4 .ref .apz} "Season in wallpapers, vicious or
-Nothing” in someone is a person who has a sense of interest towards a person
+Nothing" in someone is a person who has a sense of interest towards a person
 There is no equal dimension on someone who has a high dimension
 No. There is no desensitization. Not scientific. Unlabeeth, Reconction
 Originally, the plant was constipated, the desire to be born, the fire of which the consciousness bends
 burnt.
 
 [APZ 78.5] (#apz78 .5) {#apz78 .5 .ref .apz} "Whoever
-Applicable” is the contentions with any person of any dimension
+Applicable" is the contentions with any person of any dimension
 Does, Behave, Tighs, Dumburies, Debates, Disputes
 Do you know this Dhamma Discipline (here (9-8) 1 You are this Dhamma Disciplinary
 Should be used from. IgnoreYi.
 
 [Msdiv 79] (#msdiv79) {#msdiv79 .ref .msdiv} (9 - 10)
 
-[APZ 79.1] (#apz79 .1) {#apz79 .1 .ref .apz} Ikbithi Halidakani” Named Household
+[APZ 79.1] (#apz79 .1) {#apz79 .1 .ref .apz} Ikbithi Halidakani" Named Household
 Hello the great men of the third, he came in some place and thereon.
 Come, and the great men shall bow down, and they shall lie aside from them.
 Hannau Halidakani Household Hallidakani:
 said. Lord, Octave by Great Individuals, God of the Greater
 In the type of manusorism question,
 
-“Leave the residence of the Munitham (the other Sariva) behaves without a door in the village
+"Leave the residence of the Munitham (the other Sariva) behaves without a door in the village
 Joining is not being presentable from the rooms.
-How to stir with the people”
+How to stir with the people"
 
 By the Lord, by the Individuals, by the LORD
 How to know the meaning of this disenchantment, domesticity,
 The image relics are abode to consciousness, the image relics are bound by the lust
 Okazarie says. Household, the vein, and the housewife, the sign relic,
 The cottage, the editor's relic, is the habitat for consciousness. Edit Current
-Bound consciousness says “Okasagal”, Domestic, thus Ocasal
+Bound consciousness says "Okasagal", Domestic, thus Ocasal
 Behave in the apartment.
 
 [APZ 79.2] (#apz79 .2) {#apz79 .2 .ref .apz} Domestic, How Uncosted
@@ -343,15 +343,15 @@ Anakashari Wei.
 
 [APZ 79.3] (#apz79 .3) {#apz79 .3.ref .apz} Domestic, How to Nicketagal
 (behaves in a dwelling), household, as a dwelling in the image
-Strictly ties say “nikethagal”. Taste of the odor to mark the sound
+Strictly ties say "nikethagal". Taste of the odor to mark the sound
 To be firmly attuned as habitats of the Dhamma mark in the touch of the commemorative
-“Niketasal” says. The household thus says that it is the physical one.
+"Niketasal" says. The household thus says that it is the physical one.
 
 [APZ 79.4] (#apz79 .4) {#apz79 .4 .ref .apz} Domestic, How to Erectified
 Is it? To be firmly attuned to the living quarters of the image
 Reconciliation, the first redemption of the Thaltree into Noothies
 Deadly. Therefore, the other Sariah says that the same thing is. Household, thus
-The “other” is inconspicuous.
+The "other" is inconspicuous.
 
 [APZ 79.5] (#apz79 .5) {#apz79 .5 .ref .apz} How the Household Was the House
 There is a housewife living in this plant where some monks are gone and associated with the dwellings
@@ -412,9 +412,9 @@ The meaning of Bhashithaya should be given in detail.
 
 [Msdiv 80] (#msdiv80) {#msdiv80 .ref .msdiv} (9 - 11)
 
-[APZ 80.1] (#apz80 .1) {#apz80 .1 .ref .apz} "The world is behaving”
+[APZ 80.1] (#apz80 .1) {#apz80 .1 .ref .apz} "The world is behaving"
 A 'yamin' is a certain hard'Separated 'from the Schty Group is from the bodies'
-The head is relaxing. “Behave” is what to behave. Dweller,
+The head is relaxing. "Behave" is what to behave. Dweller,
 controls. Dependent. 'WORL' means (1-2-5 (i) to be applied.)
 
 [APZ 80.2] (#apz80 .2) {#apz80 .2 .ref .apz} "Take them tightly in high order
@@ -424,7 +424,7 @@ The afflicted again, the afflicted, the rescued again, the suffering
 Akushala Dharmayo, the lamatic man, who will give death to the nation. Individuals
 Thus were the two to the congregation. 'All he who has got rid of all clayey bondage
 The bonds of the compounds are released and are unleashed in all thones. Sexy Dirty
-He who has a spirit, says Nagama.” Ready.
+He who has a spirit, says Nagama." Ready.
 
 [APZ 80.3] (#apz80 .3) {#apz80 .3.ref .apz} thus does not go wrong.
 How to name Naga? Vote does not prejudice. Do not prejudice by malice
@@ -444,14 +444,14 @@ Nagathathatha's vision of theLearning and Paramaramarkas
 do not say. Do not promulate. Do not make business.
 
 [APZ 80.6] (#apz80 .6) {#apz80 .6 .ref .apz} "Uninterruptible Water or Mudder
-Like a lotus with a birth thorn,” the water tells the fruit of the buckthorn
+Like a lotus with a birth thorn," the water tells the fruit of the buckthorn
 says. The spectacle tells the roughed rod. Wariyai tells water, premium water
-tells the birth fathers. “Water” says Didyu. The fan tells Madar. Yamsei Water
+tells the birth fathers. "Water" says Didyu. The fan tells Madar. Yamsei Water
 The birthplace is not in the water, and in the marble. Inconspicuant is inconspicuant.
 
 [APZ 80.7] (#apz80 .7) {#apz80 .7 .ref .apz} "The same thing that says
-“Gijuno was not in the room and in the locker” is the parable word.
-What 'moni' says to the consciousness (((2-8) Where “some prominence” in the 10 section
+"Gijuno was not in the room and in the locker" is the parable word.
+What 'moni' says to the consciousness (((2-8) Where "some prominence" in the 10 section
 Should be applied from 14 to the end of the day.) The craving network was exceeded
 The same name Muni.
 
@@ -460,8 +460,8 @@ Shanthias are segmented. 'Terria' contagtions are segmented, Sarana contagtions 
 Debates are Segmented, Mold Debates are Segmented, Nibbana Debates are Segmented. Thus
 Muni is the third shantha.
 
-[APZ 80.9] (#apz80 .9) {#apz80 .9 .ref .apz} is “not a giju”
-Tells the craving, where there is a certain lust ((1-3) a “certain bid” in 4.
+[APZ 80.9] (#apz80 .9) {#apz80 .9 .ref .apz} is "not a giju"
+Tells the craving, where there is a certain lust ((1-3) a "certain bid" in 4.
 Should be used from.) A root of Akushala, and someone's gum was the same.
 If the fire was burned by the fire called consciousness, and was born.
 Giju says not. Instipation of the image in the same way. In the sound of the glow,
@@ -477,7 +477,7 @@ There is the lust that has gone away is the lust that has left behind is the lus
 The redeemed lust is only the secret lust has the whimsindu lust.
 The lost twin was the only one who was supplied to the Brahman dwells in the third place of the pot.
 
-[APZ 80.10] (#apz80 .10) {#apz80 .10 .ref .apz} "Unattached in the room and in the locus”
+[APZ 80.10] (#apz80 .10) {#apz80 .10 .ref .apz} "Unattached in the room and in the locus"
 The 'kama' is mainly two kamas. That is (here 1, 1 (ii) to 3
 (ii) to be applied.)
 
@@ -485,7 +485,7 @@ The 'kama' is mainly two kamas. That is (here 1, 1 (ii) to 3
 Relics of mass locus in the divine of human locus, in the establishment locker
 Ready.
 
-[APZ 80.12] (#apz80 .12) {#apz80 .12 .ref .apz} "Alim”
+[APZ 80.12] (#apz80 .12) {#apz80 .12 .ref .apz} "Alim"
 Two. The craving is also the opticular. Changed 'leapi' instead of 'mother'
 (2-6) 1 (ii) (iii) shall apply)
 
@@ -496,7 +496,7 @@ Ready.
 [Msdiv 81] (#msdiv81) {#msdiv81 .ref .msdiv} (9 - 12)
 
 [APZ 81.1] (#apz81 .1) {#apz81 .1 .ref .apz} "By thinking by seeing the conscious
-Not to become equal” is the rejection of 'No'. Conducting consciousness
+Not to become equal" is the rejection of 'No'. Conducting consciousness
 Says to the four road. Dhamma, Pledge, Pledge Power, Dhamma
 CombodingWitness, Vidyawa, Vipassanawa, Same View, A
 From the pains, the race jara went to the end of the death, and came to the end to Persia
@@ -515,7 +515,7 @@ Whose to the congregation (thus the twoeth) in this locality
 Brahmins, knowing all the verandages of all pain,
 I also called Vedagu, that all the verandals were exceeded. Ready.
 
-[APZ 81.2] (#apz81 .2) {#apz81 .2 .ref .apz} "not seeing” his
+[APZ 81.2] (#apz81 .2) {#apz81 .2 .ref .apz} "not seeing" his
 December viewpoints were made. Stiled. Shantanthi. Sanginaha. To be born
 Aograyanthi. The fire was burned in the name of the wisdom. It does not go from sight. Exclusion
 does not go. The text does not join. That ideology does not go forward in essay.
@@ -526,14 +526,14 @@ Knowing from Pajachendians or hearing from other people or from the Mahajana Con
 does not enter, does not enter, does not enter.
 
 [APZ 81.4] (#apz81 .4) {#apz81 .4 .ref .apz} "The same thing was suppressed
-absent” is not taken either in cravings or in view. It is noble
+absent" is not taken either in cravings or in view. It is noble
 It has not been made. In some way his cravings and the view
 Does the dimension also become prefabricated, like a palm tree that was originally sounded again
 The demise is also taken from the mumps. It's not great
 It is not located.
 
 [APZ 81.5] (#apz81 .5) {#apz81 .5 .ref .apz} "kamma or from what is heard or
-The discipline is not an epoch” is not a kamma in the Pundity Edition
+The discipline is not an epoch" is not a kamma in the Pundity Edition
 or from the Inspicial Edition or the Anneal Edition or not, not available
 The presence of pus should not accumulate.
 
@@ -542,7 +542,7 @@ Not an juist. Going from Inhidient or Inhidient
 Annejabi edited or not. absent, does not float, does not accumulate
 
 [APZ 81.7] (#apz81 .7) {#apz81 .7 .ref .apz} "Intake
-The presence of” is two arrivals, the presence of cravings is the presence of vision
+The presence of" is two arrivals, the presence of cravings is the presence of vision
 (2-6) 1 (ii) (iii) The presence of motherhood should be used discriminately.
 The coming of his craving compaced the coming of the secret into view. Cravings
 The collection was not visited in the home, since it was necessary to collect
@@ -550,14 +550,14 @@ Nakmunai, the deformed, inhabits the unrestrained heart.
 
 [Msdiv 82] (#msdiv82) {#msdiv82 .ref .msdiv} (9 - 13)
 
-[APZ 82.1] (#apz82 .1) {#apz82 .1 .ref .apz} "No problems”
+[APZ 82.1] (#apz82 .1) {#apz82 .1 .ref .apz} "No problems"
 Is the Lady Way in which one is rooted in his skin, and from his very beginning.
 Tackled. Arhema, who arrived in the ArhemaThe girl of the recline
 Mohiyaha, komasasa, business signal, unpacking signal and vision signal
 Convenient of the people. As a whale tree that was originally sounded again
 The demise of the demise.
 
-[APZ 82.2] (#apz82 .2) {#apz82 .2 .ref .apz} "There are no notions in the yard discreet.”
+[APZ 82.2] (#apz82 .2) {#apz82 .2 .ref .apz} "There are no notions in the yard discreet."
 What is more than the Lady's Way, which one manifests, and from his initials
 Submerged. When the Arhema came, the secrets were so unto them that they had to do?
 Nivaranaya and kama signal, business signal, unpacking signal, visual signal
@@ -565,7 +565,7 @@ Convinced. Originally like a kissed whale tree and again to the demise of the no
 Pamununuwa Laddahu
 
 [APZ 82.3] (#apz82 .3) {#apz82 .3.ref .apz} "The signal that someone is the view
-If they were taken intensely, they were clashing and behaving.”
+If they were taken intensely, they were clashing and behaving."
 They take the signal, the business signal, and the unpacking signal, as they signal
 clash. Kings and Kings and Debates, and Mosquitriyaoers and Debates
 Karate. Brahmins also brahmins and debates. Domestics and Housekeepers
@@ -589,7 +589,7 @@ Genesis from Genesis repulses by Genesis
 Discount on concretion, saws, behaving, dwelling,
 Control, Depend.
 
-[APZ 82.4] (#apz82 .4) {#apz82 .4 .ref .apz} "Location” (ii) is in Hell Location
+[APZ 82.4] (#apz82 .4) {#apz82 .4 .ref .apz} "Location" (ii) is in Hell Location
 In human teasness. In the divine, in the world of mass, the entities of the relics of the world.
 Yu
 

@@ -9,7 +9,7 @@ Namo Tassa Bhagavatho Arahatho Sammasambuddhassa
 [Msdiv 1] (# msdiv1) # msdiv1 .ref .msdiv} (1 - 1)
 
 [APZ 1.1] (# apz1.1) # apz1.1 .ref .apz} "
-Materialism is obtained. ”Lust is essentially two parts of lust.
+Materialism is obtained. "Lust is essentially two parts of lust.
 (ii) That is, materialism and depravity. Who are the materialists?
 Delightful images, pleasing sounds, pleasing smells,
 Delightful Flavors, Delightful Touches, And Blankets, Blankets
@@ -252,11 +252,11 @@ This is him.
 A slave who is bought with wealth also becomes a slave. Fear
 Those who are born are also slaves. Men are three men. They will force it.
 Workers. Will live with. (ii) Women and relatives are very lustful
-Says the woman who belongs to the women of. “Bandhu is four relatives
+Says the woman who belongs to the women of. "Bandhu is four relatives
 There are. Relatives are related, relatives are related.
 Relatives regarding spells. He is a relative of the craft.
 Too many lusts means these are too many lusts. That is, the images of the cultivator (here 1, 1
-(ii) should apply from paragraph 3 to the end of paragraph 3 (i)) “A man is there
+(ii) should apply from paragraph 3 to the end of paragraph 3 (i)) "A man is there
 Greedy means someone who is engaged in something like that, in some way
 A Kshatriya or a Brahmin with a particular Dhamma in place
 Vaishya or Shudra or householder or pravrajita or god
@@ -367,7 +367,7 @@ Is asleep. This is the origin of Aratiya (disappointment) and Ratiya (love). Psy
 Arguments arise from this and the children are dragged around like a crow. "
 If the person who is sleeping is in the premises (-danger) (ii) then he is in danger. "
 The danger is subdued by that person. The seduction counts. Suppressed. Cover and spread
-Almost calculated. Madith. Therefore he is in danger. ”He is sad because of that
+Almost calculated. Madith. Therefore he is in danger. "He is sad because of that
 The person chases after the danger and goes after it.
 Goes according to. (iii) Chasing national grief. Follows and follows. Dirty grief,
 Illness, grief, death, grief, grief, grief, grief, grief, grief, grief, grief, grief, grief, grief, grief

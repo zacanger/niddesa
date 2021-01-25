@@ -15,23 +15,23 @@ Sayadda, two debating accused of 'thunaka'
 Two people say, 'This is for two, and two to take away from the prophecy.
 Two people who were taken to the salivator say, 'This is the same, and who were left with lust.
 The same doctrine of two embraces is the same. In that case, Maithurana is the doctrine.
-It has been applied in the Maithurana doctrine: “This Manuthassa”
+It has been applied in the Maithurana doctrine: "This Manuthassa"
 It is it that is heavy, which is bent upon it that is abundant, and that is, it that is heavy, it which is bent upon it, which is multitude, and which is true
 Lord and be true.
 
 [APZ 49.2] (#apz49 .2) {#apz49 .2 .ref .apz}
-In this field,” the spout is the verses joint. Recourse. “Hello” is
+In this field," the spout is the verses joint. Recourse. "Hello" is
 The Favour Word is the Honor Word. 'Tissa is the name of those three. Imposes.
-is the business. Nirukti is the word. Speeches are the Constitution. “Mentia” is a
+is the business. Nirukti is the word. Speeches are the Constitution. "Mentia" is a
 Tribe of the Tribe. Consciousness is the Consciousness.
 
 [APZ 49.3] (#apz49 .3) {#apz49 .3.ref .apz} "Niducan, the trouble
-Let's say” Throat, Tribulation, Colliery, Thickness, Thickness.
+Let's say" Throat, Tribulation, Colliery, Thickness, Thickness.
 
-[APZ 49.4] (#apz49 .4) {#apz49 .4 .ref .apz} "heard your word”
+[APZ 49.4] (#apz49 .4) {#apz49 .4 .ref .apz} "heard your word"
 Deadline, hear sympathies and consider learning.
 
-[APZ 49.5] (#apz49 .5) {#apz49.5 .ref .apz} "Let's take a break.”
+[APZ 49.5] (#apz49 .5) {#apz49.5 .ref .apz} "Let's take a break."
 The rest of the way is three rests. Bodhi Leisure, Grit Leisure, Subway Leisure
 Ready. What is the bodi-rest? (ii) the Mauna of this plant, Rukkulle, Rock,
 Mountain slope rock cave, Sayana in the distant wild, where there is space, Pidurugoda, Tomb
@@ -64,7 +64,7 @@ Leisure to bodess, and pure hearts to be very clean
 Grit rest as a heart purpose for the family of children to visit home
 Subdhi rest is also possible.
 
-[APZ 49.8] (#apz49 .8) {#apz49 .8 .ref .apz} "Hikmenlet at rest.” Is A
+[APZ 49.8] (#apz49 .8) {#apz49 .8 .ref .apz} "Hikmenlet at rest." Is A
 He is the precepts of the prophecy. Dhamma Deshana Strict
 He invites Dharmadeshana, saying: Hikmennemui in Leisure
 So said thou thou, thou thou.
@@ -74,7 +74,7 @@ So said thou thou, thou thou.
 [APZ 50.1] (#apz50 .1) {#apz50 .1 .ref .apz} is (7-1) 1
 (iii) The application should be applied. This is the people of the people who are the three.
 Speak from the prey. The adherents are the Word of Honor. Stop Lust
-Since broken, “I name the spheres. Since malice is broken, the brains are broken
+Since broken, "I name the spheres. Since malice is broken, the brains are broken
 Since put, the dimension is broken as the view is broken
 Since the dhamma is divided into shattered, since all the elbas were broken
 Since the troops went to the end, there is a tide, because there is a cold, because there is a tide.
@@ -98,7 +98,7 @@ In the absence. Not held by two times. The word Bhagawa ends Vimokadawa
 True. The Almighty Buddha of Bodhhihulu
 At the same time of receipt is an imposition.
 
-[APZ 50.2] (#apz50 .2) {#apz50 .2 .ref .apz} "Forgets Dhamma Message.” is
+[APZ 50.2] (#apz50 .2) {#apz50 .2 .ref .apz} "Forgets Dhamma Message." is
 In two things, the flasher is forgotten. The plant is also forgotten.
 The policy is also forgotten. What is the Extension Plant? (ii) Formula,
 Payment, Esteem, Stanza, Udanaya, Saving, Nation, Absolute Doctrine,
@@ -109,19 +109,19 @@ Refluence, Dharamu Dhamma Refluence, IndHammer Door
 Feeling around the borehole, sleepiness, discreet in remembrance, four
 Sathipatthana, Four Samples Chief, Four Negypadatha, Paghachendiriya, Padawaksha Power,
 These doctrines are the policy of Sanath Bothanga, Lady's Octangal Way
-Sal. It is also forgotten. Deviations are deviated. “Mythuwa Tapajjathi” is also animals
+Sal. It is also forgotten. Deviations are deviated. "Mythuwa Tapajjathi" is also animals
 Kill. Trains. Household is also broken. Loot also does. Breaking one house
 makes. They are also making hazards to others. Lies tell. Wrong
 Track Buck.
 
-[APZ 50.3] (#apz50 .3) {#apz50 .3.ref .apz} "This he has done is undeniable.”
+[APZ 50.3] (#apz50 .3) {#apz50 .3.ref .apz} "This he has done is undeniable."
 This is an undoctrine toward the individual. Juvenile doctrine. It is a doctrine.
 A senseless doctrine. Amaravikhep is the myth doctrine. A mythology doctrine
 It is the same. It is the doctrine of insecurity upon him.
 
 [Msdiv 51] (#msdiv51) {#msdiv51 .ref .msdiv} (7 - 3)
 
-[APZ 51.1] (#apz51 .1) {#apz51 .1 .ref .apz} "What's before” is the facts
+[APZ 51.1] (#apz51 .1) {#apz51 .1 .ref .apz} "What's before" is the facts
 Before two, either individually or as separate from the counters or
 All household (ii) how to do before the end of the day.
 Ambuldara Shield Sit Cousins Shield Ginding Mithra
@@ -135,15 +135,15 @@ Stand alone. Example of alone. Behave to give the village alone.Return alone.
 Sit alone in secret. Alone descends to the walkway. Behave alone. postures
 Holds. Thus, it behaves separately from the genus.
 
-[APZ 51.2] (#apz51 .2) {#apz51 .2 .ref .apz} "Does anyone associate”
+[APZ 51.2] (#apz51 .2) {#apz51 .2 .ref .apz} "Does anyone associate"
 The doctrine is that any bad doctrine (7-1) 1 (i) (ii) must also be applied)
-The union of two people saw the Maithurana doctrine. “Someone associates
-Will” is a recent period of time Buddha, Dhamma, Hides, and have left the precept and come down.
+The union of two people saw the Maithurana doctrine. "Someone associates
+Will" is a recent period of time Buddha, Dhamma, Hides, and have left the precept and come down.
 The doctrine is serviced, and is the same.
 
-[APZ 51.3] (#apz51 .3) {#apz51 .3.ref .apz} "In locus he is like a revolving plane”
-“Liner is the arm, the horse, the bull, the goat, the sheep,
-The crown, the mule, the “revolving”, is the undeciphering of the undeciphering.
+[APZ 51.3] (#apz51 .3) {#apz51 .3.ref .apz} "In locus he is like a revolving plane"
+"Liner is the arm, the horse, the bull, the goat, the sheep,
+The crown, the mule, the "revolving", is the undeciphering of the undeciphering.
 The plane goes the wrong way. Rise into a heterogeneous virgo or tree. Carrier also
 Kadai. Injury also. A break plane on the Motion or Hack
 An undecidedly indecent evil way, or the robes of the epipheris.
@@ -165,10 +165,10 @@ Break. Break the third of the precocious subject. The third of the world is brok
 Break. A plane that does not work well, is in the Prop or Hack.
 On the epidermis, the person who has a crusher plane breaks down into the race.
 Hack on the business approach too. Death Promotions Hack, Zhou, Won,
-Domanassa, synapasse is also hack, “in the world” is Hell teases, human
+Domanassa, synapasse is also hack, "in the world" is Hell teases, human
 Toothed.
 
-[APZ 51.4] (#apz51 .4) {#apz51 .4 .ref .apz} "Peoples saws” is
+[APZ 51.4] (#apz51 .4) {#apz51 .4 .ref .apz} "Peoples saws" is
 In any sense, most of the names of the surface are given, many of the names of the surface
 The name of the surface, as there is undisputed spirit view. The face of many people
 The name of the surface, because of the view. As most of all the dynamics are absent.
@@ -182,28 +182,28 @@ Thruthagpeople say that the heat is silent lameness. Thus the saw. Testimonial
 [Msdiv 52] (#msdiv52) {#msdiv52 .ref .msdiv} (7 - 4)
 
 [APZ 52.1] (#apz52 .1) {#apz52 .1 .ref .apz} "Was the reputation of Yaz who filtered him
-Payable”Which resource is the reference? This world is in pre-eminence (ii)
+Payable"Which resource is the reference? This world is in pre-eminence (ii)
 Care Ladddeveda treats multidimensional Ladddeveda
 It is this resource that will be dispensed with medicines in Ladddeveda Siuru Pindahara Ambulance.
 (iii) What is the reputation? (iv) This world is pangy, and discreet
 There was a good understanding of the polyline and the film, but the formulaic or
-Disciplinary Dharma or Dhamma Lecturer, or “Aragadziri”
-“Physiology” or saying “Pansicular” or “Thechivical” or “Thechivical” or
-Say “Provincient” or “Mineral” or “Nezajikka”
-Kia or “reality” received the preferential or secondary center
+Disciplinary Dharma or Dhamma Lecturer, or "Aragadziri"
+"Physiology" or saying "Pansicular" or "Thechivical" or "Thechivical" or
+Say "Provincient" or "Mineral" or "Nezajikka"
+Kia or "reality" received the preferential or secondary center
 received or said that Akasanakhayati received the society or
 Consciousness received the society, or the Anchinavatha received the society
 Kia or Nevadanasagatha received the society. This
-Reputation. “He paid it.” Is Buddha, Dhamma, Hides, Leave the tenet
+Reputation. "He paid it." Is Buddha, Dhamma, Hides, Leave the tenet
 His resource and his reputation is deteriorating. Draw Disappear
 Wei. Break.
 
 [APZ 52.2] (#apz52 .2) {#apz52 .2 .ref .apz} "To see this too
-Hikmennea”, this is also the resource of pre-eminence and reputation
+Hikmennea", this is also the resource of pre-eminence and reputation
 The Buddha, Dhamma, Hides, the precepts of the recent half
 This resource of the scandal and the distress is seen, and the decision is expressed by the decision.
-“Prophecy, Hikmennay” are three precepts: (iii) overburdable, adhibiti,
-princes.” What is the hypothermia? In this plant there is a mauna sil
+"Prophecy, Hikmennay" are three precepts: (iii) overburdable, adhibiti,
+princes." What is the hypothermia? In this plant there is a mauna sil
 Vedi, Divisional Sanctuary Hikmune Vedi, Academically and Gochchery
 The precepts of seeing fear even in the little offense dweltSamaden Hikfatty,
 Small cold, early behavior of the location of the large cold sil, restraint mucus
@@ -233,8 +233,8 @@ And there are equally, and they are.
 
 [Msdiv 53] (#msdiv53) {#msdiv53 .ref .msdiv} (7 - 5)
 
-[APZ 53.1] (#apz53 .1) {#apz53 .1 .ref .apz} "Conceptions”
-The mind is thought out by deviations.” (ii) Kama Concept, Business
+[APZ 53.1] (#apz53 .1) {#apz53 .1 .ref .apz} "Conceptions"
+The mind is thought out by deviations." (ii) Kama Concept, Business
 From conception, from the concept of spanning, from the concept of view
 Justification is the shower. It burns like a foil. Thoughtful.
 Thinking about looking for an attic rat in Yamsee's buckface tree
@@ -255,18 +255,18 @@ Do you lose any of the doctrines, and do you lose mindfulness, in the vassal doc
 Do you lose shame, and do you lose a lot of vassal doctrines, and in the vassal doctrines
 Are you missing a virtue?Are You Lost A Mistress
 Are you missing a sign of doctrines. Hearing the sympathies of their word
-“Domnus is”, in remembrance of the agenas, is the diseases of the conflict that came to the affliction
+"Domnus is", in remembrance of the agenas, is the diseases of the conflict that came to the affliction
 It was said that Domnasauhe was unfolded. It was so that they were pressed.
 It is some robes who have such prophecy.
 
 [Msdiv 54] (#msdiv54) {#msdiv54 .ref .msdiv} (7 - 6)
 
 [APZ 54.1] (#apz54 .1) {#apz54 .1 .ref .apz} "Led by Tales
-Weapons are applied.” “Wana” is a luxury to load the verses
-An application for order. “Arms” are three weapons. Bhoditra, Vagastiya,
+Weapons are applied." "Wana" is a luxury to load the verses
+An application for order. "Arms" are three weapons. Bhoditra, Vagastiya,
 Manas is the manas. The trivial boys' is the boys' character.
 The trivial vocabulary is the vocabulary. Trincomitant Manas
-Manas Shastira “Directed by the stories of the other” is the Bachelor of Degree
+Manas Shastira "Directed by the stories of the other" is the Bachelor of Degree
 by or by academics or by similar degrees.
 Knowing and lying by people or by friends or by accusations.
 Lord, I am alright to the swamp. I should take the mother to the mouth. Hence
@@ -277,12 +277,12 @@ I should make the Friend Pollies. I need to make friends and friends. by mei
 Naiths should be taken. I should also take the place of the Sahale. Hence the robes
 Halweweyi says. The name of words presents the weapon.
 
-[APZ 54.2] (#apz54 .2) {#apz54 .2 .ref .apz} "This Great Greatness of His” is
+[APZ 54.2] (#apz54 .2) {#apz54 .2 .ref .apz} "This Great Greatness of His" is
 The great condensation of this great charisade of his, the great vicious mass of the great desert
 Acquaing itselfAnd the mud, the great wrapping, the great shield—know it and lie.
 
-[APZ 54.3] (#apz54 .3) {#apz54 .3.ref .apz} "Lying away.” Going
-“Lying” tells lies. Some of this world (ii) went to a congregation or
+[APZ 54.3] (#apz54 .3) {#apz54 .3.ref .apz} "Lying away." Going
+"Lying" tells lies. Some of this world (ii) went to a congregation or
 A group of people went to the middle of the relatives or went into the middle of the village or went into the middle of the raja caste
 Or come forward and say, if ye know something that is 'sent here', it reads Shakshi
 Hear says I know what I do not know. The thing that does not know is seen.
@@ -302,7 +302,7 @@ Mucosa is firmly inflicted. descends into muzzanism. Logged in.
 
 [Msdiv 55] (#msdiv55) {#msdiv55 .ref .msdiv} (7 - 7)
 
-[APZ 55.1] (#apz55 .1) {#apz55 .1 .ref .apz} "Know to be”
+[APZ 55.1] (#apz55 .1) {#apz55 .1 .ref .apz} "Know to be"
 Someone in this world is pre-eminent (here (7-4) (ii)
 Must be applied)The term in one behaviour' is the conduct of two things alone
 Determined that is, either as an inconspicuously or as separate from the counters or
@@ -312,11 +312,11 @@ Behavior was left. How to conduct alone as separate from the crescences,
 In this case, (iii) the Hon. (7-3) 1 (iii)
 Should be applied) thus fulfillment of behavior alone apart from the counters.
 
-[APZ 55.2] (#apz55 .2) {#apz55 .2 .ref .apz} "Heetawathi”
+[APZ 55.2] (#apz55 .2) {#apz55 .2 .ref .apz} "Heetawathi"
 The Maithurana doctrine is that some bad doctrine is the Gama doctrine Peek Doctrine
 From the fact that the secret is the union of two people, the doctrine goes. Heathly Recent
 At a time, Buddha gave up the doctrine of the Dhamma and came into low in the Maithurana Dhamma
-The application is available. “Saliva like a fool.” is like a fool from the poor
+The application is available. "Saliva like a fool." is like a fool from the poor
 Comes into the dandelier. Animals kill, thieves, housejoints are broken, robbed
 makes. One makes the house break, the infestation remains. Karma Karma, Liar
 Say, this becomes Kilty. And he will not catch kings, but make them caprish.
@@ -349,7 +349,7 @@ Destroy. Sad suffers due to its destruction, and this comes to grief.
 [Msdiv 56] (#msdiv56) {#msdiv56 .ref .msdiv}
 
 [APZ 56.3] (#apz56 .3) {#apz56 .3.ref .apz} "HERE HERE THIS AREE
-Know” is the reputation of pre-eminence and recent Buddha,
+Know" is the reputation of pre-eminence and recent Buddha,
 Dhamma, Himu Gikshawa and those of Sivuruhlahu, Scandy and this resource
 Determine and determine the adversity. What is Muni
 tells the consciousness. To feel any signal (here (2-4) 12 (ii) to 14
@@ -358,51 +358,51 @@ This float in this discipline of this doctrine of appetite is this persecution o
 In this human locality of this spirit of Brahmecharia of the Sastreus
 Ready.
 
-[APZ 56.4] (#apz56 .4) {#apz56 .4 .ref .apz} "Do behavior strictly” is
+[APZ 56.4] (#apz56 .4) {#apz56 .4 .ref .apz} "Do behavior strictly" is
 Conduct alone in two things. All household shields
 Ambuldaru Pistallideya Cousins Pistallideya Sit Mithura Pistallideya
 If the mesh beard was cut off and the scavenged, then in the shantun
 The pity comes that there is no desire, and behave alone. Close. Thus
 The ordeal behaves alone. Close, dependent. How to
 Whether separation is strictly carried out and behaves, and this is the case ((7-1) 1 (iii) of this section)
-If the Maithurana doctrine of “Maithurana shall not serve”
+If the Maithurana doctrine of "Maithurana shall not serve"
 Doctrine Grama Dharma (here (7-1) 1 (ii) should be applied)
 Dharma is said. Maithurism does not serve. Maithurana Dharma
 Do not behave.
 
 [Msdiv 57] (#msdiv57) {#msdiv57 .ref .msdiv} (7 - 9)
 
-[APZ 57.1] (#apz57 .1) {#apz57 .1 .ref .apz} "Hickman at rest” is
+[APZ 57.1] (#apz57 .1) {#apz57 .1 .ref .apz} "Hickman at rest" is
 The rest is three breaks. It is bodyrelaxation, mort rest, subtlety rest.
-What is the bodi-rest? (Here (1-4) 36 and 38 minutes from the date of the “Sasanaya”
-to be applied to the end) “precepts” are three disciplined hypertenic precepts,
+What is the bodi-rest? (Here (1-4) 36 and 38 minutes from the date of the "Sasanaya"
+to be applied to the end) "precepts" are three disciplined hypertenic precepts,
 Adhibitory precepts, adrenal precepts. (Here (2-4) 1 (ii) to 2
 Should be applied to the end)
 
-[APZ 57.2] (#apz57 .2) {#apz57 .2 .ref .apz} "This is the Lady's High Thing”
+[APZ 57.2] (#apz57 .2) {#apz57 .2 .ref .apz} "This is the Lady's High Thing"
 DegmentSaw Buddha, Buddha, and Buddha, and Lady Buddharaya on the soil.
 There is a certain leiseless conduct, it is unto the Lady, and it is unto him,
-Wise is the most pronounced, the mouth, the high. “By making it in the field
+Wise is the most pronounced, the mouth, the high. "By making it in the field
 Do not think. Is not interested in the behavior of the bodiess. Dimension
 Do not do. Do not try, do not make hardness. Dimension
-Nouveth. It does not take stiffness, go. “Heavenly Niven
-is in the meeting” is in the immediate vicinity of the Nibbana
+Nouveth. It does not take stiffness, go. "Heavenly Niven
+is in the meeting" is in the immediate vicinity of the Nibbana
 Ready.
 
 [Msdiv 58] (#msdiv58) {#msdiv58 .ref .msdiv} (7 - 10)
 
-[APZ 58.1] (#apz58 .1) {#apz58 .1 .ref .apz} "To the grandson who behave nothing”
+[APZ 58.1] (#apz58 .1) {#apz58 .1 .ref .apz} "To the grandson who behave nothing"
 There is nothing in the way of leisure, from the lotion of the bodiess
 The rest of the wachi, the rest of the misery, and the rest of the maniduchery
 From lust, from blessing, by crochet, by insanity, from Makukamine province
 In jealousy, in marshy, in delusionism, in jealousy, in congestion, in collective
 The dimension is very much in size, all from all the elbres
 From the impoverished, all from all the burns, all from all the stains
-The gathering of Akusal tells the relatives what to “Munihu”
-(2-4) 12 (ii) to 14) The “behaving” is to behave
+The gathering of Akusal tells the relatives what to "Munihu"
+(2-4) 12 (ii) to 14) The "behaving" is to behave
 The dwellings are held, and the postures are held.
 
-[APZ 58.2] (#apz58 .2) {#apz58 .2 .ref .apz} "The rooms were hopeless”
+[APZ 58.2] (#apz58 .2) {#apz58 .2 .ref .apz} "The rooms were hopeless"
 There are mainly two kamas, if they were kamahikamai.
 (1, 1 (ii) to 3 (ii) shall apply.) Knowing objects
 Except that there was no apeksha in the room, and brought them into the noopathana, and he did not dispose of the kama

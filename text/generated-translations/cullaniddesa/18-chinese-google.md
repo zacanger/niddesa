@@ -10,7 +10,7 @@ Blessed One", this is a respectful synonym... (abbreviated) Anri (pseudonym) who
 testified, that is, the Blessed One." Said this for the Blessed One. ""When you
 live in Magadha", when you live in the kingdom of Magadha, act, turn around,
 guard, survive, and survive. "When Bosha leads the Gota Temple", Bosha leads the
-Gota The temple is called the Buddha as a seat.” It is when I lived in the
+Gota The temple is called the Buddha as a seat." It is when I lived in the
 Megata Bosaring Gata Temple.
 
 "To the sixteen brahmins who serve": "Binchia Brahmins are followers,
@@ -55,7 +55,7 @@ and the answer is the truth." After knowing the reason, after understanding,
 after weighing, after judging, after separating, after clarifying." In order to
 know the afterword . "After knowing the Dhamma", "after knowing the Dhamma,
 after understanding, after measuring, after judging, after separating, after
-clarifying. 』In order to know the Fa. "In order to know the truth, after
+clarifying. "In order to know the Fa. "In order to know the truth, after
 knowing the Fa. "Able to follow the law and practice": "The correct way, the way
 that follows the way, the way that is not reversed [, the way that does not
 contradict (the way that there is no contradiction)], the way that it means, the
@@ -189,7 +189,7 @@ stated like that." For the question asked, truthfully.
 establish, uncover, analyze, clarify, and explain." is the answer to the
 problem.
 
-「Muni Ambassador Brahmin"We are satisfied": ""Satisfy", make satisfaction, make
+'Muni Ambassador Brahmin"We are satisfied": ""Satisfy", make satisfaction, make
 expansion satisfied, make clear, make joy, and produce pleasure. "Brahmins" are
 sixteen Brahmins who work for the other side of the road. "Muni" is called Muna
 For wisdom... (slightly omitted) After dyeing the net, he is Muni." For Muni,
@@ -208,7 +208,7 @@ They do Brahma: in front of the noble and wise.
 
 "They are satisfied by those with eyes": ""They" are sixteen Brahmins who are on
 the other side. To be "satisfied", to be satisfied, to be expanded, to be clear,
-to be rejoiced, to be happy. 』Be satisfied for them. "Eyes", the Blessed One
+to be rejoiced, to be happy. "Be satisfied for them. "Eyes", the Blessed One
 regards the five eyes as those who have eyes: the naked eye is the eye, the sky
 eye is also the eye, the wisdom eye is also the eye, the Buddha's eye is also
 the eye, and all eyes are also the eye . How does the Blessed One regard the

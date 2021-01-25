@@ -1,7 +1,7 @@
 8. Explanations asked by the Brahmin of the Black Margaret student
 
 53. [Venerable Black Margaret like this:] Whatever they told me before, before
-    Gautam’s teaching,
+    Gautam's teaching,
 
 like this that was, like this, that will be, that is all rumors,
 
@@ -10,7 +10,7 @@ That's all an increase in theory, I didn't have much joy there.
 "What they told me before": "Fan Bawali Brahman and all other his Asari, they
 explain, explain, teach, inform, establish, uncover, analyze, clarify, explain
 those own views, their own favorites, My hobbies, my own opinions, my own
-intentions, my own intentions.” As Fan told me before.
+intentions, my own intentions." As Fan told me before.
 
 "[Like this Venerable Black Marge]": ""Like this", the continuation of the
 sentence... (slightly omitted) This is the order of the sentence, "Like this".
@@ -48,7 +48,7 @@ didn't prove it, didn't get it." Because I didn't have great joy there.
 Because of that, the brahmin said:
 
 "[Venerable Black Margaret like this:] Whatever they told me before, before Qiao
-Damo’s teaching
+Damo's teaching
 
 like this that was, like this, that will be, that is all rumors,
 

@@ -18,56 +18,56 @@ toward.
 How is the starting point of reincarnation unknown? "Only this kind of birth
 cycle revolves, and then does not revolve. "It's really not the case, this is
 the starting point of reincarnation is not known. "Only such a hundred births
-revolved around, but not afterwards. 』This is indeed not the case, this is also
+revolved around, but not afterwards. "This is indeed not the case, this is also
 the starting point of reincarnation is not known. "Only such a thousand births
-revolved around, but did not revolve afterwards. 』This is indeed not the case,
+revolved around, but did not revolve afterwards. "This is indeed not the case,
 this is also the starting point of reincarnation is not known. "Only these
-hundreds of thousands of births revolve around, but not afterwards. 』This is
+hundreds of thousands of births revolve around, but not afterwards. "This is
 indeed not the case, this is also the starting point of reincarnation is not
 known. "Only these tens of thousands of births revolve around, but not
-afterwards. 』This is indeed not the case, this is also the starting point of
+afterwards. "This is indeed not the case, this is also the starting point of
 reincarnation is not known. "Only such tens of millions of births revolved
-around, but not afterwards. 』This is indeed not the case, this is also the
+around, but not afterwards. "This is indeed not the case, this is also the
 starting point of reincarnation is not known. "Thousands of births like this
-revolved around, but didn’t revolve afterwards. 』This is indeed not the case,
+revolved around, but didn't revolve afterwards. "This is indeed not the case,
 this is also the starting point of reincarnation is not known. "Only such tens
-of thousands of births revolve around, but not afterwards. 』This is indeed not
+of thousands of births revolve around, but not afterwards. "This is indeed not
 the case, this is also the starting point of reincarnation is not known.
 
-『Only like this one year, it turns around, and then it doesn’t turn around.
-』This is indeed not the case, this is also the starting point of reincarnation
+"Only like this one year, it turns around, and then it doesn't turn around.
+"This is indeed not the case, this is also the starting point of reincarnation
 is not known. "Only this one-hundred-year cycle revolved, but not afterwards.
-』This is indeed not the case, this is also the starting point of reincarnation
-is not known. "Only this millennium cycle started, and then it didn’t. 』This is
+"This is indeed not the case, this is also the starting point of reincarnation
+is not known. "Only this millennium cycle started, and then it didn't. "This is
 indeed not the case, this is also the starting point of reincarnation is not
 known. "Only this one hundred thousand years of rotation started, but not
-afterwards. 』This is indeed not the case, this is also the starting point of
+afterwards. "This is indeed not the case, this is also the starting point of
 reincarnation is not known. "It's just that the tens of thousands of years have
-revolved around, and it will not revolve afterwards. 』This is indeed not the
+revolved around, and it will not revolve afterwards. "This is indeed not the
 case, this is also the starting point of reincarnation is not known. "Only such
-a cycle of tens of millions of years revolves, and then does not revolve. 』This
+a cycle of tens of millions of years revolves, and then does not revolve. "This
 is indeed not the case, this is also the starting point of reincarnation is not
 known. "Only such a cycle of thousands of years revolves, and then it does not
-revolve. 』This is indeed not the case, this is also the starting point of
+revolve. "This is indeed not the case, this is also the starting point of
 reincarnation is not known. "It's just that these tens of thousands of years
-have turned around, and then they won't. 』This is indeed not the case, this is
+have turned around, and then they won't. "This is indeed not the case, this is
 also the starting point of reincarnation is not known.
 
-『Only this kind of catastrophe revolved around, but not afterwards. 』This is
+"Only this kind of catastrophe revolved around, but not afterwards. "This is
 indeed not the case, this is also the starting point of reincarnation is not
 known. "Only this kind of Hundred Tribulations revolved, but not afterwards.
-』This is indeed not the case, this is also the starting point of reincarnation
+"This is indeed not the case, this is also the starting point of reincarnation
 is not known. "Only such a thousand tribulations revolved, but not afterwards.
-』This is indeed not the case, this is also the starting point of reincarnation
+"This is indeed not the case, this is also the starting point of reincarnation
 is not known. "It's just that the cycle of Hundred and Thousand Tribulations
-revolves, but not afterwards. 』This is indeed not the case, this is also the
+revolves, but not afterwards. "This is indeed not the case, this is also the
 starting point of reincarnation is not known. "Only this kind of tens of
-thousands of calamities revolved around, but not afterwards. 』This is indeed
+thousands of calamities revolved around, but not afterwards. "This is indeed
 not the case, this is also the starting point of reincarnation is not known.
 "It's just that the tens of millions of calamities revolve around, and then they
-don’t. 』This is indeed not the case, this is also the starting point of
+don't. "This is indeed not the case, this is also the starting point of
 reincarnation is not known. "It's just that the tens of thousands of
-tribulations revolve around, and then they don’t. 』This is indeed not the case,
+tribulations revolve around, and then they don't. "This is indeed not the case,
 this is also the starting point of reincarnation is not known. "It's just that
 the tens of thousands of tribulations have revolved around, and then they won't.
 "It's really not the case, this is also the starting point of reincarnation.
@@ -81,7 +81,7 @@ dye! Enough for relief! [SN.15.1] "This is also the starting point of
 reincarnation.
 
 How is the end of reincarnation unknown? "Only this birth cycle will rotate, and
-thereafter it will not rotate. 』This is indeed not the case, this is the end of
+thereafter it will not rotate. "This is indeed not the case, this is the end of
 reincarnation is not known. "Only such a hundredOne birth...only such a thousand
 births...only such a hundred thousand births...only such a million births...only
 such a million births...only such a thousand births... Only such tens of
@@ -94,7 +94,7 @@ calamities...only such a hundred Thousands of tribulations...only this kind of
 tens of thousands of tribulations...only this kind of tens of thousands of
 tribulations...only this kind of tens of thousands of tribulations...only this
 kind of tens of thousands of tribulations will revolve, and will not revolve
-afterwards. 』This is indeed not the case, this is also the end of reincarnation
+afterwards. "This is indeed not the case, this is also the end of reincarnation
 is not known. In this way, the starting point of samsara is not known, and the
 end of samsara is not known. Just in the middle of samsara, sentient beings are
 abided, stopped, stuck, entered, stained, and turned their hearts toward them.
@@ -102,13 +102,13 @@ abided, stopped, stuck, entered, stained, and turned their hearts toward them.
 
 "[Like this Venerable Ge Bo]": ""Like this", the continuation of the sentence...
 (abbreviated) "Venerable", this is a love language... (abbreviated) "Ge Bo", the
-name of the Brahman... …(Omitted) Title.” It is [Venerable Ge Bo like this].
+name of the Brahman... …(Omitted) Title." It is [Venerable Ge Bo like this].
 
 "When the great horror exposure is arising": "When the exposure of desire, the
 exposure of some, the exposure of seeing, and the exposure of ignorance are
 arising, being produced, being born, being born, and being presented. The great
-horror”, the horror in life, the horror in the old, the horror in the sickness,
-and the horror in the death.” For when the great horror is exposed.
+horror", the horror in life, the horror in the old, the horror in the sickness,
+and the horror in the death." For when the great horror is exposed.
 
 "For those who are tortured by aging and death": "For those who are contacted,
 tortured, combined, and possessed by aging; for those who are contacted,
@@ -177,8 +177,8 @@ name. "World-zun", this is a respectful synonym... (abbreviated) Anli
 "When the great horror exposure is arising": "When the exposure of desire, the
 exposure of some, the exposure of seeing, and the exposure of ignorance are
 arising, being produced, being born, being born, and being presented. The great
-horror”, the horror in life, the horror in the old, the horror in the sickness,
-and the horror in the death.” For when the great horror is exposed.
+horror", the horror in life, the horror in the old, the horror in the sickness,
+and the horror in the death." For when the great horror is exposed.
 
 "To those tortured by aging and death": "To those who are exposed to, tortured,
 combined, and possessed by aging; to those who are contacted, tortured,
@@ -269,8 +269,8 @@ completely cool.
 of the demon, the ruler of darkness, the one who has reached the limit, the
 demon, and the liberated. "They do not follow the control of the devil": "They
 do not turn under the control of the devil, nor do the devil make the control
-turn on them. The devil, the devil’s party, the devil’s fishing hook, the
-devil’s food, the devil’s The realm of the devil, the residence of the demon,
+turn on them. The devil, the devil's party, the devil's fishing hook, the
+devil's food, the devil's The realm of the devil, the residence of the demon,
 the state of the demon, and the bond of the demon bind them to victory, defeat,
 overwhelm, end, crush, move, stay, act, turn, guard, survive, and survive." For
 them not follow. Yu Mo's control.

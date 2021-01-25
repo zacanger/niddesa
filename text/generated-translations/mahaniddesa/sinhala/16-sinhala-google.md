@@ -123,7 +123,7 @@ Do not mourn the cries of the faces All the household pests except the crowd, wi
 Cut off the pest, gather the pest and remove the hair and put on the kasawat.
 Leaving the laity, the priest comes to nothing and behaves alone. Residence
 Does. Maintains posture. Controls. Depends. Thus the Blessed One
-He is incomparable to the priesthood. “How lucky the Lord is because there is no second
+He is incomparable to the priesthood. "How lucky the Lord is because there is no second
 Is it amazing? He was thus ordained, alone in the distant sounds of the forest
 Suitable for secretive activities of people who have little noise and no noise
 Serves as resting-place monasteries. He behaves alone. Alone.
@@ -141,8 +141,8 @@ Sasara, which is very long in manhood, comes from this soul to the other soul an
 Does not exceed "
 
 "The monk himself has the desire to know and get rid of this derivation of the desire that causes suffering
-Mindfulness removes that desire. ”Thus the Blessed One said,“ Desire
-He is incomparable in a distant sense. “How Blessed are the Absolute Vitaraga
+Mindfulness removes that desire. "Thus the Blessed One said," Desire
+He is incomparable in a distant sense. "How Blessed are the Absolute Vitaraga
 Is it amazing? Since the lust has been removed, the positive vitaraganu is unbelievable. Hatred
 It is unbelievable that there are hatreds that are definitely excluded because they are useless. The illusion is futile
 Therefore, it is unbelievable because it is positive. Because the defilements were debilitating
@@ -351,7 +351,7 @@ Don't be shaken by facts '' means 'something' by some frightening facts
 That is. Seeing or hearing horrible things does not make you tremble, nor does it frighten you
 He is not afraid. The one who is not afraid is the one who has distant fears
 Disappeared lomaharsha means to dwell. Some of the monk's noisy monastery
-Don’t be shaken by the scary stuff, which means there’s little noise and little noise
+Don't be shaken by the scary stuff, which means there's little noise and little noise
 Suitable for leisure, suitable for the secret affairs of empty men
 In the convent.
 
@@ -406,7 +406,7 @@ That is to say, one who is pure
 [APZ 196.2] (# apz196.2) # apz196.2 .ref .apz} "What kind of person is here?
 If so, what is the nature of the person who is behaving here?
 Criticizes (should) conduct in any sense by any means in a note,
-There are do's and don'ts. What’s invisible, someone here
+There are do's and don'ts. What's invisible, someone here
 Prostitutes behave where they are. The owner is where the dead women live,
 Where the girls live, where the monks live, where the monks live, where the alcohol is
 Where Karana resides, he allies himself with kings and royal nobles
@@ -450,7 +450,7 @@ Purity is questioned. What is virtuous purity? There is also virtue and virtue. 
 (3-3) Paragraph 2 should be used.)
 
 [APZ 196.6] (# apz196.6) # apz196.6 .ref .apz} "This is virtuous purity.
-What kind of virtuous person would you be? ”
+What kind of virtuous person would you be? "
 "That gentleman with the fatigue that started" really means the aspiring soul
 The fatigue that started is really there. Strong-willed, relentless,
 It means one who has the unconditional courage in the virtues of the unwilling will.
@@ -715,7 +715,7 @@ Does not go "if the anger of a certain mind has anger or hatred?
 If there is unhappiness in the mind, it is superstition
 By tribe or caste or body color or wealth ((3-2) 5 (ii)
 Should be used) separately or insulting the other
-“Anger hDoes not succumb to the temptation of the supernatural "means anger and the temptation of the supernatural
+"Anger hDoes not succumb to the temptation of the supernatural "means anger and the temptation of the supernatural
 Will not go. Removes anger and superstition. Calms down. Into the unborn
 Leads, that is.
 
@@ -762,7 +762,7 @@ On the way back and here it is well minded. In eating, drinking, and breaking
 He is also mindful of taste. There is a good mind to defecate.
 In walking, in standing, in sitting, in sleeping, in waking.
 There is good mindfulness in speaking and in silence. In this way also wisdom comes first
-That is. “Kalyana joy is the joy of remembering the Buddha
+That is. "Kalyana joy is the joy of remembering the Buddha
 Even if a bliss is born, by remembering the Dhamma, by remembering the Sangha, virtuous remembrance
 Doing, remembering the gift, remembering twice, remembering the pain
 By doing, by remembering the breath, by remembering death,
@@ -794,7 +794,7 @@ Whether I eat it or not, it depends on the Kshatriya caste
 In the Brahmin caste or in the Vaishya caste or in the Shudra caste
 
 [APZ 205.2] (# apz205.2) # apz205.2 .ref .apz} "I slept sadly. How today
-Will I sleep? ”This night on the grass on the mat or on the mat or in the leather shop
+Will I sleep? "This night on the grass on the mat or on the mat or in the leather shop
 I slept on a blanket or a sheet of leaves or a sheet of straw. Coming night
 Where to sleep comfortably in bed or chair or pillow, pillows
 In a bed or in a temple, or in a house or palace with a roof like the wings of a guru
@@ -804,7 +804,7 @@ The two arguments about whether the weeping nature is the weeping nature,
 Of a mourning nature, that is.
 
 [APZ 205.3] (# apz205.3) # apz205.3 .ref .apz} "malware (without threat)
-Discipline is discipline. ”By what means is“ discipline ”?
+Discipline is discipline. "By what means is" discipline "?
 Discipline is discipline. What is discipline? In hyperhidrosis
 Discipline. Discipline is also in the higher mind. Discipline is also in the super-wisdom. Superficial
 What is the discipline, ((2-4) 1 (ii) 2, applied to the supernatural discipline?
@@ -887,7 +887,7 @@ Must) be happy to be back on the couch or on the sidelines
 ((Ii) should be used here.)
 
 [APZ 206.6] (# apz206.6) # apz206.6 .ref .apz} "The same results
-The subject is a person who travels in the village, ”he said
+The subject is a person who travels in the village, "he said
 ResultsThe subject faded "in the seat of the Pindapatha of the Chivara
 This is how he protected the patients in the hospital
 Protected means "a village traveler" in some way
@@ -921,7 +921,7 @@ Dhyana was engaged in the practice of giving birth to or being engaged in medita
 Rebirth or rebirth is often consumed and grows more abundantly. Thus
 Meditation consists of birth or secondary meditation, tertiary meditation,
 The Four Noble Truths are often consumed and grown. It grows abundantly. Thus also by meditation
-Was. “Most sleep deprivation is a sewing day walk here
+Was. "Most sleep deprivation is a sewing day walk here
 From the cover-ups of sitting (with) Purifies the mind. First night
 Yamaya purifies the mind from covering dhammas by sitting in a walk. Night
 The idea of getting up in the middle of nowhere is to keep the foot together and mindfulness
@@ -949,7 +949,7 @@ The existence of the mind. Anxiety is the existence of the mind. "Cuckoo" means,
 (i) The paragraph should be used.)
 
 [APZ 207.5] (# apz207.5) # apz207.5 .ref .apz} "Eroticism and Lust
-The signal and the cuckoo will be extinguished. ”
+The signal and the cuckoo will be extinguished. "
 Destroys, cuts, dispels, expels, quenches
 That is to say.
 
@@ -971,7 +971,7 @@ Is. He wants to be mindful of this accusation.
 Appropriate punishment for a minor offense and a warning
 It is as if the great treasures were filled with gold
 The service of a wise man. Unless anyone is volunteering to come up with a pretty template?
-There is nothing wrong with that. ”Avoiding the evil of admonishing others.
+There is nothing wrong with that. "Avoiding the evil of admonishing others.
 The best friend in the world is the one who is good to the bad
 Disgusting. "
 
@@ -1024,7 +1024,7 @@ Whether there is a reminder, whether there is a feeling, whether there is a remi
 Weekly, weekly, weekly, weekly, weekly,
 The Vedas say that this path is mindfulness. With this in mind,
 Specially composed, came, and occurred. He says he is conscious.
-“Some images with mindfulness are disciplined in order to ward off rags” is mindfulness
+"Some images with mindfulness are disciplined in order to ward off rags" is mindfulness
 The person himself is the possession of certain image passions, sound passions, smell passions and taste passions
 To discipline, to dispel, to soothe, to touch, to touch In order to be superficial
 Discipline. Superstition also disciplines. Wisdom is the prime thing. These disciplines
@@ -1061,9 +1061,9 @@ Should be used)
 The time of "Samskara Dhamma" is when there is a scattered mind
 It is time for meditation. When the mind is concentrated, it is time for Vidarshana.
 
-“The yogi who is skilled in sense of time tries the mind at the right time
+"The yogi who is skilled in sense of time tries the mind at the right time
 Insults at another time. Sometimes it makes the mind happy. Once the mind is calm
-Does. Moderates at times. “Trying the mind of the yogiAt what time
+Does. Moderates at times. "Trying the mind of the yogiAt what time
 When to humiliate, when to please, when to bury
 At what time, and how? "
 
@@ -1074,7 +1074,7 @@ That 's it.
 
 [APZ 210.4] (# apz210.4) # apz210.4 .ref .apz} "
 The Veda knows the agreed mind and becomes neutral in it. Time to be smart
-The wise man who knows knows the signs of the past. “At the right time
+The wise man who knows knows the signs of the past. "At the right time
 He thoroughly inquires into the doctrine of Sanskrit. "
 The impermanent, well-edited doctrine seeks that all editors are miserable
 Samskara Dhamma asks that all Dhammas are infinite and Samskara Dhamma is well known

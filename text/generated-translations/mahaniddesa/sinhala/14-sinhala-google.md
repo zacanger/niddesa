@@ -7,7 +7,7 @@
 [Msdiv 150] (# msdiv150) # msdiv150 .ref .msdiv} (14 - 1)
 
 [APZ 150.1] (# apz150.1) {# apz150.1 .ref .apz} "Sun-bound Buddha
-I ask God this. ”(I) There are three questions
+I ask God this. "(I) There are three questions
 Questioning to make known In order to equate what is seen, questions
 Questioning means to break the wonder of doing.
 
@@ -208,7 +208,7 @@ Not opened. Not distributed. Unpublished Was, that is.
 [Msdiv 153] (# msdiv153) # msdiv153 .ref .msdiv} (14 - 4)
 
 [APZ 153.1] (# apz153.1) # apz153.1 .ref .apz} "It's great
-Does not think ”(ii) race or tribe or clan or color
+Does not think "(ii) race or tribe or clan or color
 From wealth or wealth or education or industry or craftsmanship
 Other things separate from the scientific place or from the sage or the genius
 From or
@@ -236,7 +236,7 @@ Soothes, soothes, soothes, expels,
 That is.
 
 [APZ 154.2] (# apz154.2) {# apz154.2 .ref .apz} "The Other Way of Monasticism
-Does not seek peace. ”Is a myth in a strange way
+Does not seek peace. "Is a myth in a strange way
 In a non-satirical way, except in the Satipatthnas,
 Samyak except from the chiefs, except from the limbs, except from the senses
 Except for the powers, except for the Bodhisattvas, except for the Aryan octagonal path
@@ -284,7 +284,7 @@ Not shaken by humiliation either. The supply is not shaken either. Sadness does 
 It does not move.
 
 [APZ 155.3] (# apz155.3) # apz155.3 .ref .apz} "Bhikkhu Nowhere
-Does not collect. ”The Ussadayo (defilement) is an animal.
+Does not collect. "The Ussadayo (defilement) is an animal.
 Vessassadaya Mohussadaya, Manussadaya, Dittussadaya, Kammussadaya
 Does not, does not produce. Does not cause, anywhere means somewhere inside
 Or outside means.
@@ -458,7 +458,7 @@ Please open. Please share. Please make it public. Lord, that is
 The created image addresses the Blessed Ones of the Buddha. Again or
 Have you preached, said, imposed, or laid down any doctrine?
 Whether opened, divided, or made public, it is all beautiful, good,
-That’s right, service is work
+That's right, service is work
 
 [APZ 156.11] (# apz156.11) # apz156.11 .ref .apz} "Pratimoksha is back or
 Samadhi "means Pratimoksha, the virtuous state, situated in the Kushala Dhammas
@@ -503,7 +503,7 @@ Chakshur is an outcast. Non-adherent exits, separated boundaries
 Lives without a mind.
 
 [APZ 157.3] (# apz157.3) # apz157.3 .ref .apz} "Ear cover from village story
-Does ”is a rural story told to twenty-two beast stories.
+Does "is a rural story told to twenty-two beast stories.
 Fear of kings, of thieves, of nobles, of armies
 Of, warAbout food, about food, about drinks, about clothes,
 Village about planes, couches, series, scents, relatives
@@ -551,7 +551,7 @@ Anywhere, anywhere, on the inside or on the outside or on the outside.
 
 [APZ 158.2] (# apz158.2) {# apz158.2 .ref .apz} "having lust in nature
 Does not "does not lust in lust, nor does he lust in images
-Does not desire in nature either. ‘Do not be afraid of anything terrible’ is one
+Does not desire in nature either. 'Do not be afraid of anything terrible' is one
 This is preached by the Blessed One himself in a way that is both frightening and frightening
 Was.
 
@@ -747,7 +747,7 @@ Crumbs, mouthpieces, handcuffs, sikha, sticks, swords, umbrellas,
 Ornaments, Forehead, Gems, Wolverine, White Clothing, Telescope
 Layman's attire. Who are the priest's robes? Chivara Bharana, Pothara Bharana,
 Senasana bharana, the desire to wear, to adorn, the outer fillets of this filthy body,
-Greed and agility are the jewels of this priest. “Malice, deceit, laughter
+Greed and agility are the jewels of this priest. "Malice, deceit, laughter
 Removes sport, sexuality, adornment "means reluctance, deceit, laughter,
 The sport of sex is also about adornment, entourage, and goods,
 It also removes the presence of pimples. Discards. Which leads to infertility.
@@ -818,7 +818,7 @@ Those who do not speak, those who do not have the dimension to move forward, and
 The monks are uncles. Mahanai, those bhikkhus are those who are not enlightened by this Dhamma Vinaya.
 Mahanai, those bhikkhus will become superior to grow in this Sasana.
 
-“They are the restless Buddhas who have the dimension of moving in the face of hypocrisy
+"They are the restless Buddhas who have the dimension of moving in the face of hypocrisy
 God does not come to grow in the two senses, but without hypocrisy
 They are calm without the dimension of walking in front of them by the Lord Buddha
 Desitha comes to grow in Sasana.
@@ -896,7 +896,7 @@ Walks away from the deal. Is a separatist. The boundaries of the Exodus were sep
 It means closing with an untouched mind.
 
 [APZ 164.2] (# apz164.2) # apz164.2 .ref .apz} "
-Who does not defile? ”Righteous prophecies
+Who does not defile? "Righteous prophecies
 There are some shramana brahmins who know the minds of others. They see from a distance
 Not seen nearby. The mind knows the mind. The minds of others with wise prophecies
 There are also known deities. They see from a distance. The mind that does not see near
@@ -958,7 +958,7 @@ Do, respect? Praise be to Allaah, the Lord of the Worlds
 Keep talking to people.
 
 [APZ 164.5] (# apz164.5) # apz164.5 .ref .apz} "People talk for profit
-Does not. ”Is profit with the intention of generating profit in terms of profit
+Does not. "Is profit with the intention of generating profit in terms of profit
 Does not speak to people to complete. The speech fades away. To not give up
 Is. The one who stays away from the (deceitful) story is separated with an unrestricted mind
 Means to close
@@ -1084,7 +1084,7 @@ Removes disputes, distances. From Conflict Analysis Debate Media
 Is a distant one. Separated Exodus resides with an unrestricted mind.
 
 [APZ 167.3] (# apz167.3) # apz167.3 .ref .apz} "The Saint is the Opponent
-Will not do. "Of “Shantha is the name of the saint because lust is quenched
+Will not do. "Of "Shantha is the name of the saint because lust is quenched
 St. because it is soothing. St. because it calms the mind. (3-4) 1 para
 Should be used.) All akushala collections are soothed and discarded as twins
 St. because he went. "The saint does not do the opposite."
@@ -1163,7 +1163,7 @@ In the real Sasana of the Sasana, in the Arahant Sasana of the Sasana of God
 That is.
 
 [APZ 169.4] (# apz169.4) # apz169.4 .ref .apz} "Delay is always
-Worship is disciplined accordingly, ”the Blessed One said
+Worship is disciplined accordingly, "the Blessed One said
 Immediateness is the preparation of meritocracy (here (14-19) 5 (ii)
 Paragraph should be applied). Always means always, all the time, all the time
 ((14-2) 5 (i) should be applied to the place of mindfulness) In the last age

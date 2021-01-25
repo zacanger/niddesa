@@ -7,10 +7,10 @@
 [Msdiv 156] (#msdiv156) {#msdiv156 .ref .msdiv} "Immaculate Noble Pledge
 Has he seen those who have no cravings, and so
 Dehenakalaseem. Gone according to the pharaic doctrine. Lying because of what fact
-Pingiyatha,” said.
+Pingiyatha," said.
 
 [Msdiv 157] (#msdiv157) {#msdiv157 .ref .msdiv} "Dimension and virtuality
-The word of glamour of the properties of buddha with blossom and brains”
+The word of glamour of the properties of buddha with blossom and brains"
 Now I will say.
 
 [Msdiv 158] (#msdiv158) {#msdiv158 .ref .msdiv} "The hypnotic of the paasas bliss
@@ -75,7 +75,7 @@ Infants.
 
 [Msdiv 174] (#msdiv174) {#msdiv174 .ref .msdiv} "Unshaking Change from Ragad
 There is no overheat that resembles a Buddha that is not, in that way, Nibbana
-Go to the relic. There is no doubt here. Thus behold me, the marrow is heartened.”
+Go to the relic. There is no doubt here. Thus behold me, the marrow is heartened."
 
 Parayanugithigatha Nitththatha.
 

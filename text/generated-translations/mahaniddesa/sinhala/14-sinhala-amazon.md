@@ -23,7 +23,7 @@ There is also a visual examination in order to compare it to the media.
 Question critique. What this saw was to question in order to compare.
 
 [APZ 150.4] (#apz150 .4) {#apz150 .4 .ref .apz} "Question to Query
-What to do” is thus, what will not be, and how will be by the provert
+What to do" is thus, what will not be, and how will be by the provert
 The doubt came to the inquiry whether two ideas were taken. Hemma query
 The question is critiqued for trimming. This is the question review to trim the query. This
 Three Critics Anickudu Question Critics.
@@ -62,7 +62,7 @@ Question about it.
 
 [APZ 150.7] (#apz150 .7) {#apz150 .7 .ref .apz} "Critique of him is from him
 Critics ask him. I invite him. I put him down. Told me it
-Commentations. Yue said to the solarist “Adichabandhu”.
+Commentations. Yue said to the solarist "Adichabandhu".
 (iii) The solar is also from the prey. The spheres are also from the prey
 Goumu Wei. The prophets are a prey relative of the solar. Gothra
 Binder. Therefore, Buddhist named Alamthu Bandhu.
@@ -71,7 +71,7 @@ Binder. Therefore, Buddhist named Alamthu Bandhu.
 Leisure and Shanthi verse are three leisure (7-1) 5 (ii) to 7
 The termination of the ballot should be used.
 
-[APZ 150.9] (#apz150 .9) {#apz150 .9 .ref .apz} "Shanty” is one way
+[APZ 150.9] (#apz150 .9) {#apz150 .9 .ref .apz} "Shanty" is one way
 Shantia is also the term Shanthi. It is the impeccable Nibbana. All of a doctrine
 The editors noted that all the girl was excluded whether the craving was paid, and the breaks
 Nibbana is the Nibbana Nibbana. Yelidu or any Dhamma Shanthi
@@ -81,8 +81,8 @@ Pajachendiriyo Pandakhabayayo Sapthabokayo Lady Octagonal Road
 They are the shanthyapadah, the guarding verse, the knife. SanctuaryDYING, Non Magnetic
 The verse says the word, the word, the Nibbana verse.
 
-[APZ 150.10] (#apz150 .10) {#apz150 .10 .ref .apz} Maharshi” is Maharshi
-He is the one who is the one. The gentleman searched for a cold, therefore “Maharshi”
+[APZ 150.10] (#apz150 .10) {#apz150 .10 .ref .apz} Maharshi" is Maharshi
+He is the one who is the one. The gentleman searched for a cold, therefore "Maharshi"
 NAMI. A Mathewess Mathewal Mathews
 A emancipation of emancipation, a Mathew Liberation Wisdoms
 A dassanmass searched. Therefore, the name of Maharshi. Mathews flee unscientific
@@ -92,12 +92,12 @@ The laying of the burden of the Mathews, the trimming of the Mathu Sanasara Prof
 The extinguisher sought to raise the flag of the mathew Dhamma to compile the burning. Therefore
 Maharshi name. Mahatyu Sathipattaya Award Chief Mahatyu Yadhi
 Footages Gentlemen Powers Mathews Bocentralis Lady's Octangal Way
-The Gentleman sought the purposed Nibbana. Hence the name “Maharshi”.
+The Gentleman sought the purposed Nibbana. Hence the name "Maharshi".
 Where is the Buddha, where is the Buddha, where is the Buddha, and where is the Buddha, and the Greatest God
 Where and where are the human beings sought by the creatures.
 Laddenui Maharshi name.
 
-“What is seen in the monk” and look at what is seen and what is seen and what is the monk”
+"What is seen in the monk" and look at what is seen and what is seen and what is the monk"
 What decision, and what extent, his lust, and malice.
 Constipation, Constipation, Virtuousness, Greatly equating themselves, Jealousy,
 Satiety, deceitness, tightness, alignment, dimension, overexertion, mythology,
@@ -106,26 +106,26 @@ All the fittings are collected, constituting, etc. Monkshuwa is
 Surfactive is either fictional or monk. Stylesor monk
 
 [APZ 150.11] (#apz150 .11) {#apz150 .11 .ref .apz} "Nothing hard in the locality
-Not taken as taking” is not firmly taken by maneuvers
-Don't enter. “Lokuka” is in the human world of Hell Locking,
-In the relic of the mass of the divine locus, “any is a certain image
+Not taken as taking" is not firmly taken by maneuvers
+Don't enter. "Lokuka" is in the human world of Hell Locking,
+In the relic of the mass of the divine locus, "any is a certain image
 The frequency of the stethoscope is the number of congenitals.
 
 [Msdiv 151] (#msdiv151) {#msdiv151 .ref .msdiv} (14 - 2)
 
 [APZ 151.1] (#apz151 .1) {#apz151 .1 .ref .apz} "Reflectiones
-Asmiths also know and prevent all things,” said the prophets. Going
+Asmiths also know and prevent all things," said the prophets. Going
 The number of prophecies is called the number of prophecies. Frequency of cravings, viewpoints
 The number is the same. What is the root of the craving genus? Anecdotic root, discreet
 The root of contemplation, the asimole root, the root of not blasphemous sin, the fear of sin
 The root, the root of the restlessness of the mind, the root of the vision of the anus,
 The mythological root is the root of discreet contemplation, the asimetic root, the shame of sin
 The root of the absence. Fear of sin is the root of unrest in the mind, this point of view
-It is the root of the prognosse. “Bhagawatha” is the word of honor here (7-2) -1 that broke the lust
+It is the root of the prognosse. "Bhagawatha" is the word of honor here (7-2) -1 that broke the lust
 Should be used from where to go.
 
 [APZ 151.2] (#apz151 .2) {#apz151 .2 .ref .apz} "All Know Asmem
-Tells the prophecy “to feel” by feeling a certain signal
+Tells the prophecy "to feel" by feeling a certain signal
 Justitaveda, (2-4) 12 (ii) Generations should be applied) Amovitis, Dhamma Exam
 That is what says, the asmi dimension is the dimension of itself in the image, of himself in the image
 About Will, the sympathology of itself in the image in the editor of the vein of the stethoscope
@@ -133,25 +133,25 @@ Conscious is the dimension of oneself, the will of oneself, the attic of oneself
 Bhag on the newsHe sowed the communitists.
 
 [APZ 151.3] (#apz151 .3) {#apz151 .3.ref .apz} "Asmi Dimension Know All Groove
-Be” all things shall be a pit, knowing the eyes of the pros, and the asmith;
+Be" all things shall be a pit, knowing the eyes of the pros, and the asmith;
 He shall deter, constipate, and bring him unto the heart.
 
 [APZ 151.4] (#apz151 .4) {#apz151 .4 .ref .apz} "In Education
-A craving” is a thing that is all the omnivorous all-in-one
+A craving" is a thing that is all the omnivorous all-in-one
 The approach is a word taken from the back. Cravings are image cravings, sound cravings odor
-Cravings, rash cravings, touch cravings, dharmaturshna are “in education”
-It is born that craving or “studying”. Realidu or Education to the heart
+Cravings, rash cravings, touch cravings, dharmaturshna are "in education"
+It is born that craving or "studying". Realidu or Education to the heart
 says. A thought mind is the dimension, the adhesion, the pendor of the bride. Manindiya,
 Conscious, Conscious, Manoconsciousness, which arises from the heart and cravings
 went together, came together, blended together, applied together, born together, together, together
 In the idle, one object is the same.
 
 [APZ 151.5] (#apz151 .5) {#apz151 .5 .ref .apz} "To discipline that craving
-In remembrance of Hammecal, the term “always” is (i) all day
+In remembrance of Hammecal, the term "always" is (i) all day
 Between the ripple as the arrow from the arrow all the time of the time.
 Contacted with existence, prefronted back, preface creation, flicker
 Previous-age, pre-age, frost in the rainy period of the moon
-The middle age part of the section is the last age part. “Dream” is
+The middle age part of the section is the last age part. "Dream" is
 In four respects, mindfulness is determined by the fact that mindfulness is remembered
 NAMI. It is remembered that mindfulness is manifested by the pain of pain.
 It is remembered that mindfulness is manifested by the pain of pain. in mind
@@ -180,7 +180,7 @@ Should be used.)
 [Msdiv 152] (#msdiv152) {#msdiv152 .ref .msdiv} (14 - 3)
 
 [APZ 152.1] (#apz152 .1) {#apz152 .1 .ref .apz} "In Education
-Dharmasolid” is a person of any culinary doctrine or incarnate doctrine or one's own
+Dharmasolid" is a person of any culinary doctrine or incarnate doctrine or one's own
 It is known for some time. Great for their own properties
 Split from a trowel. Extremely exalted by a very high trowel. Lay
 Among the Swimdards there was a reputation. Cast, Pendatha Brigade
@@ -197,7 +197,7 @@ Know. Wainfully know, go.
 
 [APZ 152.2] (#apz152 .2) {#apz152 .2 .ref .apz} "Re-out properties or is
 They were the virtues of the instructed teacher or the ordained teacher or the virtues.
-Of which “try not” is the power of one's own quality or of the other
+Of which "try not" is the power of one's own quality or of the other
 Do not do. Do not stiffness. The dimension does not do higher, and does not do. presumptuous
 Do not mind. From it the dimension shall be nouveth, By Seven Men
 The extinguisher was not said. are Buddhists by animals by shanty
@@ -208,26 +208,26 @@ Unopened. Undivided. PropellersWas up, yoyi.
 [Msdiv 153] (#msdiv153) {#msdiv153 .ref .msdiv} (14 - 4)
 
 [APZ 153.1] (#apz153 .1) {#apz153 .1 .ref .apz} "It is the
-Do not think” is (ii) eats or accents from race or tribe or patriarchs
+Do not think" is (ii) eats or accents from race or tribe or patriarchs
 Sapuen or from wealth or study, or from industry or craftsmanship
 Other facts from science place or grade or from the policy or from the opinion
 from or from
 
 [APZ 153.2] (#apz153 .2) {#apz153 .2 .ref .apz} "does not think. Rehidu or
-The same shall not think,” is from the nation or (here 1- (ii) shall be used.)
+The same shall not think," is from the nation or (here 1- (ii) shall be used.)
 Deteriorization is unpretendous. From the nation or (should be used here 1 (ii)) dimension
 Noothed,
 
 [APZ 153.3] (#apz153 .3) {#apz153 .3.ref .apz} "Reviews
-” is a kind of touch that is justified in a way.
+" is a kind of touch that is justified in a way.
 
-[APZ 153.4] (#apz153 .4) {#apz153 .4 .ref .apz} "Himself is not in contrast”
+[APZ 153.4] (#apz153 .4) {#apz153 .4 .ref .apz} "Himself is not in contrast"
 Tells him to go to the third. He does not contemplate and does not come to change
 Stay
 
 [Msdiv 154] (#msdiv154) {#msdiv154 .ref .msdiv} (14 - 5)
 
-[APZ 154.1] (#apz154 .1) {#apz154 .1 .ref .apz} "inside,” is
+[APZ 154.1] (#apz154 .1) {#apz154 .1 .ref .apz} "inside," is
 The lust inside is constipated. Malice is congruent. The brains are constipated.
 Croction, graft hatred, virtue, par with the great oneself, eczema, deletion
 Kitness, deception, courteousness, stiffness, one together, dimension, eloquence, esteem,
@@ -236,11 +236,11 @@ Plantations, all collection of fittings, connoisseth, dismantling, dismantling,
 Ready.
 
 [APZ 154.2] (#apz154 .2) {#apz154 .2 .ref .apz} "A Medium Way of Monk
-Seek not for shanting.” is a myth by a mutual asytic path
+Seek not for shanting." is a myth by a mutual asytic path
 ReverseExcept by an unauthorized route, that is, by means of the satipottas
 A resource is from the main, except from the negative ones, except from the indices
 Except from the powers and other than from the Central by the Lady Octagonal
-Shanty is not looking for dusting. “Inside Shanthapahua” is the inside
+Shanty is not looking for dusting. "Inside Shanthapahua" is the inside
 Lust to Shanthawahu, Malice to Shanthawaahu, Moya to Shanthawathahu, Crowd
 Shanathahu, Constipation, Virtue, Constipation with Himself, eczema,
 Marriousness, deceitfulness, koratiziness. Stiffness, one-to-one, dimension, elemental, mythology
@@ -248,7 +248,7 @@ Size, all eloquences, all tribulations, all fourteen
 All the fittings are collected, shanthawahu, twunahu, etc.
 
 [APZ 154.3] (#apz154 .3) {#apz154 .3.ref .apz} "A Spirit or Something Not Souls
-or not.” “No” is the rejection spirit is no self-view.
+or not." "No" is the rejection spirit is no self-view.
 Something that is not soul is no fluctuating view. There is no taking oneself. Soul
 Not deviated overheat. Is it possible for anyone to take, and let him get rid of him
 Wei. The secrets stopped growing and harms. Going Him
@@ -269,11 +269,11 @@ Unselunae are unmovable. Its flock is hutanogenated.
 Stirted.
 
 [APZ 155.2] (#apz155 .2) {#apz155 .2 .ref .apz} "Ejah (craving)
-Do not shake.” Thus is the parable word. Was there. is the cheapest
+Do not shake." Thus is the parable word. Was there. is the cheapest
 Do not shake. Do not shake at the loss. Reputation is also not shaken.
 Not shaken by stigma. Do not shake in the blaze. Shocks in the humiliation
 Not. The supply is also not shaken. The sadness does not shake, does not spoil.
-Unshaking. There was this. “Ejah shall go unto them”
+Unshaking. There was this. "Ejah shall go unto them"
 Eja tells the craving. A certain lust, a sticking stick tighten
 It is the root of a metal metal. Does this craving of someone become predisable,
 Dumped, first connoisseth, and was born, and conscious.
@@ -284,7 +284,7 @@ Do not shake in the humiliation. The supply is also not shaken. The sadness is n
 Unnoticed.
 
 [APZ 155.3] (#apz155 .3) {#apz155 .3.ref .apz} "Monk Nowhere
-“Do not collect” is a heath (kelles) animal. That is, Ragussaaya,
+"Do not collect" is a heath (kelles) animal. That is, Ragussaaya,
 Vesuscous mucus, humane, ditsiness, cheeks
 Do not do, and be nouveth. Do not cause, no matter where and within
 or outsiders.
@@ -292,7 +292,7 @@ or outsiders.
 [Msdiv 156] (#msdiv156) {#msdiv156.ref .msdiv} (14 - 7)
 
 [APZ 156.1] (#apz156 .1) {#apz156 .1 .ref .apz} "Open Eyes (Buddha)
-God hath hath said, “God hath hath hath hath made. In the publicity.
+God hath hath said, "God hath hath hath hath made. In the publicity.
 In the Desk. in worms. Placed in Opening Opening Eyes
 It is that the spouses have open eyes with pusses. Masinda Open
 Eyes. Divasanda has open eyes. Panasinda Open Eyes
@@ -302,7 +302,7 @@ Buddha has open eyes, and open eyes. There are open eyes, and open eyes.
 Open eyes in the masine, and at the time of the spouses (default
 In the eye) color of the soil. Neelcolor, yellowcolor, redcolor, blackcolor,
 Suduranu, where the eye loam is located, it will be colored. Split
-Dhikumblack “Umma” is like blue-like. It is yellowing out. Goldvanu
+Dhikumblack "Umma" is like blue-like. It is yellowing out. Goldvanu
 The well-dipped feces will be in the kindergartener. The two spheres of the eyes of the spheres
 Reduwen. Was well as Reduwannahu. Believing blackened. Indiagopaka Names
 Like the color of the type. The middle is blackened. Maatwurk Black Painted Non
@@ -356,7 +356,7 @@ Determine the meaning, and put up the Lord Dhamma.
 The Trusts do not perceive something that they do not know
 There is nothing discreetly figuring out. The past, the future, all since the present
 The wise mouth of the Buddhist Buddhist all the wayForward
-Arrives. (8-11) 4 From where “the wise mouth of the spouses”
+Arrives. (8-11) 4 From where "the wise mouth of the spouses"
 Should be used to the end.)
 
 [APZ 156.4] (#apz156 .4) {#apz156 .4 .ref .apz} How to Buddha
@@ -390,25 +390,25 @@ Nimitta Despise.
 [APZ 156.5] (#apz156 .5) {#apz156 .5 .ref .apz} "At the top of a rock
 Seventh thou saith unto the people, and there are five shotas that have this samathas
 The Buddha rose to the faith of the doctrine of such parables
-The group of people who have come down to the Jharawen Madanaha.”
+The group of people who have come down to the Jharawen Madanaha."
 
 So the bushmen have open eyes with Buddha eyes, how the bushers have a Buddha's eyes
-He says to the Almighty Consciousness that he has open eyes, “Samathasa”
+He says to the Almighty Consciousness that he has open eyes, "Samathasa"
 The spouses were made of the Almighty
 
 [APZ 156.6] (#apz156 .6) {#apz156 .6 .ref .apz} "This world did not see him
 Nothing. There is nothing unobsoluble. A doctrine to know
-All was known. Therefore, the ascenseers name Samanthakkhu”
+All was known. Therefore, the ascenseers name Samanthakkhu"
 He has open eyes with his own eyes.
 
 [APZ 156.7] (#apz156 .7) {#apz156 .7 .ref .apz} "Hazard Projects
-Doctrine” This is not a doctrine taken from heredity
+Doctrine" This is not a doctrine taken from heredity
 Not. Not a fragmentary doctrine. Not a doctrine taken due to arguments. Business
 Not a doctrine taken by reason. Not a doctrine concised in the way. Dashtiya
 Not a doctrine taken care of, but a doctrine to himself, knowing one alone.
 NumeriThe doctrine is the name.
 
-[APZ 156.8] (#apz156 .8) {#apz156 .8 .ref .apz} "Hazard Efficacy”
+[APZ 156.8] (#apz156 .8) {#apz156 .8 .ref .apz} "Hazard Efficacy"
 There are two hazards. The infestation is the same as the infestation. Promotional hazards
 What, the lion, the business, the divine, the bear, the bear, the grossest bear,
 Progression, Mimmuah, Serpent, Scorpio, Spatula, Unformed or Unformed
@@ -428,7 +428,7 @@ Redeeming Redeemation Inflation Cooking Redeemation, Lust
 Malice, brains, transplanted hatred, virtue to make the greatest of themselves and skin
 Jealousy Pusticity Deception Cauerity Tightwork Together Dimension
 Mine size all the tribulations all the roofs all the finer
-Collectors saw these are the hazards of the shower. “Hazards” are
+Collectors saw these are the hazards of the shower. "Hazards" are
 If there is a hazard hazard,Maintain 'Hazards If Degeneration
 Arrives incarnate, for its dwelling.
 
@@ -444,9 +444,9 @@ The Septic Powers of the Negative Powers of the Negative
 In order to grow up these vastinal doctrines, to grow on the Lady Octanginal road
 (1-4) 4 (ii) Hazards should be used from where the hazards go.)
 
-[APZ 156.10] (#apz156 .10) {#apz156 .10 .ref .apz} "Hazards discipline” is
+[APZ 156.10] (#apz156 .10) {#apz156 .10 .ref .apz} "Hazards discipline" is
 Discharge of hazards, compress of hazards, relieve hazards, dispose of hazards,
-It is unpretentious Nibbana. “Lord, Beneficence” is a resource
+It is unpretentious Nibbana. "Lord, Beneficence" is a resource
 Reverse, Non-Change Reverse, Alias Reverse, Dharman Dhamma
 Reverse, that there is a knit door in the indices that the people complete,
 Feeling around the meal, sleeping, feeling discreet in remembrance, four satipottas,
@@ -460,15 +460,15 @@ Open, divide, and protrude, all it is beautiful, good,
 Correct, the service should be taken
 
 [APZ 156.11] (#apz156 .11) {#apz156 .11 .ref .apz} "Prethimodeya Yelidu or
-Samadhiya” is the cult called Prethimoda. Curving. Kushale Dharmala
-The original behavior of the society. discipline. Corporate “Realise or Contrary” is
+Samadhiya" is the cult called Prethimoda. Curving. Kushale Dharmala
+The original behavior of the society. discipline. Corporate "Realise or Contrary" is
 Stop some discipline in the mind and feel immovable, not upset, undisturbed
 It is a peace of mind, a synonym of samadhi power.
 
 [Msdiv 157] (#msdiv157) {#msdiv157 .ref .msdiv} (14 - 8)
 
 [APZ 157.1] (#apz157 .1) {#apz157 .1 .ref .apz} "Chakshaur Loyalty
-How to do” Chakshar is the locality, (i) a certain person here
+How to do" Chakshar is the locality, (i) a certain person here
 Chakshar was loathed. What is not seen must be seen. What is a wood
 To exceed the monastery from the monastery to the garden, and to the village.
 Extended to view images from village to Kandy, country to country
@@ -494,9 +494,9 @@ Poll, Polly Poll, Bars Drill, Camps, Stirary Army, Seeing
 etc. This is due to the presence of chakshur. How is the Chakshaur not the lotion, (
 (14-8) 11 (i) (ii) was justified. Used not to go
 Be taken.) Realidu or monk will see the image with his eye. (14-8)
-(ii) “Adhidiai” should be used as “coming”)
+(ii) "Adhidiai" should be used as "coming")
 
-[APZ 157.2] (#apz157 .2) {#apz157 .2 .ref .apz} "Chakur will not do loathe”
+[APZ 157.2] (#apz157 .2) {#apz157 .2 .ref .apz} "Chakur will not do loathe"
 It is that the chaksar will dispel the lolliness. Fumb into the nouveth.
 Chakshur will be a distant from the lolly. Napkins, Separate Restrictions
 The free heart will dwell.
@@ -512,18 +512,18 @@ About the dead, these stories about the world, and this is about the sea
 These are the stories
 
 [APZ 157.4] (#apz157 .4) {#apz157 .4 .ref .apz} "Ear Coverage of Grama Speech
-Doer” is a pit that covers the ear with Grama Speech. keeper
+Doer" is a pit that covers the ear with Grama Speech. keeper
 Protect.
 
 [APZ 157.5] (#apz157 .5) {#apz157 .5 .ref .apz} "Will not be in the house
-“The taste is (ii) root flavor, stem flavor, bark flavor, leaf flavor, flower flavor,
+"The taste is (ii) root flavor, stem flavor, bark flavor, leaf flavor, flower flavor,
 Nuts taste, sour taste, sweet taste, bitter taste, salt taste, alkali
 (iii) some of the taste of the taste, the taste, the taste of the scalp, the cold, the temperature.
 Sirmana Brahmins Aththaha. They walk around looking for granny flavors with tongue.
 (10-7) (4) They must be applied from where the tongue goes.)
 
 [APZ 157.6] (#apz157 .6) {#apz157 .6 .ref .apz} "Nothing in the locator is I
-Do not take” is a mother's two. Craving mother and vision mother
+Do not take" is a mother's two. Craving mother and vision mother
 (2-6) 1 (ii) (iii) shall be applied)
 The vision does not deviate and does not make the eye's motherhood. Do not take. Paramuri
 Do not do. Do not enter. In the image of the body in the tongue of the nose in the ear
@@ -540,7 +540,7 @@ Is Hell Location (This should be used in (3-4) 6).
 [Msdiv 158] (#msdiv158) {#msdiv158 .ref .msdiv} (14 - 9)
 
 [APZ 158.1] (#apz158 .1) {#apz158 .1 .ref .apz} "Touches Sometime
-Tactus” is the twenty rods touch. Pag-touch touch
+Tactus" is the twenty rods touch. Pag-touch touch
 It will be draped. From eye disease (here (4-4) 4 (ii) should be used)
 Dahle drink masks from the touch of the air, which prolongs the sunny air
 The contactness shall be the madena. Mourning wherever the monk is
@@ -549,13 +549,13 @@ Laments do not make a word, do not cause. Nowhere to be born
 Wherever, no matter where, inside or inside, or outside.
 
 [APZ 158.2] (#apz158 .2) {#apz158 .2 .ref .apz} "The craving of the jewelery
-Do not do” is not desire the kama. The images do not desire the images
+Do not do" is not desire the kama. The images do not desire the images
 The jewala shall not desire. 'Do not be alarmed by the bophyth' is one
 This is done by the people who are afraid of fear in a way
 was.
 
 [APZ 158.3] (#apz158 .3) {#apz158 .3.ref .apz} "What is this fearful and fearful
-Arrived” was said to be an intoxication. Sinola Progression, Dioaya,
+Arrived" was said to be an intoxication. Sinola Progression, Dioaya,
 The bear, the black bear, the wolf, the horse, the ivory, the serpent, the
 Scorpio Spatula Karmaor thieves with unformed kamma
 And these are people. Fear again in the other way. Spiritual
@@ -571,7 +571,7 @@ Close up again.
 [Msdiv 159] (#msdiv159) {#msdiv159 .ref .msdiv} (14 - 10)
 
 [APZ 159.1] (#apz159 .1) {#apz159 .1 .ref .apz} "Food and drink and what to eat
-Ofteries” The food is rice, pittings, bread, meat, drink
+Ofteries" The food is rice, pittings, bread, meat, drink
 If (ii) the squeezed juice of mango squeezed juice, squeezed juice of meat kehl, peas
 Kehel squeezed juice honeymoon, drink pruritus, oval peas cramped juice, throat
 (bitnuts) are crushed juice. There are eight beverages. Cozambo Drinking, Derburi
@@ -581,7 +581,7 @@ Flower dishes, green dishes, fruit dishes, fruits, fruits, fruits and fruits, co
 Cotton garments, Kabbala objects, Linen garments, Banganum garments
 Ready.
 
-[APZ 159.2] (#apz159 .2) {#apz159 .2 .ref .apz} "Do not collect,”
+[APZ 159.2] (#apz159 .2) {#apz159 .2 .ref .apz} "Do not collect,"
 It is, has not become hypocritical, does not go to a chatu bus, Nimiti Shurries
 Without going to say, bring the layman's messagesWithout going to go, to search for profit from profit
 Absence, without giving or giving firewood to the lay, without giving or giving trees, without giving or giving leaves;
@@ -596,7 +596,7 @@ Slowed by burning, food collection beverage additions, objects
 Collect, add aromas, add aromas, add imitsions
 Do not do. Nouveth. Do not cause, do not.
 
-[APZ 159.3] (#apz159 .3) {#apz159 .3.ref .apz} "shall not have them” is
+[APZ 159.3] (#apz159 .3) {#apz159 .3.ref .apz} "shall not have them" is
 Food or undigeable beverages or undigests, garments or undigests. Cars or undigests.
 Counseling or non-receiving. Away or not. Profit or not. Reputation or not.
 Comments or not. Suction or non-comb robes. inflammation or
@@ -609,7 +609,7 @@ Whoever dwell.
 [Msdiv 160] (#msdiv160) {#msdiv160 .ref .msdiv} (14 - 11)
 
 [APZ 160.1] (#apz160 .1) {#apz160 .1 .ref .apz} "Stretching Wall Feet
-Do not do loyalness (in the journey)“The Central Wind is the preeminent
+Do not do loyalness (in the journey)"The Central Wind is the preeminent
 It will also be done by medium. The secondary medium will also be centurized. Tertiary
 It will also be done by medium. The captive will also be made by the medium. Arguments
 It will also be followed by reviews. Reviews without a Comment
@@ -622,7 +622,7 @@ doer. The secular medium will also be predised. Central from Lokotthara Central
 Doer will respect the good meaning of the term of sitting in isolation
 NAMI.
 
-[APZ 160.2] (#apz160 .2) {#apz160 .2 .ref .apz} "Feet will not do Loyalty” is
+[APZ 160.2] (#apz160 .2) {#apz160 .2 .ref .apz} "Feet will not do Loyalty" is
 How does the foot lolling be true, here some person has a foot lolling
 Justification will be made. From the monastery to the monastery, to the garden, to the village.
 A long trip to Kandy from country to country to country
@@ -645,11 +645,11 @@ Behaveers control. Dependent. Be a rest jubilant.
 In the rest there will be an alley. The center of the application of the inner heart
 Be an unmistakable manifestation. Properties of the Zurals
 The good meaning of the isolation of the alu in the center of the cending wind is respected
-Doing passes. “Cucus shall dispel. Not too much” on the hand
+Doing passes. "Cucus shall dispel. Not too much" on the hand
 Kukuda Cookuki. Kukulada Kukusaki (here (10-3) 4 (i)
 Must.)
 
-[APZ 160.3] (#apz160 .3) {#apz160 .3.ref .apz} "will dispel the cockroom” is
+[APZ 160.3] (#apz160 .3) {#apz160 .3.ref .apz} "will dispel the cockroom" is
 Cucus will dispel. Keep away. Kukusa Suncinu Wannu Kukusa
 will be. Separate, naked, unrestrained heart. Kukusen Separate
 will be. Ready. Not too much is the cause of concern. Frequent actions
@@ -672,19 +672,19 @@ These are the seats, which are the leaves, the straw, the seat. And Senasa,
 The temple, the house like the wings of the gurus, is the higher bonusage.
 
 [APZ 160.5] (#apz160 .5) {#apz160 .5 .ref .apz} "Monk of Silent Plains
-Dwell” is in places where there are little sounds, where there are little shsha
+Dwell" is in places where there are little sounds, where there are little shsha
 In places where there is no persecution from men, where men resort to secret affairs,
 Behave in the senasas suitable for grit rest. Dwell. posture
 Conducting the dependent.
 
 [Msdiv 161] (#msdiv161) {#msdiv161 .ref .msdiv} (14 - 12)
 
-[APZ 161.1] (#apz161 .1) {#apz161 .1 .ref .apz} "Sleepage does not make abundant” is
+[APZ 161.1] (#apz161 .1) {#apz161 .1 .ref .apz} "Sleepage does not make abundant" is
 The night day was two parts and five parts were held in the statue. One section of the horn
 Yu
 
 [APZ 161.2] (#apz161 .2) {#apz161 .2 .ref .apz} "Kelce Tayanan Theorem Available
-Drowsiness will spoil” is the most day of this plant.Manning
+Drowsiness will spoil" is the most day of this plant.Manning
 Work cleanses the heart from the doctrines of cover. Night Primetime
 The mind is disciplined with the doctrines of cover by the walkway and work.
 It is well discreet to remember that the middle of the night is put together the pine foot
@@ -693,9 +693,9 @@ Clean the heart from the doctrines of cover by getting up in Yamaya and working 
 doer
 
 [APZ 161.3] (#apz161 .3) {#apz161 .3.ref .apz} "Drowsiness
-The doer” is the drowsiness of the drowsiness. The service will be done.
+The doer" is the drowsiness of the drowsiness. The service will be done.
 
-[APZ 161.4] (#apz161 .4) {#apz161 .4 .ref .apz} "Kelles Thuthu Are Available”
+[APZ 161.4] (#apz161 .4) {#apz161 .4 .ref .apz} "Kelles Thuthu Are Available"
 Tells the vein. From the Heathly Checular Hermage
 The strong efforts of the Justices' perspective were not loosened
 There are no words, there is unhashed will, there are unbundled words,
@@ -704,19 +704,19 @@ A resource business, efforts came to be made by Kelles Tayanu
 The name is the only one.
 
 [APZ 161.5] (#apz161 .5) {#apz161 .5 .ref .apz} "Malness Deception Laughter
-There is a certain amount of glamour, and the game shall decorate it.”
+There is a certain amount of glamour, and the game shall decorate it."
 Thick Adda, a sloth is a sloth, says this Nandya, deception is
 deceptive behavior. Some person here is in Kain's visity, in a word
 To a lone desire due to the fact that the heart of the visitus is in the heart of the heart and closes it
 Basi. Thinking I do not know I think I do not know. Words I do not know
 says. I don't know Kayon is trying. Any such deception is an illusion
 This is a sin act that does not open a hide of a hindrance
-deceptive says. “Smile”is a certain person here, excessive time teeth
+deceptive says. "Smile"is a certain person here, excessive time teeth
 This was disproved by the people who laughed and laughed at the same time.
 Many times in the Lady's discipline there is a laugh and it belongs to the children
 says.
 
-[APZ 161.6] (#apz161 .6) {#apz161 .6 .ref .apz} are two games called "Sports”.
+[APZ 161.6] (#apz161 .6) {#apz161 .6 .ref .apz} are two games called "Sports".
 Physical sport is also the game of tact. What is physical sport? with infiltration
 Playing. Playing with seats. Players are played by cars. From the bows
 Sports. Eight-foot (played with a danpli alumni. Ten Feet
@@ -730,7 +730,7 @@ Sports and imagined readings etc. and games up to those images
 Karate. These are the boye-athletes. Which are the tact games? The drum called the mouth,
 Oral name Ecas drum, Oral vena, Oral boiler, Oral Panabar (Inserted)
 It is the game of tact to do these, to play the nostrings, to dance songs.
-“The Maithurana doctrine is a certain unharmed doctrine, which is a Grama doctrine.
+"The Maithurana doctrine is a certain unharmed doctrine, which is a Grama doctrine.
 A doctrine is a union of two lone secrets who have porn words.
 In what kind do I say the Maithurana doctrine? From the rash from the room, from the rash
 The doctrine was similar to two people who were suppressed and conquered. This is the Maithurana doctrine in the matter
@@ -746,15 +746,15 @@ Chouthless, Mukhalepa, Binding in the hands, Rod, Sword, Umbrella,
 These are decorative sandals, foreheads, gem, valvidana, vandura, foresight
 The layman's plaat. Which of the Pawydah's platters? Chevara Jewarra, Bowl Jewelery
 Senasana Jewelery, wearing the exterior of this garbage, its desire to decorate,
-These are the jewelery of the Pawydah, the capriciousness. “Malleness, deception, laughter
-Game, maze, decorate, dare” is malice, deception, laughter,
+These are the jewelery of the Pawydah, the capriciousness. "Malleness, deception, laughter
+Game, maze, decorate, dare" is malice, deception, laughter,
 The game is decorated with the Maithurana doctrine, with the entourage, and with the goods
 The purity will also be imperceptified. Disposal. Bring them into unborn.
 
 [Msdiv 162] (#msdiv162) {#msdiv162 .ref .msdiv} (14 - 13)
 
 [APZ 162.1] (#apz162 .1) {#apz162 .1 .ref .apz} "Atherana and Swapana
-Neither do the plant of marking. Also do not cream” is the city or
+Neither do the plant of marking. Also do not cream" is the city or
 Sunnium on the enemies of the Mine brigade when a war was surrounded or arrived
 Causes of dysentery, fearful, trickle, solanum disease
 And the blood will cause dysentery, and thus the men will be. Dreams
@@ -774,7 +774,7 @@ A land, and a pond in which one has made, thus dreams:
 Score Sayers describe dreams.
 
 [APZ 162.2] (#apz162 .2) {#apz162 .2 .ref .apz} "Feature Schemes
-Describe Characteristics” is a trace, stick feature, object feature,
+Describe Characteristics" is a trace, stick feature, object feature,
 Sword feature, arrow feature, weapon feature, male feature,
 Princess princess, Dass feature, Husty feature, Horse feature,
 Beeken feature, leader bulls feature, normal bulls feature, goat
@@ -789,26 +789,26 @@ MUSSULA. So do not know how to reside in this way, but do not say.
 Saws in detail.
 
 [APZ 162.4] (#apz162 .4) {#apz162 .4 .ref .apz} "Awardana, Swapana
-Characteristic plant, nor does it do not,” is the mantras
+Characteristic plant, nor does it do not," is the mantras
 Swapana, and the plant of characteristics, and not not, shall not behave.
 It does not behave or will not redo, and will not consider
 Do not?
 
 [APZ 162.5] (#apz162 .5) {#apz162 .5 .ref .apz} "Knowing the Voice of Beasts and Pregnancy
-To do not associate with the Buddhist,” is the virtue of which
+To do not associate with the Buddhist," is the virtue of which
 The word of the beasts is the words of the beasts, even if they describe the words of the beasts.
 The sound of birds or beasts or weeping is known, thus the words of beasts
 Sayers describe the following phrases. Pregnant people are pregnant. Two Points
 Gastroenteriym does not cause. From worms or air cramps. Worms or air
 Two drugs to expel or dispel, thus causing pregnancy to pregnant people
-“Wetterkakaa” is a stethoscope. Compulsion of copper etc.
+"Wetterkakaa" is a stethoscope. Compulsion of copper etc.
 Inhalation therapy, boditherapy therapy for relapse diseases
-“Madaka” is a Buddha Madaka, a Buddha Madaka,
+"Madaka" is a Buddha Madaka, a Buddha Madaka,
 Dhamma Mamakaka'
 
 [APZ 162.6] (#apz162 .6) {#apz162 .6 .ref .apz} "Heathemah or Loyalty
 Masturizes Him. Accepts the person or that person.
-This was said by the adherents: “Is this monk hypocrisy,
+This was said by the adherents: "Is this monk hypocrisy,
 The village before the jagaththahua Chatubus KaynahudahaWhat dimension is true, agree
 This bhikkhu is not unmammary, but this is not a man, and that bhikhu
 And they left this plant. A bhikhu to be promoted to grow in this plant
@@ -817,17 +817,17 @@ Not to say, but to walk in front of them, and the harmonious minds,
 Monks are mammals. Mahani, the monks did not leave this Dhamma discipline.
 Mahani, though the monks come to high to grow in this plant.
 
-“They are undisturbed by the unrest of the movement before the hypocritical tightness
+"They are undisturbed by the unrest of the movement before the hypocritical tightness
 Though God does not come to grow in the Desic Plant, there is no hypocritical stiffness
 They are calm without moving before Budurajanan
 Desitha comes to grow in the plant.
 
-“The voice of animals, and pregnancy, and even mammary, do not serve.
+"The voice of animals, and pregnancy, and even mammary, do not serve.
 Do not behave, redo or not, ignorant, and not consider.
 
 [Msdiv 163] (#msdiv163) {#msdiv163 .ref .msdiv} (14 - 14)
 
-[APZ 163.1] (#apz163 .1) {#apz163 .1 .ref .apz} "shall not be shaken by reproach”
+[APZ 163.1] (#apz163 .1) {#apz163 .1 .ref .apz} "shall not be shaken by reproach"
 is some one here from race or tribe or patriarchy or
 By color or wealth, or by learning, or by propagation or by other
 In a matter or reproach the monk. Gherha Karath. Appliance Reproach
@@ -837,7 +837,7 @@ Be not afraid, be not afraid, be not alarmed, and the five fear is fearful
 There are the lower lomusts that dwell.
 
 [APZ 163.2] (#apz163 .2) {#apz163 .2 .ref .apz} "Maunawathathathathana
-What does not do” is that some here are earthyExpensing to the Proposals. From the nation
+What does not do" is that some here are earthyExpensing to the Proposals. From the nation
 or from the tribe or the clan or hue, or from wealth or learning, or
 either by academia or by craftsmanship or by science or by air
 Prophesy from or from another object. Thanks cart,
@@ -857,7 +857,7 @@ irritating irritating irritating irritating irritating irritating irritating
 A business is a business like an opposition, a turbulent, a tear down
 It is the unpleasing of the emotion.
 
-Some person here says a kayalam if “kayalam”. Hear from this
+Some person here says a kayalam if "kayalam". Hear from this
 It is said that these are locating or heard in order to break down
 And these are told to break the person. Breaking through the concomitants
 In order to support the breeders, the alley of the allocation is applied in the alley of the allocation
@@ -875,14 +875,14 @@ I will be. I will be a fanatic. An intern who will be a trustworthy
 I will be a good heart and thus gather the genitals willingly.
 How to collect the singles at the will of breaking, and how to separate the parts
 Wannahua and Divide are not added, but the ease is the doer of sorrow.
-Thus collects the singles with the idea of breaking “The Lobby and Cage with the Cage and the Cage
+Thus collects the singles with the idea of breaking "The Lobby and Cage with the Cage and the Cage
 The distance is the lobies, the fish, the crusher, and the code. Disposal.
 Done. Do not be born.
 
 [Msdiv 164] (#msdiv164) {#msdiv164 .ref .msdiv} (14 - 15)
 
 [APZ 164.1] (#apz164 .1) {#apz164 .1 .ref .apz} "Transfer
-“Do not” is a particular transaction that was relegated to discipline. It's this
+"Do not" is a particular transaction that was relegated to discipline. It's this
 The meaning was not expected. How to Transaction, Cutters and
 Bowl or robe with the hosts, or any other piercing or deceptive
 Growing up is what takes their thing and what is his own thing:
@@ -895,7 +895,7 @@ Far from the transaction. Be a separant. Separated yard capping
 The untreated heart will close.
 
 [APZ 164.2] (#apz164 .2) {#apz164 .2 .ref .apz} "Respect where the monk is
-What are the girl who will not cause the girl”? have a negative seer
+What are the girl who will not cause the girl"? have a negative seer
 There are certain Brahmins known to others. They see at a distance
 Even if not seen near. Sithinda know the heart. The minds of other people who have a positive seer
 The known godels are also Aththa. Even if they see them at a distance. Near not to see the heart
@@ -910,9 +910,9 @@ Saws of the hinges. A pharmacological claveen or central claveen
 There are finer clausses or not deviates, which have appended clasions
 Do not do, and be nouveth. Conducting the demise. Gearing Clessings
 Be a distant man, and shall dwell with unrestricted heart
-Ready. “Wherever” is either inside or outside or inside.
+Ready. "Wherever" is either inside or outside or inside.
 
-[APZ 164.3] (#apz164 .3) {#apz164 .3 .ref .apz} "How is not in the village”
+[APZ 164.3] (#apz164 .3) {#apz164 .3 .ref .apz} "How is not in the village"
 Does the village collide? The monk here and the whole of the village are happy together
 Shockawara is a luxury, whether the grieving dwells in time of suffering,
 Arrives to give their help when the work arrives. Elai, Mezili village
@@ -929,7 +929,7 @@ Panawawa bowl robes
 The cachers who had been taken into the village or niyamvillage or deceived by the word that was deceived
 The mindful indices that are drawn by the heart are not in the same place.
 It does not take it, that place is offline, and that place does not come to adversity. Here
-“It is not in the village,” not in the village, and not in the village.
+"It is not in the village," not in the village, and not in the village.
 Be not an offline, not a giveaway, and not have been left unnoticed
 There is a separation of life, because the Brahman is inhabited by such spirit
 Ready.
@@ -943,7 +943,7 @@ There are loose words that have soft words somewhere in it, clairvoyant
 This is the fact that there are words, that there are no evil, that is, that is, that is, again with people in two things
 Speak. Placing themselves or in the lower position and placing the mutual in the higher position
 Speak to the mutual. How do they put themselves lower and put them in higher position?
-“Theppy has been a lot of help to me. This is due to the Covers, Pendapatha Senasune Ambulance
+"Theppy has been a lot of help to me. This is due to the Covers, Pendapatha Senasune Ambulance
 Medications will be taken. Because of what to do or think or think of it.
 Touches, I have the name of my ancient mother father. It also unmemory me.
 Because of the lips, I know that the tower is the tower of the township. Peek themselves
@@ -957,7 +957,7 @@ Do, respect? Allowance, this place himself higher and where he is lower
 Keep and speak to the people.
 
 [APZ 164.5] (#apz164 .5) {#apz164 .5 .ref .apz} "Profit stories to willing people
-Do not.” Profit due to profit, with the intention of making profit.
+Do not." Profit due to profit, with the intention of making profit.
 Speak not to the people to complete. Distance to speak. Noothed
 will be. (deceitful) will be a distance from speech with an unrestricted mind
 Close
@@ -965,22 +965,22 @@ Close
 [Msdiv 165] (#msdiv165) {#msdiv165 .ref .msdiv} (14 - 16)
 
 [APZ 165.1] (#apz165 .1) {#apz165 .1 .ref .apz} "The Fastest Stories
-Not to be” is that here some person will speak bragging. I am
-“Say a healer or a healthiest, or a scrub
+Not to be" is that here some person will speak bragging. I am
+"Say a healer or a healthiest, or a scrub
 Activate, or by race or tribe, or patriarchy, or
 By color or wealth or by learning, or by craftsmanship or by craftsmanship or
 By science or grade or by understanding, or by other point, or superior
 Say an ordicant from a flask or a great crossover or very
 I know the formulae or the formulas from a great set of troopes, or
 Disciplinary or Dharmacist Vemii or Araganaka Vemii or (3-3)
-5 (ii) Should be used from the place of “Rukkana Base” to the place where they go)
+5 (ii) Should be used from the place of "Rukkana Base" to the place where they go)
 Nevasannah is a socialitarian' or boasts. Thus
 Do not boast. Bragging is the farthest. Send to the nourge.
 From boasting, the detachment was close by the unrestricted heart
 Ready.
 
 [APZ 165.2] (#apz165 .2) {#apz165 .2 .ref .apz} 'Words Related to Cineport
-Not to say.” What are the words related to China? Some person here
+Not to say." What are the words related to China? Some person here
 Tells stories of robes. Tells stories about the pubic. Tells stories about the Senasana.
 This information tells stories about the drug purified in ambulance (about chandaradhara)
 The story is spoken. Senasana due to pindapatha due to realiu or robes
@@ -993,16 +993,16 @@ If they do a thing that will be impressed, he said. Fatty is the word sawing.
 Practical words are words from the subordinate
 Not saying words. Do not make business. Favorable words are removed.
 Be a distance from the word of the word, which shall be made unto him. Separate
-Send with unrestricted heart. “Not in the unscrupulled tree
+Send with unrestricted heart. "Not in the unscrupulled tree
 (Do not give) three unplaced traits. (Here (10-5) 5 where 'i.e.'
 Should be used from)
 
 [APZ 165.3] (#apz165 .3) {#apz165 .3.ref .apz} "Undumped
-No” is not in the unhinged gloom. Take it without behaving
+No" is not in the unhinged gloom. Take it without behaving
 Do not exist. Be a distant from the uncast glow, which shall be unto the unborn.
 Separate, the unrestrained heart shall close.
 
-[APZ 165.4] (#apz165 .4) {#apz165 .4 .ref .apz} "Do not speak for the cause of the thigh”
+[APZ 165.4] (#apz165 .4) {#apz165 .4 .ref .apz} "Do not speak for the cause of the thigh"
 What are the stories that cause the stir? Someone here is talking like this. You
 This Dhamma does not know discipline (8-9) 1 From where 'you do not know this Dhamma discipline'
 Should be used.) The swell, if possible, is saved from the dacha. This is
@@ -1023,14 +1023,14 @@ The doer shall be brought into the nouveth, and shall be a man from the bliss, a
 Send with unrestricted heart.
 
 [APZ 166.2] (#apz166 .2) {#apz166 .2 .ref .apz} "Know
-What does not do”? Some person here
-This is the fact that there is a certain faculties in it. “Know
-Kaureticity shall not do” is know and shall not do fetishness, which shall not be unborn
+What does not do"? Some person here
+This is the fact that there is a certain faculties in it. "Know
+Kaureticity shall not do" is know and shall not do fetishness, which shall not be unborn
 Do not take away koratiticity, and make it into nouveradah.
 A man who is separated and dwells with unrestricted heart
 
 [APZ 166.3] (#apz166 .3) {#apz166 .3 .ref .apz} "Re-life or
-Think not by sign or by acclaim, or by mutual,” again
+Think not by sign or by acclaim, or by mutual," again
 The term Yanu is a term match. Lyrics are a sacral. An application for luxury here
 Some person lives from the image life, the prophetic organism is Karapa
 Reinates the mutual. 'What? This is what he eats so much. How to clamping
@@ -1057,7 +1057,7 @@ The idea is. 'I am active. These mutants are not unhealthy. '
 He also despise the mutual.
 
 [APZ 166.4] (#apz166 .4) {#apz166 .4 .ref .apz} "Re-life
-He does not convey the mutual through the scrub.” is from the pictographic organism or the prophetic
+He does not convey the mutual through the scrub." is from the pictographic organism or the prophetic
 From the organism or the pledge resource, or from the cold resource, or from the genitourism, or
 The mutual does not convey. Thou shalt not dismantle from it which thou hast nourish mann
 A man shall not be a man, and a head lifted by dimension.
@@ -1065,8 +1065,8 @@ A man shall not be a man, and a head lifted by dimension.
 [Msdiv 167] (#msdiv167) {#msdiv167 .ref .msdiv} (14 - 18)
 
 [APZ 167.1] (#apz167 .1) {#apz167 .1 .ref .apz} "Many words corrupted by exteriors'
-or in many other words” is corrupted by tieReproach
-“Tempted” “Mothers” is a departure from this
+or in many other words" is corrupted by tieReproach
+"Tempted" "Mothers" is a departure from this
 He came into the sanctity. In many words, are trimesters
 Brahmins, Holy Spirit, Household, Prophecies, God, Men
 They are the incarnate of many words of many malicious miscarded.
@@ -1083,18 +1083,18 @@ The breeds will be torn, and keep away. Kalaha Bandana Wigra Debate
 Be a distant one. The detached niche dwells in the unrestricted heart.
 
 [APZ 167.3] (#apz167 .3) {#apz167 .3 .ref .apz} "The Sentenced Person is Opposition
-Do not do the thing” in “St., because the lust is congruent.” Malice
+Do not do the thing" in "St., because the lust is congruent." Malice
 Because of the connoisseurs, the name of St. Since the brains are congruent, the name of St. (3-4) 1 Year
 Should be used.) Since all the collectors are congruent, twisted away
-Since gone, St. “He that is shalt not do the opposite thing” is
+Since gone, St. "He that is shalt not do the opposite thing" is
 Even if the person does not contest opposition acts against them,
 Nouvedly,
 
 [Msdiv 168] (#msdiv168) {#msdiv168 .ref .msdiv} (14 - 19)
 
-[APZ 168.1] (#apz168 .1) {#apz168 .1 .ref .apz} "Know This Doctrine”
+[APZ 168.1] (#apz168 .1) {#apz168 .1 .ref .apz} "Know This Doctrine"
 The supposed DeshannahOpened, Divide Promotions
-This doctrine is “Know” by knowing and making a decision.
+This doctrine is "Know" by knowing and making a decision.
 If not known, the whole is heterogeneous, the road, the guilt and the reprimand
 Know the doctrine of the white and the discreet, the garages, and the discreet, the penasna.
 If this doctrine is known, if it is not possible to make a decision
@@ -1106,18 +1106,18 @@ Nibbana, Lady Octanga, Nibbana, Nibbana
 Gamini refusals, knowing the doctrine and making a decision.
 
 [APZ 168.2] (#apz168 .2) {#apz168 .2 .ref .apz} "Monk Thinking in Hamakal
-Thinking is what to think about,” what to look like?
+Thinking is what to think about," what to look like?
 What determines is that all the editors do to do is unreal (here
 (12-17) 4 Should be used from where all go) A doctrine born for some reason
 Adda decides to look at it all in order to ruin
 Bhikhu, who think to be prophesies. All Time
 (14-2) 5 (i) shall be used up to four other matters.)
-“Hikmennah” is three disciplins. HIGH HIGH HEARTINA HIGH
+"Hikmennah" is three disciplins. HIGH HIGH HEARTINA HIGH
 Pickers are precepts. These three precepts are remembrance: (2-4) 1 (ii)
 From the end of the 2 month to the end of the day)
 Stay there.
 
-[APZ 168.3] (#apz168 .3) {#apz168 .3 .ref .apz} "Know”
+[APZ 168.3] (#apz168 .3) {#apz168 .3 .ref .apz} "Know"
 Ragaya's extinguisher is Shanthia, used in the 1st month of Dheshaya's Mohe (3-9)
 Must.) Looking forward to knowing that all the collectors will be in the assembly.
 Decisions
@@ -1127,7 +1127,7 @@ Do not be enough 'is the jin of Buddhasasasana of the tree of Gauthamans
 The ascending of the plant is in the plant of Arhath, in the divine of the plant, in the plant of God
 Ready.
 
-[APZ 168.5] (#apz168 .5) {#apz168 .5 .ref .apz} "is not enough”
+[APZ 168.5] (#apz168 .5) {#apz168 .5 .ref .apz} "is not enough"
 Prepare of doctrines; (ii) a frequent doer
 Be a dealer without being. Be a Dealer
 He shall be the unfulfillment desire, and he shall be the unfulfillment. When I
@@ -1142,27 +1142,27 @@ Ready.
 [Msdiv 169] (#msdiv169) {#msdiv169 .ref .msdiv} (14 - 20)
 
 [APZ 169.1] (#apz169 .1) {#apz169 .1 .ref .apz} "Undigested in Kelce
-“Maddy” means “Maddy” is the image of the madman, the sound
+"Maddy" means "Maddy" is the image of the madman, the sound
 Diffuse odor extruded, rude exudder, contact exudder, clayey doctrines
 The drainage does not have any clayey. Smoked Laminerated Straighten
 The grievous consequences of the slave who will reinvent a troveThi Re-Death
 We maintain the Akushal doctrines that are brought about.
 
 [APZ 169.2] (#apz169 .2) {#apz169 .2 .ref .apz} "untrickled oneself
-If the doctrine is the doctrine of “the doctrine”, then this is:
+If the doctrine is the doctrine of "the doctrine", then this is:
 In Nuu. This did not come from heredity. Partitions were not made. Reasons of reasoning
 Not as anthology and not for reasons. Not by arguing about how
 Not in terms of view. The third saw the doctrine to him, knowing himself.
 
 [APZ 169.3] (#apz169 .3) {#apz169 .3.ref .apz} "Hence those
-So is the matter of the fact that “Goes in the Plant of His Plant”
+So is the matter of the fact that "Goes in the Plant of His Plant"
 By the way it comes from sleep. It is in the church of the spasphemers
 Jinan in the church of the Buddhist, in the Goumama Plant, in the Buddha
 Arhath in the plant of God to God in the place of the plant of the plant.
 Ready.
 
 [APZ 169.4] (#apz169 .4) {#apz169 .4 .ref .apz} "Apr in Hamecal
-He worships accordingly,” said the prophets. Going
+He worships accordingly," said the prophets. Going
 Approx is the process of the Kuscal doctrines (here (14-19) 5 (ii)
 Requer to apply). Hammakal is every time and every time
 (14-2) 5 (i) to be applied where remembrance) of the last age
@@ -1170,11 +1170,11 @@ Ready. Worshiped are the cans or worshiped by word or
 Worshiped by heart or worshiped by meaning
 Worshiped by the policy or by the doctrine policy or
 Worshiped are care will be honred and multidimensional
-Three-discipline is considered “according to Hickman”
+Three-discipline is considered "according to Hickman"
 Advertise precepts, adhibitory precepts. (2-4)1 (ii)
 To be used from the end of the 2 month.) These superordinations are tenets. This discipline
 Thinking of the three is done in Hickman. Reduces are made in Hikmene.
-Behave. Samans are maintained. “Bist” is the Word of Honor ((1-2)
+Behave. Samans are maintained. "Bist" is the Word of Honor ((1-2)
 1 Should be used from where they go.) A Bhagawa is
 Promised Imposition
 

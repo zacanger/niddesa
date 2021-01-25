@@ -1,12 +1,12 @@
 6. Explanations asked by the Brahmin of U Bosi student
 
-38. [Venerable U Bosi like this:] Sakyamuni! I am lonely, unrestrained, I can’t
+38. [Venerable U Bosi like this:] Sakyamuni! I am lonely, unrestrained, I can't
     get through the storm,
 
 All those who see, please tell us about the object: Those who depend on it can
 survive the storm.
 
-"Sakyamuni! I am lonely...the great torrent": ""Lonely", "Without my person’s
+"Sakyamuni! I am lonely...the great torrent": ""Lonely", "Without my person's
 partner, or without my partner of Dhamma: Anyone who is dependent or dependent
 on the law can survive, Can transcend, pass, overcome, and overcome the storms
 of great desire, some storms, the storms of seeing, the storms of ignorance."
@@ -40,7 +40,7 @@ knowing wisdom. Therefore, the Blessed One reaches (has), reaches (has), enters,
 enters completely, has enough, has enough , State intelligence with all
 knowledge.
 
-『For him, there is nothing unseen here (in this world), there are still
+"For him, there is nothing unseen here (in this world), there are still
 unknowable, unknowable things,
 
 He proves that everything that exists should be led to infer, because the
@@ -106,11 +106,11 @@ the desires", "after knowing the desires for things, after giving up on the
 desires for pollution, after giving up, after being driven away, after
 finishing, and making it come to After non-existence." After giving up on
 desire. "I have been separated from doubts", doubts are called doubts: doubts on
-suffering...(slightly omitted) the mind’s confusion. "I have been separated from
+suffering...(slightly omitted) the mind's confusion. "I have been separated from
 doubts and abstained. , Has been abstained, has been separated, has left, has
 been freed, has been separated from the bondage, he lives with the heart of
-separation and limitation.” This is to have been separated from all doubts. Or,
-“from thirty-two kinds of beasts Separation, abstinence, abstinence,
+separation and limitation." This is to have been separated from all doubts. Or,
+"from thirty-two kinds of beasts Separation, abstinence, abstinence,
 renunciation, renunciation, liberation, and renunciation, he lives with the
 heart of separation and limitation." This is also the separation from doubts."
 After the break, he was free from all doubts.
