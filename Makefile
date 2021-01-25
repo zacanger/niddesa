@@ -24,7 +24,7 @@ PANDOC_COMMAND = pandoc
 # Per-format options
 EPUB_ARGS = --template templates/epub.html # --epub-cover-image $(COVER_IMAGE)
 HTML_ARGS = --template templates/html.html --standalone --to html5
-PDF_ARGS = --template templates/pdf.latex --pdf-engine xelatex -V geometry:margin=1.5in
+PDF_ARGS = --template templates/pdf.latex --pdf-engine xelatex -V geometry:margin=1.5in --variable urlcolor=teal
 
 # Per-format file dependencies
 BASE_DEPENDENCIES = $(MAKEFILE) $(CHAPTERS) $(METADATA) $(TEMPLATES)

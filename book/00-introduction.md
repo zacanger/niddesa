@@ -25,7 +25,7 @@ answer](https://buddhism.stackexchange.com/a/43712/19522) that pointed me to a
 Sinhala translation; I also later found a Chinese translation. Not knowing
 Sinhala or Chinese, I automated translations using a bit of code, and took these
 translations and wrangled them into this edition. As the work progressed I
-referenced Pāli romanizations more and more, with the help of some dictionaries,
+referenced Pāli Romanizations more and more, with the help of some dictionaries,
 so this translation is a combination of the translation from the Chinese and
 Pāli, with some occasional help from the translation from the Sinhala. There
 will likely be many errors, inaccuracies, and inconsistencies in this early
@@ -39,10 +39,10 @@ and other English translations will also sometimes just write _Bhagavāt_; I've
 chosen to use _Blessed One_ because I like the feel of it.
 
 For readability, I have omitted and abbreviated some stock passages which are
-repeated verbatim, as well as concluding sentences of each paragraph (which
-usually repeat the first sentence), and concluding repetitions after the
-explanation of each verse. Without these omissions, the book would likely be
-near a thousand pages.
+repeated verbatim, as well as concluding sentences of each paragraph when they
+simply repeat the first sentence, and concluding repetitions after the
+explanation of each verse. Without these omissions, the book would be at least
+twice as long as it is now.
 
 Included verse numbers are numbers of the verses as presented in the two parts
 of the Niddesa itself. Including separate verse numbers for each sutta, their
@@ -53,9 +53,8 @@ translations of the Sutta Nipāta should be straightforward for the reader.
 
 References to other texts were primarily added in the Chinese version and are in
 square brackets using common abbreviations (DN, Jat., etc.); statements of who
-is speaking a given stanza are also in square brackets; comments,
-clarifications, and marks of unclear passages by myself or from the sources are
-in parentheses.
+is speaking a given stanza are also in square brackets; I have put comments,
+clarifications, and marks of unclear passages in parentheses.
 
 ## Credits and Licenses
 
@@ -65,6 +64,11 @@ The Chinese was translated by [Zhuang
 Chunjiang](https://agama.buddhason.org/Ni/Ni1.htm). The Sinhala was translated
 by A. P. de Zoyza and hosted by [Sutta
 Central](https://github.com/suttacentral/sc-data/tree/5c060c479f4cb17a0891011d57d4933c81918ead/html_text/si/pli/sutta/kn).
+Two Romanizations of the Pāli were used, one from [Sutta
+Central](https://github.com/suttacentral/legacy-suttacentral-data/tree/384ab0b63a521946cddb343319ac6c325dd2fb27/text/pi/su/kn)
+and one from [Tipitaka.org](https://tipitaka.org/). I relied most heavily on one
+of the automated translations from the Chinese and the Pāli version from
+Tipitaka.org.
 
 In addition, the translations of the Sutta Nipāta by Viggo Fausböll and Bhikkhu
 Bodhi have been valuable references (if I had known about Bhikkhu Bodhi's
@@ -79,8 +83,9 @@ and paid online services. This translation was edited in
 [vim](https://www.vim.org) and built with [Pandoc](https://pandoc.org/),
 initially using [this project](https://github.com/wikiti/pandoc-book-template)
 (MIT licensed) as a template. The typeface is
-[Cardo](https://www.fontsquirrel.com/fonts/cardo) (SIL v1.10 licensed). Original
-code used in this project is licensed LGPL-3.0.
+[Cardo](https://www.fontsquirrel.com/fonts/cardo) (SIL v1.10 licensed). The
+project itself is managed using [Git](https://git-scm.com). Original code used
+in this project is licensed LGPL-3.0.
 
 ### License
 
@@ -90,10 +95,9 @@ International](https://creativecommons.org/licenses/by-nc-sa/4.0/) license. This
 means you are free to copy and redistribute this work, as well as make changes,
 as long as you provide attribution (give credit back to this work) and share
 your changes under the same license. It would be preferable to always link back
-to [the source
-(https://github.com/zacanger/niddesa)](https://github.com/zacanger/niddesa)
-rather than distributing your own copies which may get out of date. Under this
-license you may not use this translation for commercial purposes (you can't sell
-it). See the link for the full version of the license.
+to [the source](https://github.com/zacanger/niddesa) rather than distributing
+your own copies which may get out of date. Under this license you may not use
+this translation for commercial purposes (you can't sell it). See the link for
+the full version of the license.
 
 \newpage
