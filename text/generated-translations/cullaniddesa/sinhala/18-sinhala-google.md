@@ -38,7 +38,7 @@ Declares.
 Does (ii) express the past of oneself and of others. (iii) "Mahasudassana"
 The formula states ((ii) should be used here) 'Mahagovinda'
 The Sutta preaches (here (ii) Should be used.) God Magha
-The Sutra preaches (should use (ii) here) This is Blessed
+The Sutta preaches (should use (ii) here) This is Blessed
 The Lord preached.
 
 [APZ 81.5] (# apz81.5) # apz81.5 .ref .apz} "Elements about the past tense
@@ -197,7 +197,7 @@ Frozen, free from odor. Free from taste, free from touch, free from speech
 Freed, freed from the genus, freed from habitat, freed from profit. In fame
 Freed, freed from praise, freed from pleasure, freed from the robe,
 Get rid of pindapatha, get rid of senasana, get rid of sick medicine
-Freed, freed from Sutras, freed from discipline, freed from Abhidharma,
+Freed, freed from Suttas, freed from discipline, freed from Abhidharma,
 Got rid of the armpit. Freed from the pindapathikanga, from the pansukulikanga
 Freed, from the Thechivarikanga, the Sapadanacharikanga, the Khalupacchabhaktikanga,
 From the nasal passages, from the rectum, from the first meditation, from the second meditation,

@@ -948,7 +948,7 @@ Wherever there are, some of those Dhammas are pure in the beginning, pure in the
 Completely pure celibacy, with all the connotations of meaning
 Expresses, from the point of view of the mind accustomed to such a word
 The understood Dhammas are largely tolerated. That is. 'Dharmadhara' means
-Sutra, Geyya grammar, Stanza, Udanaya, Ithivuttaka, Jataka, Abbhuta
+Sutta, Geyya grammar, Stanza, Udanaya, Ithivuttaka, Jataka, Abbhuta
 Dhamma, Wedallaya, Dhammas. Bhajana, the polytheistic Dharmadhara friend
 Doing means serving.
 

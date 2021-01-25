@@ -1,4 +1,4 @@
-18. Explanation of reciting verses on the other side
+### 18. Explanation of reciting verses on the other side
 
 102. [Venerable Binchia like this:] I will recite the other side road, if he
      sees it like this, he tells: the scumbag, the vast wise,
@@ -238,7 +238,7 @@ has no troubles, gives up all the suffering.
 equivalent name, equivalent addresser, true equivalent addressee, Vai Po Shizun,
 Shiqi Shizun, Visheva Shizun, Kulou Sunshizun, Kunnahan Shizun, and Kassapa,
 those Buddhas and Shizun are those who have the same name and the same address,
-and Shakyamuni also belongs to those Buddhas, and the Shizun is the same name
+and Sakyamuni also belongs to those Buddhas, and the Shizun is the same name
 and those who are the same name." So the Buddha is real. Caller.
 
 "Brahmin! Be served by me": "The Blessed One is trusted, served, respected by
@@ -1142,26 +1142,6 @@ me as a victorious soul. "
 The eighteenth explanation of the chanting verses along the other shore road
 [completed].
 
-Bian Taoist products have been completed.
+---
 
-
-
-Summary:
-
-1. The Dhamma taught by the World Honored One is directly visible and instant.
-   The Dhamma taught by other teachers are all rumors and an increase in
-   theories.
-
-2. Faithful love: I see him like an eye with my will, day and night, I spend the
-   night in homage, wherever the bright and wise person walks, I am the one who
-   respects others in that direction, My mind is united with him.
-
-3. Nibbana: the extinction of craving, the one without disaster, the one that
-   cannot be moved, the one that cannot be shaken, that is the cessation of all
-   actions, the cessation of all attachments, greed, annihilation, no matter
-   where it is There is no metaphor everywhere vs. Nibbana is constant, firm,
-   eternal, and unchanging ⇒ Take the first step towards Changle.
-
-11/12/2020 06:05
-
-
+The other side path is completed.

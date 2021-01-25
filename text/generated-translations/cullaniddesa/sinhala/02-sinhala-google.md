@@ -427,7 +427,7 @@ This is the knowledge of the finished Brahmin. "
 
 PosalamanavapuChha Chuddasama.
 
-## 15. The Mogharaja Sutra
+## 15. The Mogharaja Sutta
 
 [Msdiv 141] (# msdiv141) # msdiv141 .ref .msdiv} "I asked twice.
 In the third season you will declare my hearing in the Holy Spirit. "

@@ -1,5 +1,5 @@
-7. Explanation of the Low Shemaitreya Sutra
-    Secondly, the explanation of the Low Shemaitreya Sutra will say:
+7. Explanation of the Low Shemaitreya Sutta
+    Secondly, the explanation of the Low Shemaitreya Sutta will say:
     49. [Venerable like this lowers Maitreya:] Those who engage in lust, dear sir! Please say annoyed,
        After hearing your teachings, we will learn by staying away.
 "Person who engages in lust": The name of anyone who is not doing justice, filthy law (village law), filthy law, vulgarity, washing with water after friendship (waterside), secret, one-on-one, etc. to [AN.7.50] For lust law. For what reason is it called the law of lust? "It belongs to two people who are greedy, greedy, full of desire and greed (leakage), entangled, the heart is overwhelmed, and two people are in the same way." For that reason, it is called the law of lust. For example, if there are two quarrelers, they are called "fornicators"; there are two disputers, and they are called "fornicators"; there are two discussants, and they are called "fornicators"; there are two disputers. They are called "fornicators"; there are two advocators, they are called "fornicators"; there are two speakers, they are called "fornicators"; there are two interlocutors, they Known as "the adulterer". In the same way, "belongs to two people who are greedy, greedy, full of desire and greed (leakage), entangled, whose heart is overwhelmed, and two people are in the same way." For that reason, it is called the law of lust.
@@ -100,7 +100,7 @@ When he sought, he found it, and felt distressed because of the protection he go
      Because of that, the Lord said:
      "For Muni, who is empty and has no expectations in desire,
        People who are tied up in desire envy those who have survived the storm. "
-     The seventh explanation of the Maitreya Sutra [Completed].
+     The seventh explanation of the Maitreya Sutta [Completed].
 
 
 Summary:

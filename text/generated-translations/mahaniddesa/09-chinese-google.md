@@ -1,5 +1,5 @@
-9. Explanation of the Asian Sutra of Mackenzie
-    Secondly, the explanation of the Asian Sutra of Ma Gengdi will say:
+9. Explanation of the Asian Sutta of Mackenzie
+    Secondly, the explanation of the Asian Sutta of Ma Gengdi will say:
     70. After seeing thirst, unhappiness and greed, I have no desire in lust,
        Why [want to] be full of this poop? I don't want to touch with my feet either.
 "After seeing thirst, unhappiness, and greed, I have no desire in lust": "After seeing and seeing the daughter of the demon thirst for love, unhappiness, and greed, I have no desire in the law of lust, or greed, or Love." After seeing thirst, unhappiness and greed, I have no desire in lust.
@@ -97,7 +97,7 @@ Or, "This view is impermanent, promising, and conditioned by conditions. It is t
     79. After leaving his home, he became a traveller without a place to live, and Muni did not make close contacts in the village.
        Those whose desires have been eliminated, those who do not have expectations, will not engage in arguing discussions with others.
     At that time, the owner Heli Dijiani went to see the Venerable Mahakayayan. After arriving, he asked the Venerable Maha Kajan for inquiries, and then sat down aside. After sitting on the sidelines, the owner of the house, Heli Dijiani, said to the Venerable Maha Kajani [SN.22.3]:
-    "Kayajana! In the eighth group of questions of Mahgendiya spoken by the Blessed One [Sutra]:
+    "Kayajana! In the eighth group of questions of Mahgendiya spoken by the Blessed One [Sutta]:
     "After leaving his home, he became a traveller without a place to live. In the village, Muni did not make close contacts.
        Those whose desires have been eliminated, those who do not have expectations, will not engage in arguing discussions with others. "
      Kajanyan great virtue! How should the detailed principles that the Blessed One spoke briefly to be understood? "
@@ -160,7 +160,7 @@ Or, they argue, quarrel, argue, argue, argue, and disagree: "You don't know the 
      Because of that, the Lord said:
      "There is no tie for those who want to get away from the dye, and there is no idiot for those who are free from wisdom,
        Wherever they hold the people who want to see and see, they will walk with friction in the world. "
-     The ninth explanation of the Asian Sutra of Ma Gengdi [Completed].
+     The ninth explanation of the Asian Sutta of Ma Gengdi [Completed].
 
 Summary:
 1. Not based on seeing/hearing/wisdom/precept and prohibition, nor the state of ignorance/hearing/wisdom/precept and prohibition as pure, but giving up and not picking up these (black party law/love see slow /Blessings are not blessings and do not move), the silent ones will not be eager to have after they do not adhere to (love/see).
