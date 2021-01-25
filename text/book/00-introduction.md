@@ -69,11 +69,12 @@ The Chinese was translated by [Zhuang Chunjiang](https://agama.buddhason.org/),
 and no copyright notice could be found.
 
 This translation was edited in
-[Markdown](https://daringfireball.net/projects/markdown/) (BSD) and built with
-[Pandoc](https://pandoc.org/) (GPL-2) initially using [this
-project](https://github.com/wikiti/pandoc-book-template) (MIT )as a template.
-The typeface is [Cardo](https://www.fontsquirrel.com/fonts/cardo) (SIL v1.10).
-Original code used in this project is licensed LGPL-3.0.
+[Markdown](https://daringfireball.net/projects/markdown/) using
+[vim](https://www.vim.org) and built with [Pandoc](https://pandoc.org/)
+initially using [this project](https://github.com/wikiti/pandoc-book-template)
+(MIT licensed) as a template. The typeface is
+[Cardo](https://www.fontsquirrel.com/fonts/cardo) (SIL v1.10 licensed). Original
+code used in this project is licensed LGPL-3.0.
 
 This translation is licensed under the
 [Creative Commons Attribution-NonCommercial-ShareAlike 4.0
