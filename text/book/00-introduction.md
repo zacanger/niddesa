@@ -62,7 +62,7 @@ and was originally translated by A. P. de Zoyza.
 
 In addition, the translations of the Sutta Nipāta by Viggo Fausböll and Bhikkhu
 Bodhi have been valuable references, as well as various Pāli dictionaries and
-glossaries.
+glossaries, and Sutta Central's full offline archive.
 
 ### Software
 
