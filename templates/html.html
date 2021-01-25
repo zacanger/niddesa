@@ -13,7 +13,7 @@ $if(keywords)$
   <meta name="keywords" content="$for(keywords)$$keywords$$sep$, $endfor$" />
 $endif$
   <title>$if(title-prefix)$$title-prefix$ – $endif$$pagetitle$</title>
-  <style>
+  <style type="text/css">
     $styles.html()$
     $style.css()$
   </style>
@@ -23,9 +23,6 @@ $endfor$
 $if(math)$
   $math$
 $endif$
-  <!--[if lt IE 9]>
-    <script src="//cdnjs.cloudflare.com/ajax/libs/html5shiv/3.7.3/html5shiv-printshiv.min.js"></script>
-  <![endif]-->
 $for(header-includes)$
   $header-includes$
 $endfor$
@@ -60,5 +57,8 @@ $body$
 $for(include-after)$
 $include-after$
 $endfor$
+<script type="text/javascript">
+$script.js()$
+</script>
 </body>
 </html>

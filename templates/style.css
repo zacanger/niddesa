@@ -27,19 +27,15 @@ a {
     color: #0645ad;
     text-decoration: none;
 }
-
 a:visited {
     color: #0b0080;
 }
-
 a:hover {
     color: #06e;
 }
-
 a:active {
     color: #faa700;
 }
-
 a:focus {
     outline: thin dotted;
 }
@@ -48,26 +44,19 @@ a:focus {
     background: rgba(255, 255, 0, 0.3);
     color: #000;
 }
-
 *::selection {
     background: rgba(255, 255, 0, 0.3);
-    color: #000;
 }
-
 a::-moz-selection {
     background: rgba(255, 255, 0, 0.3);
-    color: #0645ad;
 }
-
 a::selection {
     background: rgba(255, 255, 0, 0.3);
-    color: #0645ad;
 }
 
 p {
     margin: 1em 0;
 }
-
 img {
     max-width: 100%;
 }
@@ -349,4 +338,51 @@ table td {
         display: block;
         page-break-after: always;
     }
+}
+
+.dark {
+    background: #222;
+    color: #fefefe;
+}
+.dark a {
+    color: #8cfdcb;
+    text-decoration: none;
+}
+.dark a:visited {
+    color: #8bd4fa;
+}
+.dark a:hover {
+    color: #06e;
+}
+.dark a:active {
+    color: #faa700;
+}
+.dark h1,
+.dark h2,
+.dark h3,
+.dark h4,
+.dark h5,
+.dark h6 {
+    color: #eee;
+}
+
+#invert {
+    position: fixed;
+    top: 0;
+    left: 0;
+    display: inline-flex;
+    cursor: pointer;
+    align-items: center;
+    justify-content: center;
+    margin: 1em;
+    border-radius: 25%;
+    padding: .25em;
+    width: 30px;
+    height: 30px;
+    background: #fefefe;
+    color: #111;
+}
+.dark #invert {
+    color: #fefefe;
+    background: #222;
 }
