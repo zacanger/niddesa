@@ -685,7 +685,7 @@ evil behavior are called deception. For him who this deception has been cut off,
 cut off, calmed down, stopped, unable to arise, or burned by wisdom, He is
 called the one who does not deceive. "Depart from the divorced speaker", "the
 divorced speaker" Here, a certain type of person is the divorced
-speaker……(Omitted) This is the desire for division to produce divorce. For him
+speaker......(Omitted) This is the desire for division to produce divorce. For him
 who is cut off, cut off, calmed down, stopped, unable to arise, and burned by
 intellectual fire, he is called the one who gives up the divorce, stays away
 from the divorce, and isolates the divorce. . "For those who don't deceive,
@@ -927,7 +927,7 @@ which is greed, greed... (omitted) the root of greed, greed, and
 unwholesomeness. For what reason is the hooker called thirst? Anyone who pulls,
 pulls, grasps, grasps, clings to him with thirst and loves...(slightly)
 thinks...does...knows...interests...rebirth...birth...has (existence)...
-…Reincarnation…revolving him to pull, fully pull, hold, take, and cling to.
+...Reincarnation...revolving him to pull, fully pull, hold, take, and cling to.
 Those who hook him for this reason are called cravings. "Should not be the
 dependant of the hooker": "Should not become the dependant of the thirsting one.
 The thirsting one should be cut off, should be driven away, should end, and
@@ -1377,7 +1377,7 @@ holding on to me.
 
 "He doesn't grieve "there is no mine"": "He doesn't grieve things that have
 changed, or things that are changing: "My eyes have changed." He is not sad; my
-ears... (omitted)... …"My blood has changed." He is not sad, tired, weeping,
+ears... (omitted)... ..."My blood has changed." He is not sad, tired, weeping,
 pounding his chest, crying, or coming to confusion." He is not sad for him,
 "there is no mine."
 
@@ -1484,7 +1484,7 @@ detached from being restricted." Take off.
 
 "He sees stability everywhere": "Greed is the author of fear, anger is the
 author of fear, ignorance is the author of fear... (Omitted) Pollution is the
-author of fear. The author of greed and fear has been abandoned. …… (omitted)
+author of fear. The author of greed and fear has been abandoned. ...... (omitted)
 The author of the fear of pollution has been cut off. He sees stability
 everywhere, no fear everywhere, no disaster everywhere, no danger everywhere, No
 disaster is seen everywhere, and no oppression is seen everywhere." For him, he

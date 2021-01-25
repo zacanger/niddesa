@@ -222,7 +222,7 @@ interest , Everything revolves in the Buddha's wisdom.
 The wisdom of the Buddha and the Blessed One is barrier-free about the past;
 [Buddha, the Blessed One] the wisdom of the future is barrier-free; the wisdom
 of the present is barrier-free, and all body deeds follow the Buddha and the
-Blessed One's wisdom; all languages... …All mental kamma, the Blessed One's
+Blessed One's wisdom; all languages... ...All mental kamma, the Blessed One's
 intellectual transformation, all that should be guided to infer, is the
 intellectual reach; all intellectual reach is the reach that should be guided
 inferred, and the ultimate inference should be guided to wisdom; The ultimate of
@@ -480,7 +480,7 @@ Blessed One is the non-restraint of the eyes, the non-restraint of the ears...
 the nose... the tongue... the body... the mind, the colors... the sounds... the
 smells... the tastes... the touches[... Dhamma]...home...group
 (congregation)...dwelling...benefit...famous...praise...happiness...clothing...food...housing...the
-patient's needs and medical necessities...the world of desire... …Material
+patient's needs and medical necessities...the world of desire... ...Material
 Realm... Invisible Realm... Desire to have... Material to have... Colorless to
 have... Want to have... No want to have... Not want to have... One aggregate
 has... Four aggregates have... Five aggregates have ...The past...the

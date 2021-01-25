@@ -1,446 +1,227 @@
 ### 14. Explanation of the Quick Instructions
 
-150. Sun people! I ask you, the realm of far away and silence, Great Immortal!
+150. Kin of the Sun! I ask you (about) the realm of far away and silence, Great
+     Immortal!
+How after seeing does the bhikkhu reach Nibanna and become one who has no
+    clinging in the world?
 
-How did        see the post-bhikkhu reach Nibbana and become one who has no
-clinging in the world?
+"Kin of the Sun! I ask you": "Inquiry", there are three kinds of inquiries:
+inquiry about the explanation of the unseen, inquiry about the confluence of the
+seen, and inquiry about the cut-off of doubt.
 
-"Sun people! I ask you": "Inquiry (ask)", there are three kinds of inquiries:
-inquiry about unseen explanation, inquiry about confluence of what you see,
-inquiry about cutting off doubt. What is the unseen explanation inquiry? It was
-originally a feature that was unknown, unseen, unmeasured, unjudged, unclear,
-unclear. For his wisdom, seeing, measuring, judging [, clear], understanding, he
-asked questions, this is Inquiries about unseen explanations. What is the
-confluence of what is seen? It was originally a characteristic that was known,
-seen, measured, judged, clear, and understood. He asked questions for the
-purpose of confluence with other wise men. This is a question of confluence of
-seen. What is the question of the cut-off of doubt? It was originally a jump-in
-(Sri Lankan version) doubter, a jump-in doubter, and a doubter: "Is that so?
-Isn't it? What is it? How is it?" He asked questions for the purpose of cutting
-off doubts, this It is a question of cutting off doubts. These are three types
-of queries.
+What is an inquiry about the unseen? It was an unknown, unseen, unmeasured,
+unjudged, unclear characteristic, for the purpose of his wisdom, seeing,
+measuring, judging, clear, he asked a question, which was an inquiry about the
+unseen.
 
-The next three kinds of inquiry: human inquiry, non-human inquiry, and human
-inquiry. What is a human inquiry? Everyone asked questions after they went to
-see the Buddha and the World-Honored One: asked bhikkhus, bhikuni, yobosai,
-yoboyi, kings, kshatriya, brahmins, and vishas, The heads of the dhara asked,
-the lay people asked, the monks asked, this is a human question. What is an
-inhuman inquiry? The non-people asked questions after they went to see the
-Buddha and the Blessed One: asked the dragons, asked the golden-winged birds,
-asked the yasha, asked the asuras, asked the gandapo, asked the kings, asked the
-Indra, asked the Brahmas , Asked the gods, this is an inhuman inquiry. What is
-an inquiry from a human? All the body and limbs of the physical body produced by
-the creation intention of the Blessed One are not lacking in the roots. The
-Blessed One will ask questions after seeing the Buddha and the Blessed One, and
-the Blessed One will answer him. This is a question of the Blessed One. These
-are three types of queries.
+What is an inquiry about the confluence of the seen? A characteristic that
+was known, seen, measured, judged, clear, and understood. He asked questions for
+the purpose of confluence with other wise men. This is an inquiry of confluence
+of the seen.
+
+What is an inquiry for the cutting off of doubt? A leap into skeptics (??),
+jump-in doubter (??), and born doubter: "Is that so? Isn't it
+true? what is it then? How is it? He asks questions for the purpose of severance
+of doubt. This is an inquiry for the severance of doubt. These are three types of
+queries.
+
+The next three kinds of inquiry: human inquiry, non-human inquiry, and inquiry
+of the person.
+
+What is a human inquiry? People asked questions after they went to
+see the Buddha, the World-Honored One: asked the bhikkhus,
+asked the Uvasai, ...Uvayis, ...kings, ...Kshatriya, ...Brahmins, ...Vaisha.
+Asked about the dhamma, asked the lay people, asked the monks, this is a human
+inquiry.
+
+What is an inhuman inquiry? The non-people asked questions after they went to
+see the Buddha, Blessed One: asked the dragons, ...golden-winged birds, yasha,
+asuras, gandapo, kings, Indra, Brahmas, gods, this is an inhuman inquiry.
+
+What is the inquiry of the person? All the physical bodies and limbs of the
+World-Honored One's creative intentions are not lacking in the roots. The
+transfiguration(??) asks questions after seeing the Buddha, the Blessed One, and
+the Blessed One answers him. This is a trans-human inquiry. These are three
+types of queries.
 
 The next three kinds of inquiry: inquiry for one's own benefit, inquiry for the
-benefit of others, and inquiry for the benefit of both. The next three
-inquiries: inquiries about current interests, inquiries about future interests,
-and inquiries about highest interests. The next three kinds of inquiry: inquiry
-of the benefit of no fault, inquiry of the benefit of no pollution, and inquiry
-of the pure benefit. The next three types of queries: [about] past queries,
-future queries, and current queries. The next three inquiries: [About] Inquiries
-within oneself, inquiries outside oneself, and inquiries within and outside
-oneself. The next three inquiries: [about] good inquiries, unkind inquiries, and
-non-remembering inquiries. The next three types of queries: [about] Yun, Jie,
-and Chu. The next three inquiries: [About] Inquiry about Mindfulness, Inquiry
-about Diligence, Inquiry about Spiritual Content. The next three kinds of
-inquiry: [about] the root inquiry, the strength inquiry, the enlightenment
-inquiry. The next three kinds of inquiry: inquiry of Tao, inquiry of fruit,
-inquiry of Nibbana.
+benefit of others, and inquiry for the benefit of both. The next three:
+inquiries about current interests, inquiries about future interests, and
+inquiries about the highest interests. The next three: inquiry for the benefit
+of no faults, inquiry for the benefit of no pollution, and inquiry for the pure
+benefit. The next three: [about] past queries, future queries, and current
+queries. The next three: [about] inquiries within oneself, inquiries outside
+oneself, and inquiries within and outside oneself. The next three: [about] good
+inquiries, unkind inquiries, and non-remembering (unbearable??) inquiries. The
+next three: [about] Yun??, Jie (community??), and Chu(??). The next three: about
+mindfulness, about diligence, about spiritual content. The next three: about the
+root, the strength, and the enlightenment. The next three: about the Path, the
+Fruit, and Nibbana.
 
-"[Sun tribe!] I ask you": ""I ask you; I beg you; I beg you; you make me clear;
-please tell me." Ask you for me. "Sun tribe", Sun (Ādicco ) Is called the sun
-(sūriyo), the sun is surnamed Gotama, the Blessed One is also surnamed Gotama,
-the Blessed One is a relative of the sun surname, a relative of the surname of
-the sun, so the Buddha is a member of the sun tribe. "For the sun tribe! I ask
-you.
+"[Sun kinsman!] I ask you": ""I ask you; I beg you; make me clear; please tell
+me." I ask you. "Sun tribe", Sun (Ādicco) Is called the sun (sūriyo), the sun is
+surnamed Gotama, the Blessed One is also surnamed Gotama, the Blessed One is a
+relative of the sun surname, a relative of the surname of the sun, so the Buddha
+is a member of the sun tribe." Kinsman of the sun tribe! I ask you.
 
 "Far away and quiet, great immortal": "Far away," there are three types of
-distance: body distance, heart distance, and clinging distance. What is body
-distance? Here, monks close and live alone: forests, trees, mountains, caves ,
-Caves, cemeteries, forests, open fields, straw piles, living away from the body
-[living away from the body-Ni.2,7 偈], he walks alone, stands alone, sits alone,
-lies alone, and enters the village alone for alms To return alone, to sit alone
-in a quiet place, to perform alone, to walk alone, to live, to act, to turn, to
-guard, to survive, to survive, this is to stay away from the body.
+distance: ...(omitted, see previous sections).
 
-What is the mind away? The mind of the person who enters the first jhana has
-been separated from the covers, the mind of the person who has entered the
-second jhana has been separated from the search and service, the mind of the
-person who has entered the third jhana has been separated from happiness, the
-heart of the fourth jhana has been separated from happiness and suffering Far
-away, the mind of the person who enters the void and boundlessness has already
-thought about things, there is antithetical thinking, and all kinds of desires
-to be far away, the heart of the person who enters the boundlessness of
-consciousness has wanted to stay away from the void and boundlessness, and the
-mind of the person who has entered nowhere has thought from the boundlessness of
-consciousness To stay away, to enter the mind of the person who has no thoughts,
-and wants to stay away from nothing. The mind of the Sudhahuan person has
-changed from seeing, suspicious, forbidden, seeing the potential trend of
-defilement, the potential trend of doubt defilement, and the same. Stay away
-from the existing pollution,The mind of the one who has come has changed from
-crude desire and greed knots, from the potential trend of crude desire and
-greed, the potential trend of disgust and trouble, and the pollution of the same
-existence. The heart of those who do not return has been knotted from the
-residual desire and greed. , Disgust knot, from the residual potential trend of
-greed and greed, the potential trend of disgust, and the pollution that exists
-with it, the heart of Arahant has changed from color greed, colorless greed,
-slowness, abandonment, ignorance, potential trend of slow trouble, The latent
-tendency of greed and defilement, the latent tendency of ignorance defilement,
-and the pollution that coexists with are far away from the outside and
-everything.
+"The Great Immortal", the Great Immortal is the Blessed One, and the "seekers,
+and pursuers of the Great Precepts" are the Great Immortals. ...of the great
+concentration..., ...of the great liberation aggregate..., "the seeker and
+pursuer of the Great Liberation of Wisdom and Insight" is the great immortal;
+the fragments gathered by the dark..., the destruction of the great upside
+down..., the pulling out of the big arrow of thirst..., the unraveling of the
+accumulation of sight..., the lifting of the big slow flag (??), ...the calming
+of the great work..., the calming of the big storm..., the laying down of the
+heavy burden..., the severance of the cycle of the great reincarnation..., the
+disappearance of the great heat..., the cessation of the great heat..., "the
+seeker, and the pursuer who made the establishment of the Dafa flag (??)" become
+the great immortal; the great minds..., Dazhengqin(??)..., the great gods...,
+the great roots..., the power..., the great enlightenment branches..., the big
+eight branches of the holy path..., "the immortality of the great supreme
+benefit, the seeker of Nibbana, the pursuer" is Great Immortal; "Sought,
+pursued, and searched for by powerful beings: Where is the Buddha? Where is the
+Lord? Where is the god among the gods? Where is the bull king among people?" A
+great immortal." The realm of distance and silence, Great Immortal!
 
-What is keeping away? Relying on is called pollution and various aggregates and
-various works; Relying on distance is called immortality, Nibbana, that is the
-cessation of all actions, the cessation of all dependence, the extinction of
-craving, greed, extinguishment, and Nibbana , This is to stay away. The distance
-of the body belongs to the continuous separation of the body and the willingness
-to leave the desire; the separation of the mind belongs to the purity of the
-heart and the highest purity; the separation of the body belongs to the
-unattached person, who comes to leave. "Silence" refers to a form of silence and
-a state of silence, that is, immortality and Nibbana, which is the cessation of
-all actions, the cessation of all attachments, the extinction of craving, greed,
-extinction, and Nibbana. This is said by the Blessed One: "This is the state of
-silence, this is the state of victory, namely: the cessation of all actions, the
-cessation of all attachments, the extinction of craving, greed, extinction,
-Nibbana [SN.48.50] . "With another aspect: all dhammas lead to the realization
-of silence, the touch of silence, and the testimony of silence, just like these
-four mindfulness, four righteousness, four divine feet, five faculties, five
-powers, seven enlightenment factors, and eight Supporting the Holy Way, these
-are called the realm of silence, the realm of refuge, the realm of refuge, the
-realm of refuge, the realm of no fear, the realm of no death, the realm of
-immortality, and the realm of Nibbana.
+"How after seeing does the bhikkhu reach Nibbana": "How to extinguish one's
+greed (to reach Nibbana) after seeing, after measuring, after weighing, after
+judging, after separating, after clarifying, to extinguish one's anger, to
+extinguish one's ignorance... (omitted, see previous sections), ...all
+unwholesome deeds, to annihilate it, calm it, quiet it, calm it down, and stop
+it. "Bhikkhu," a monk, a philanthropist monk, or a learned monk." How after
+seeing does the bhikkhu reach Nibbana.
 
-"The Great Immortal", the Great Immortal is the Blessed One, and the "Seekers,
-Pursuers, and Seekers of the Great Precepts" are the Great Immortals. Dading
-Yun... (slightly omitted) Da Hui Yun... Great Liberation Aggregate... "The
-seeker, pursuer, and seeker of the Great Liberation Wisdom and Insight" is the
-great immortal; the fragments gathered by the dark... The destruction of the
-great upside down... …The pulling out of the big thirsty arrow…The unraveling of
-the accumulation of sight…The lifting of the big slow flag (Thailand
-version)…The calming of the great work…The increasing of the big storm…The
-laying down of the heavy burden… ...The severance of the cycle of the great
-reincarnation...the disappearance of the great heat...the cessation of the great
-heat..."the seeker, the pursuer, and the seeker who made the establishment of
-the Dafa flag" become the great immortal; the great minds... Dazhengqin...the
-great gods...the great roots...the power...the great enlightenment
-branches...the big eight branches of the holy path..."the immortality of the
-great supreme benefit, the seeker of Nibbana, the pursuer, the seeker" is Great
-Immortal; "Seeked, pursued, and searched by powerful beings: Where is the
-Buddha? Where is the Lord? Where is the god among the gods? Where is the king of
-cows among people? "Is a great immortal. "For the realm of distance and silence,
-Great Immortal!
-
-"How to see the post-bhikkhu to reach Nibbana": "How to extinguish one's greed
-(to reach Nibbana) after seeing, after seeing, after weighing, after judging,
-after separating, after clarifying, to extinguish one's anger, to make one's
-ignorance Extinguish, anger... (slightly) resentment... hiding evil... bossy...
-envy... stingy... fake... cunning... stubborn... passion... slow... extremely
-slow... slow... letting go ...All pollution...all evil deeds...all
-afflictions...all scorching heat...all heat afflictions...all unwholesome deeds
-make it annihilate, calm it, quiet it, calm it down, and stop it. "Bhikkhu," a
-monk, a monk, a monk, or a monk who learns." To see how the monk reaches
-Nibbana.
-
-"Become the one who has no clinging in the world": "From the four kinds of works
-to become the one who does not take the author, the one who does not hold, the
-one who does not cling, the one who does not cling to. "In the world", in the
-world of suffering, the world of humans , The world of heaven, the world of
-aggregates, the world of realms, the world of existence. "Any", any form,
+"Become the one who has no clinging in the world": "From the four kinds of
+works, to become the one who does not take the author, the one who does not
+hold, the one who does not cling, the one who does not cling to. "In the world",
+in the world of suffering, the world of humans, the world of heaven, the world
+of aggregates, the world of realms, the world of existence. "Any", any form,
 feeling, thinking, behavior, consciousness." Become one who has no clinging in
 the world.
 
-Because of that, Huaren said:
+151. [Like this the Blessed One (said):] The root of the false name: after
+     consideration, all (thoughts of) "I am" should be stopped,
+Any cravings within oneself, one should always learn mindfully for their
+    adjustment.
 
-"Sun people! I ask you, the realm of far away and silence, Great Immortal!
+"[Like this the Blessed One (said):] The root of the false name: after
+consideration, we should stop all (thoughts of) "I am"": "Fantasy is the name of
+vain (concept/cognition): the false name of thirsty love, the name of false
+sight. What is the root of the illusory name of craving for love? Ignorance is
+the root; not as the root of reason; the root of conceit; without shame as the
+root; being ashamed as the root; falling as the root, this is the falsehood root
+of craving of the name. What is the root of the false name of seeing? Ignorance
+is the root....
 
-How did        see that the post-bhikkhu reached Nibbana, as one who has no
-clinging in the world? "
-
-151. [Like this Blessed One (saying):] The root of the false name: After
-     consideration, all "I am" should be stopped,
-
-Any cravings within oneself should always be learned consciously for those
-adjustments.
-
-"[Like this Blessed One (say):] The root of the name of vain: after
-consideration, we should stop all "I am"": "Fantasy is the name of vain
-(concept/cognition): the name of vain, the name of vain Name. What is the root
-of the illusory name of craving for love? Ignorance is the root; not as the root
-of reason; I am the root of slowness; without shame as the root; being ashamed
-as the root; falling as the root, this is the root of craving FalsehoodThe root
-of the name. What is the root of the false name of seeing? Ignorance is the
-root; ignorance is not the root of reason; I am slow as the root; without shame
-as the root; worthy of the root; falling as the root, this is the root of the
-vain name of seeing.
-
-"Blessed One", synonymous with respect. In addition, the "destroyed greedy
-person" is the world-honored; the "destroyed gangster" is the world-honored; the
-"destroyed idiot" is the world-honored; the "destroyed slow" is the
-world-honored; the "destroyed seer" is the world-honored; "The Thorns" is the
-Blessed One; the "who has destroyed the pollutants" is the Blessed One; the "one
-who divides, analyzes, and distinguishes the magic weapon" is the Blessed One;
-"someone who ends" is the Blessed One; "the body has been practiced, the precept
-has been practiced, the mind has been practiced, Those who have learned wisdom
-are the world-zun; or "the world-zun is a woodland, barren forest, border
-dwelling place (sitting place): low-voicing, quiet, away from people, living
-alone, and suitable for sitting alone. "The Blessed One" is the Blessed One; or
-"The Blessed One is the one who divides clothes, food, shelter, the necessities
-of the patient, and medical necessities" as the Blessed One; or "The Blessed One
-is the taste of righteousness, the taste of the Dhamma, the taste of liberation,
-the precept and the mind "The one who has increased wisdom" is the world-zun; or
-"The world-zun is the four kinds of jhana, four immeasurable, four-colorless,
-etc." as the world-zun; or "the world-zun is the eighth liberation, the eight
-victories, the ninth abode, etc. The one who is the most divided is the Blessed
-One; or "The Blessed One is the practice of ten-thinking, the tenths, the one
-who waits for the tenths, the one who enters and exits the mind, the one who is
-impure, the one who is the Blessed; or the "the Blessed one is the four
-mindfulness, One who has the four righteousness, the four gods, the five senses,
-the five powers, the seven enlightenments, and the eight branches of the holy
-path" is the world-blessed one; or "the world-blessed one is the tenth, four
-fearless, four unobstructed, six magical powers, six enlightenments The "divider
-of Dhamma" is the deity. "World Honored One", this name is not given by (made)
-by mother; not given by father; not given by brothers; not given by sisters; not
-given by friends; not given by relatives; not given by Samana or Brahman What is
-given; what is not given by heaven is ultimate liberation; the establishment
-(pseudonym) for the acquisition and testimony of the Buddha, the Blessed One,
-under the Bodhi tree, and all knowledge and wisdom, that is, the Blessed One.
-"It is [Like this Blessed One (Speaking):] The root of a false name.
+"Blessed One", ...(omitted, see previous sections). [Like this the Blessed One
+(said):] The root of a false name.
 
 "After consideration, you should stop all "I am"": "After consideration, it is
-called wisdom, which is wisdom, knowledge and understanding... (slightly) no
-delusion, choice of law, right view. "I am", about the "I am" "There is a latent
-trend of troubles such as slow "I am" and desire "I am", about feeling...about
-thinking...about behavior...about consciousness "I am", slow "I am" and desire
-The potential trend of the troubles of "I am"." "[Like this Blessed One
-(saying):] The root of the false name: After consideration, everything should be
-stopped. "I am": "After consideration, it should be prevented, stopped,
-eliminated, calmed, and eliminated No, stop the slowness of the root of all
-false names and I am." For [Like this Blessed One (said):] The root of false
-names: After consideration, we should stop all "I am".
+called wisdom, .... "I am", about form, "I am", there is a latent trend of
+troubles such as conceit "I am" and desire "I am", about feeling..., about
+thinking..., about behavior..., about consciousness "I am", slow "I am" and
+desire potential trend of the troubles of "I am"." "[Like this Blessed One
+(saying):] The root of the false name: after consideration, everything "I am"
+should be stopped: "After consideration, it should be prevented, stopped,
+eliminated, calmed, extinguished, stop the conceit of the root of all false
+names and 'I am'." [Like this Blessed One (said):] The root of false names:
+after consideration, we should stop all "I am".
 
-"Anything within one's thirst for love": ""Anything", all completely, every
-aspect completely, no surplus, the whole earth, this is the word that is taken
-all over, which is "anything". The craving for sex... (in the abbreviated)
-Dhamma craving. "In oneself", "Waiting for that craving in oneself (Thailand
-version)." In oneself. Or, "The one in oneself is called the heart: the heart ,
-Mind, mind, heart (dirty), white (purified), mind, mind location, mind root,
-consciousness, consciousness accumulation, corresponding to the consciousness
-realm, the mind is coexistent, coexistent, and intermingled by that craving ,
-Correspondence, co-existence, co-extinction, the same place of dependence, and
-the same object" are also within oneself." It is any desire within oneself.
+"Any thirst within oneself": ""Anything", .... "Thirst", The craving for
+form.... "In oneself", "Waiting for that craving in oneself." In oneself. Or,
+"Inside oneself is called the heart: the heart, mind, heart (dirty), white
+(purified), intent, mind location, mind root, consciousness, consciousness
+accumulation, corresponding to the consciousness realm, the mind is coexistent,
+coexistent, and intermingled by that craving, correspondence, co-existence,
+co-extinction, the same place of dependence, and the same object" are also
+within oneself." Any desire within oneself.
 
-"For those modulations, we should always learn it with a mindfulness": "always",
-always; everything; all the time; always; eternal time; always constant;
-continuous; uninterrupted; successively; water wave It arises without interval;
-continuously accompanies it to reach; in the early noon, noon, first night,
-midnight, and late night; in the dark moon, bright moon, rainy season, winter,
-summer; in youth, middle age, old age. "Conscientiously (of)" means being
-conscientious in four ways: when practicing mindfulness on the body and
-mindfulness, being mindful, on receiving...in the mind...when practicing
-mindfulness in the Dhamma Mindfulness is mindful. The next one is conscientious
-in four ways: the state of avoiding non-mind is conscientious, the state of the
-Dhamma that should be done in response to thoughts is conscientious, the state
-of the Dhamma that is obstructed in mind is being destroyed, the state of being
-conscientious, right Mind factor (phase) [的法-Ni.1,3偈] The state of not
-forgetting is mindful.
+"For those modulations (??), we should always learn it with mindfulness":
+"Always", .... "Mindful (of)", ....
 
-The next one is mindful in four ways: the state of mindfulness is mindful, the
-state of mindfulness is mindful, the state of mindfulness is mindful, and the
-state of mindfulness is not reduced. of.
+"Learning", there are three kinds of learning: ....
 
-The next one is conscientious in four ways: the state of conscientiousness is
-conscientious, the state of silence is conscientious, the state of calmness is
-conscientious, and the state of having the Dhamma of SilenceBe mindful; take
-Buddha's mindfulness as mindful, use Dhamma and mindfulness as mindfulness, take
-Sangha's mindfulness as mindfulness, take precepts and mindfulness as
-mindfulness, and take alms and give as mindfulness , With the mind of the sky as
-the mind; the mind of entering and exiting the breath as the mind, the mind of
-death as the mind, the mind of the body as the mind, the mind of the silence as
-the mind; the general mind and the mind , Remembrance, the state of remembrance,
-retention, non-floating, non-forgetting, the root, power, mindfulness, support
-of mindfulness, and the path of no divergence of mind are called mindfulness.
-Having, being fully possessed, reaching, fully reaching, possessing, being fully
-possessed, possessing this thought, he is called mindful.
+"For those who want to adjust, he should always learn mindfully": "For those who
+want to tune, eliminate, let go, calm down, cut off, and stop, he should learn
+to increase precepts, ... These three learnings should be learned when heading
+towards ...." For those adjustments, you should always learn mindfully.
 
-"Learning", there are three kinds of learning: increasing precept learning,
-increasing mind learning, and increasing wisdom learning. What is to add to
-school? Here, the bhikkhu is a preceptor who lives and is protected by the
-self-control of the Polo Timucha. He has sufficient righteousness and state of
-affairs. He sees the terrible in minor sins, and learns after being upheld at
-the school. The small and large precepts are the basis of the abstinence, the
-[self] restraint of behavior, the entrance of self-control, the head of the
-virtuous dhamma (achieved), the virtuous dhamma (achieved), this is to increase
-the precept learning .
+152. Anyone who can prove and know the Dhamma, whether inside or outside of
+     himself,
+should not have fortitude (stubbornness) because of that, because that is not
+    said to be silence by the righteous.
 
-What is to learn more? Here, the bhikkhu lives in the first jhana of seeking and
-serving after he is absent from desires and unwholesome Dhamma, and after
-detachment produces joy and happiness, he calms down with seeking and serving,
-with confidence, and one mind. After entering, he lives in no seeking, The
-second jhana of happiness and happiness is born without waiting, concentration,
-which fades with happiness and dwells in peace, has mindfulness and right
-knowledge, and feels happiness with the body. After entering, dwelling in this
-holy disciple proclaimed: "He is calm and possessed. The third jhana of
-"Mindfulness and abide in the happy", the renunciation of pleasure and the
-renunciation of suffering, and the extinction of the joy and sorrow before,
-after entering, dwell in the stage of not suffering or unhappy, from being calm
-and chanting completely. Four jhana, this is to increase the mind.
+"Anyone who can prove the knowledge of the Dhamma within himself": "Any one of
+his own virtues, he can know whether it is good or unrecognized. What is his own
+merit? They may be a monk from a noble family, or may be a monk from a wealthy
+family, or a monk from a very wealthy family, or may be a famous person in the
+same household as the monk, or it may be in clothes, food, shelter, patients
+necessities and medical necessities", may be a scribe, or a, or a speaker,
+...(omitted, see previous sections), this is called his own merit. Whatever his
+own virtues, he can know, be able to understand. "Anyone who can prove and know
+the Dhamma, within himself. "Or externally": "Those who are pro-teacher, or the
+merit of the teacher (Ari). (alt: Ajanpei ??)" Also externally.
 
-What is to go to school? Here, the bhikkhu is a wise person, possessing the
-wisdom that leads to the arising and passing away; the holy, insight, and the
-complete extinction of suffering [zhihui], he truthfully knows "this is
-suffering." truthfully knows "this is the collection of suffering "Knowing the
-truth "This is suffering." Knowing the truth "This is the path leading to
-suffering." Knowing the truth: "These are troubles." Knowing the truth: "This is
-the collection of troubles." Knowing the truth: "This is the extinction of
-defilements." To know the truth: "This is the path leading to defilement of
-defilements." This is to increase the wisdom of school.
+"You should not come to fortitude because of that": "You should not have
+fortitude, stubbornness, arrogance, pride, and sluggishness based on your own
+merits or the merits of others. Pride should not be produced because of that.
+That way, you become a rigid, very rigid, head-raised person." You should not
+have fortitude because of that.
 
-"For those who want to tune up, he should always learn it with a sense of mind":
-"For those who want to tune, eliminate, let go, calm down, cut off, and stop, he
-should learn to increase precepts, and he should also learn to increase his
-mind. Learn to increase wisdom. These three learnings should be learned when
-heading towards (noting); learning when knowing; learning when seeing; learning
-when introspecting; learning when establishing (decision); You should learn when
-you are vigorous; you should learn when you are vigorous; you should learn when
-mindfulness arises; you should learn when mind concentration (concentration);
-you should learn when you know with wisdom; you should learn when you know what
-should be known; Learn when omniscience should be omniscience; learn when
-renounce what should be renounced; learn when practice should be practiced;
-learn when practice should be practiced; learn, practice, and practice well when
-practice should be witnessed After being held up, you should turn it around."
-For those adjustments, you should always learn it conscientiously.
+"Because the righteous do not say that is silence (alt: 'dying'??)": "To the
+good (Satānaṃ), to the good (santānaṃ), to the good (sappurisānaṃ), to the
+Buddha, to the disciples of the Buddha, and to the Bhikkhu Buddha, "That this is
+silence is not said, not explained, ...." for it is not said by the righteous
+that this is silence.
 
-Because of that, the Lord said:
+153. One should not be considered (by oneself) a winner, inferior or equivalent
+     because of that,
+Being touched by more than one form, one should not keep his own classification.
 
-"[Like this Blessed One (saying):] The root of the false name: After
-consideration, we should stop all "I am",
+"Should not be considered a winner because of that": "Should not, by birth,
+...(omitted, see previous sections)." Shouldn't be considered a winner because
+of that.
 
-Any cravings within oneself should always be learned consciously for those
-adjustments. "
+"Or the inferior or the equivalent": ....
 
-152. Anyone who can prove and know the Fa, whether inside or outside of himself,
-
-should not be fortitude because of that, because that is not said to be dying by
-the good.
-
-"Anyone who can prove the knowledge of the Dhamma is within himself": "Any one
-of his own virtues, he can know whether it is good or unrecognized. What is his
-own merit (good quality)? Will it be a monk from a noble family, or It may be a
-monk from a wealthy family, or a monk from a wealthy family, or it may be a
-famous person or a famous person in the same household and a monk, or it may be
-in clothes, food, shelter, patients The person who gains the necessities and
-medical necessities" may be a scribe, or a lawyer (law holder), or a speaker, or
-a person who lives in the wild, or a beggar, or Is a person who wears feces
-sweeping clothes, or who is only three-clothed, or who is a second-time beggar,
-or who is not eaten after eating, or who is often sitting [not lying], or who
-lives anywhere, or It will be the "receiver of the first jhana", or it will be
-the "receiver of the second jhana", or it will be the "receiver of the third
-jhana", or it will be the "receiver of the fourth jhana", or it will be " The
-one who waits until the void is boundless", the one who waits until the
-boundless knows...and waits until there is nothing...may be a "the one who waits
-for nothing but wants," and this is called his own merit. Whatever his own
-virtues, he can know, canTo know, to know, to know, to be able to understand.
-"For anyone who can prove and know the Fa, within himself. "Or external": "It
-will be those who are pro-teacher, or the merit of the teacher (Ari)." It is
-also external.
-
-"You should not be fortitude because of that": "You should not be fortitude,
-stubbornness, arrogance, tribute, and sluggishness based on your own merits or
-the merits of others. Pride should not be produced because of that. That way,
-you become a stiff, very stiff, head-raising person." Because you should not be
-fortitude because of that.
-
-"Because the one who is not good is said to be dying": "To the good (Satānaṃ),
-to the good (santānaṃ), to the good (sappurisānaṃ), to the Buddha, to the
-disciples of the Buddha, and to the Pichi Buddha, "That is sane "Exit" is not
-said, not explained, not explained, not taught, not told, not established, not
-revealed, not analyzed, not clarified, not explained." Because that is not good.
-Said it was dying.
-
-Because of that, the Lord said:
-
-"Anyone who can prove and know the Fa, inside or outside of himself,
-
-should not be fortitude because of that, because that is not said to be dying by
-the good. "
-
-153. It should not be considered a winner, inferior or equivalent because of
-     that,
-
-is touched by more than one person, and he shouldn't keep his own
-classification.
-
-"Should not be considered a winner because of that": "Should not be born, or
-surname, or good family, or beauty as a lotus, or property, or research
-(acquisition), or career, or Use skill, or clarity (academic), or hear, or
-argue, or something that makes "I am the winner" very slow to produce." It
-shouldn't be considered a winner because of that.
-
-"Is the inferior or the equivalent": "Should not be born, or by the surname...
-(omitted) or something to make "I am the inferior". It should not be born or by
-the surname, Or with good family, or with beauty as a lotus flower, or with
-property, or with research (acquisition), or with kamma, or with skill, or with
-light (academic), or with hearing, or with argument, Or use something to slow
-down "I am the equivalent"." It is the inferior or the equivalent.
-
-"To be touched by more than one form": "To be touched by various forms,
-tortured, combined, possessed." To be touched by more than one form.
+"To be touched (contacted) by more than one form": "To be touched by various
+forms, tortured, combined, possessed." To be touched by more than one form.
 
 "He should not maintain a classification of himself": "He is called me. He
-should not keep constructing, classifying, and arrogantly distinguishing me
-(self)." Because he should not maintain a classification of himself.
-
-Because of that, the Lord said:
-
-"You should not think that you are the winner, the inferior or the equivalent
-just because of that,
-
-is touched by more than one person, and he shouldn't keep his own
-classification. "
+should not keep constructing, classifying, and arrogantly distinguishing 'me'
+(himself)." He should not maintain a classification of himself.
 
 154. There should be silence only within oneself, monks should not seek silence
      from others,
+The person silent within himself, what does he take up and what does he refuse?
 
-The silent person within himself, where can he refuse what he has not taken?
-
-"Only oneself should be quiet": "The greed in oneself should be calmed; anger
-should be calmed; ignorance should be calmed; anger... (slightly) resentment...
-hiding evil... bossy... envy... stingy …False deception… Cunning… Stubborn…
-Passion… Slow… Very slow… Slow… Relax… All pollution… All evil… All troubles…
-All scorching heat… All heat Annoyance... All bad deeds should be calmed,
-quieted, calmed, silenced, and ceased." For only oneself should be quiet.
+"Only within oneself, should one be quiet": "The greed in oneself should be
+calmed; anger should be calmed; ..., quieted, calmed, silenced, and ceased."
+Only within oneself should one be quiet.
 
 "Bhikkhus should not seek silence from other things": "From other things, with
 impure ways, evil ways, and non-departures, except for the mindfulness, except
-for the righteousness, except for the feet of the gods In addition, apart from
-the roots, apart from the forces, apart from the enlightenment factors, and
-apart from the eight branches of the holy path, one should not seek, seek, and
-seek silence, silence, peace, cessation, and cessation." Bhikkhus should not
-seek silence from others.
+for the righteousness, ..., one should not seek silence, quiet, peace,
+extinction, and cessation." Bhikkhus should not seek silence from others.
 
-"The Silent One in Oneself": "The one who desires silence within oneself; the
-one who averts the silence; the one who ignorantly stops... "For the silent
-person within himself.
+"The Silent One in Oneself": "The one who silences desires within oneself; the
+one who silences aversion; ...." The silent person within himself.
 
-"Where can I refuse the one that is not taken?": "The "no" is negative. The
-"taken" is for me, but he doesn't. He doesn't hold the ones, and the ones that
-"reject" are those that should be released. He doesn't. Anything that should be
-held, there is something that should be released [; that which should be
-released, there are those that should be held] . For him, it is a transcendence
-who grasps and releases. The Arahant has surpassed growth and retreat.Practicing
-actors... (slightly omitted) The cycle of life and death, without his rebirth.
-"For those who haven't taken it, where can there be rejection."
+"There is no rejection up and no taking up": "The "no" is negative. The "taken"
+is for me, but he doesn't hold the ones (??), and the ones that "reject" are
+those that should be released. He doesn't reject. Anything that should be held,
+there is something that should be released [; that which should be released,
+there are those that should be held]. For him, it is a transcendence of grasping
+and releasing. The Arahant has surpassed growth and retreat, has practiced...,
+the cycle of life and death, without his rebirth." Those who haven't taken or
+rejected.
 
-Because of that, the Lord said:
-
-"Only oneself should be silent, monks should not seek silence from others,
-
-Those who are silent within themselves, who have not taken it, and where can
-they refuse. "
+---
+checkpoint
+---
 
 155. As in the middle of the sea, it is stable without waves being generated.
 
@@ -472,7 +253,7 @@ shake when praised; he does not shake when he reprimands; he does not shake when
 he is happy; when he is suffering He does not shake, does not shake strongly,
 does not move, does not tremble, does not tremble, does not tremble greatly."
 This is the one who stands. "The one who does not disturb", disturbance is
-called thirst, that is greed, greed (complete greed) )…… (omitted) greed, greed,
+called thirst, that is greed, greed (complete greed) )...... (omitted) greed, greed,
 and unwholesome roots. For him who is disturbed, craving is cut off, cut off,
 cut off, calmed down, stopped, unable to arise, and burned by the fire of
 wisdom, he Known as the undisturbed. The undisturbed state is regarded as the
@@ -955,8 +736,8 @@ This is the seeing self-holding. To cut off the thirsty self-holding; to cut off
 the thirsty self-holding, you should not regard your eyes as your own...ears...
 Nose...Tongue...Body...Colors...Voices...Smells...Smells...All
 touches...Dhamma...Family...Group (congregation)...Residence...Profit...Fame
-…Praise…le…clothes…food…housing…patient's necessities and medical
-necessities…the world of desire...the world of color...the world of
+...Praise...le...clothes...food...housing...patient's necessities and medical
+necessities...the world of desire...the world of color...the world of
 colorlessness...the world of desire...the world of color...the world of
 colorlessness... I want to have...I don't want to have...I don't want to
 have...One aggregate has...The four aggregates have...The five aggregates
@@ -1177,7 +958,7 @@ been done and what has not been done, and regrets, regrets, and confusion of
 mind arise.
 
 Or, "I am not a full branch in the ring. "He has regrets, heart regrets, and
-confusion of mind; "I am not a guardian of the roots." "…… (omitted) "I am not a
+confusion of mind; "I am not a guardian of the roots." "...... (omitted) "I am not a
 person who knows the right amount of food. "... "I am not a sober person. "...
 "I don't have mindfulness and right knowledge. "... "Satisfaction has not been
 practiced by me. "... "Sizhengqin was not studied by me. "... "The four gods
@@ -1200,7 +981,7 @@ let go of good law. "How can I complete the unfinished precepts, or can I fund
 the completed precepts with wisdom?" "Where he has desire, diligence, courage,
 hard work, fortitude, non-shrinking, mindfulness, righteous knowledge,
 enthusiasm, diligence, establishment, practice, and perseverance in good Dhamma;
-how can I complete the unfinished concentration... …(Omitted) How can I complete
+how can I complete the unfinished concentration... ...(Omitted) How can I complete
 the unfinished wisdom accumulation... liberating accumulation... liberating
 wisdom seeing accumulation... "How can I perceive the suffering of the unknown,
 or I can abandon the pollution that has not been renounced, or I Can I practice
