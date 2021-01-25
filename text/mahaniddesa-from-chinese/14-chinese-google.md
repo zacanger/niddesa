@@ -55,7 +55,7 @@ inquiry of Nibbana.
 
 "[Sun tribe!] I ask you": ""I ask you; I beg you; I beg you; you make me clear;
 please tell me." Ask you for me. "Sun tribe", Sun (Ādicco ) Is called the sun
-(sūriyo), the sun is surnamed Gautama, the Blessed One is also surnamed Gautama,
+(sūriyo), the sun is surnamed Gotama, the Blessed One is also surnamed Gotama,
 the Blessed One is a relative of the sun surname, a relative of the surname of
 the sun, so the Buddha is a member of the sun tribe. "For the sun tribe! I ask
 you.
@@ -1947,7 +1947,7 @@ death is known, the anger...the foolish... (omitted), all the unwholesome
 judging, after separating, after clarifying." To know that "silence" is after
 dying.
 
-"The teachings of Gautama should not be let loose": "The teachings of Gautama,
+"The teachings of Gotama should not be let loose": "The teachings of Gotama,
 the teachings of the Buddha, the teachings of the conquered, the teachings of
 the Tathagata, the teachings of the gods, and the Arahant's teachings. "Should
 not let go", should be a respectful author, a constant author, a non-stop
@@ -1994,7 +1994,7 @@ self-evidence, not hearsay.
 "Therefore it is indeed the commandment to the Blessed One": "therefore,
 therefore; the reason; the cause; the condition; the cause. "The commandment to
 the Blessed One", the commandment to the Blessed One, right The teachings of
-Gautama, the teachings of the Buddha, the teachings of the conquered, the
+Gotama, the teachings of the Buddha, the teachings of the conquered, the
 teachings of the Tathagata, the teachings of the gods, the teachings of the
 Arahants." That is why the teachings of the deity are true. .
 

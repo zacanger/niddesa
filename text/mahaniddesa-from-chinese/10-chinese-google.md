@@ -1,349 +1,206 @@
-10. Explanation before disintegration
+### 10. Explanation of Before Disintegration
 
-Secondly, the explanation before disintegration will say:
+83. What kind of precepts are seen by those who are called "silent ones"?
+Gotama! Please tell me about that, (when) asked about the best person.
 
-83. What kind of precepts do those who see what kind of precepts are called "the
-    silent ones"?
-
-Joe Damo! Please tell me about that, the best person being asked.
-
-"The kind of precepts of the one who sees is called "the silent one": ""the one
-who sees", "has what kind of sight, what kind of establishment, what kind of
+"The kind of precepts are seen by the one who is called "the silent one": ""the
+one who sees", "has what kind of view, what kind of establishment, what kind of
 contrasting seeing." What kind of precepts. "What kind of precepts", "what kind
-of precepts are possessed, what kind of precepts are established, what kind of
-precepts, and what kind of contrasts." What precepts are for what kind of
-witnesses. "It is called "the silent one" "", "Being called, being said, being
-told, being talked, being explained, being said to be a quiet person, a quiet
-person, a calmer, a cooler, and a rest. "The "what kind of seer" increases
-wisdom for inquiries; "what kind of precepts" increases the precepts for
-inquiries; "silent ones" increase mind for inquiries. "For what kind of precepts
-are the seers called "the silent ones"?
+of precepts are possessed, what kind of precepts are established, and what kind
+of contrasts." What precepts for what kind of witnesses. "Called "the silent
+one" "", "Being called, being said, being told, being talked, being explained,
+being said to be a quiet person, a silent person, a calmed one, a cooled one,
+and a rest(ing) one. "The "what kind of seer" increases wisdom for inquiries;
+"what kind of precepts" increases the precepts for inquiries; "silent ones"
+increase mind for inquiries." What kind of precepts are seen by those called
+"the silent ones"?
 
-"Goddam! Please tell me about that": ""That", everything I ask; everything I beg
-for; everything I ask for; everything that makes me clear. The surname is called
-Buddha and Blessed One. "Please tell", please tell, please explain, please
-teach, please inform, please establish, please uncover, please analyze, please
-clarify, please explain." For Joe Damo! Please tell me about that.
+"Gotama! Please tell me about that": ""That", everything I ask; everything I beg
+for; everything I inquire for; everything that makes me clear. "Gotama", the man
+called the Buddha and the Blessed One by his name. "Please tell", please tell,
+please explain, please teach, please inform, please establish, please uncover,
+please analyze, please clarify, please explain." Gotama! Please tell me about
+that.
 
-"The Supreme Being Inquired": ""The One Being Inquired", The One Being
-Interrogated; The One Being Inquired, The One Being Asked, The One That Is
-Asked, The One Who Makes It Clear. "The Supreme Being", The First, The Most
-Victorious, The extraordinary, the top, the top, the top person." is the top
-person asked.
+"Inquired about the supreme being": ""The one being asked", The one being
+interrogated; the one being inquired, the one being inquired of, the one that is
+asked, the one who makes it clear. "The Supreme Being", The first, the most
+victorious, the extraordinary, the top, the top person." The supreme being
+inquired about.
 
-Because of that, Huaren said:
+84. [Blessed One, Like This:] Before the disintegration, he is one who is
+    detached from thirst, not dependent on the past,
+Not counted in the middle, for him (nothing) is valued (preferred).
 
-"What kind of precepts are seen by those who are called "silent ones"?
+"Detached from thirst before the disintegration": "Before the body
+disintegrates; before the self disintegrates; before the corpse is abandoned;
+before the root of life is cut off, the unthirsty, no longer thirsty, those who
+have given up their thirst, those who are rid of their cravings, those who have
+been liberated from thirst, those who have extinguished their thirst, those who
+have renounced their thirst, those who have renounced greed, those who have no
+greed, those who have eliminated greed, those who have been freed from greed,
+those who have given up greed, those who are not hungry, those who have been
+cooled, those who have become cool, those who feel happy, and those who live as
+Brahman.
 
-Joe Damo! Please tell me about that, the best person being asked. "
-
-84. [Like this world-zun:] Before the disintegration, he was the one who was
-    detached and thirsty, not dependent on the past,
-
-was not counted in the middle, and was not valued for him.
-
-"Before the disintegration of the thirsty": "Before the body disintegrates;
-before the self disintegrates; before the corpse is abandoned; before the root
-of life is cut off, the thirsty, no longer thirsty, Those who have given up
-their thirst, those who have ridden their cravings, those who have been
-liberated from thirsty, those who have extinguished their thirst, those who have
-renounced their thirst, those who have renounced greed, those who have no greed,
-those who have renounced greed, those who have eliminated greed Those who have
-been freed from greed, those who have given up greed, those who have renounced
-greed, are not hungry, those who have been cooled, those who have become cool,
-those who feel happy, and those who live as Brahman.
-
-"Blessed One", synonymous with respect. In addition, the "destroyed greedy
-person" is the world-honored; the "destroyed evildoer" is the world-honored; the
-"destroyed idiot" is the world-honored; the "destroyed slow" is the
-world-honored; the "destroyed seer" is the world-honored; "destroyed" "The
-Thorns" is the Blessed One; the "who has destroyed the pollutants" is the
-Blessed One; the "one who divides, analyzes, and distinguishes the magic weapon"
-is the Blessed One; "someone who ends" is the Blessed One; "the body has been
-practiced, the precept has been practiced, the mind has been practiced, Those
-who have learned wisdom" are the world deity; or "the world deity is close to
-the woods, wild forests, border dwellings (sitting places): quiet, quiet, away
-from the atmosphere, people living alone, suitable for sitting alone" The
-Blessed One; or "The Blessed One is a partaker of clothes, food, shelter, the
-needs of the sick, and medical necessities" as the Blessed One; or "The Blessed
-One is the taste of righteousness, the taste of the Dhamma, the taste of
-liberation, the precept, the mind, and the The wise one is the world deity; or
-"the world deity is the four kinds of Zen, the four immeasurables, the four
-colorless ones, etc." is the world deity; or "the world deity is the eighth
-liberation, the eight victories, the nineth dwelling place, etc. The person who
-divides is the Blessed One; or "The Blessed One is the practice of the ten
-wisdom [十想?], the one who is divided into the ten times, waiting for the ten
-times, waiting for the in and out of breath, and for the uncleanness" is the
-world-blessed person; or "The Blessed One is the four thoughts The one who
-lives, the four righteousness, the four divine feet, the five faculties, the
-five powers, the seven enlightenment factors, and the eight branches of the holy
-path is the world-honored person; or "the world-honored person is the ten
-Tathagata, the four fearlessness, the four unobstructed solutions, the six
-magical powers, The divided person of the Six Enlightenment Method is the world
-deity. "World Honored One", this name is not given by (made) by mother; not
-given by father; not given by brothers; not given by sisters; not given by
-friends; not given by relatives; not given by Samana or Brahman What is given;
-what is not given by heaven is ultimate liberation; the establishment
-(pseudonym) for the acquisition and testimony of the Buddha, the Blessed One,
-under the Bodhi tree, and all knowledge and wisdom, that is, the Blessed One.
-"For [Like this Blessed One:] Before the disintegration, he was already divorced
-and thirsty.
+"Blessed One", ...(omitted, see previous sections). This is '[Like this Blessed
+One:] Before the disintegration, he was already separated from thirst.'
 
 "Those who do not depend on the past": The past is called the past life, the
 craving for the past life has been cut off, seeing has been cut off, in the
-state where the craving has been cut off, seeing the state of being cut off ,
-This is not dependent on the past. In addition, "I used to have thisThe color of
-"I don't find happiness there [MN.132]; I have such feelings in my past lives...
-I have such thoughts in my past lives... I have such behaviors in my past
-lives... "I have such knowledge in my past lives" If you don't find (lead) joy
-there, you don't rely on the past. In addition, "my eyes are like that when they
-are past, and physicality is like that." There, consciousness is not bound by
-desire and greed; when consciousness is not bound by desire and greed, it does
-not like it; when it is not joyful, This is also not dependent on the past. "My
-ears are like that, and my voice is like that."... (omitted) "My nose is like
-that, and my smell is like that."... "My tongue is like that." Like that, the
-taste is like that."... "The past tense of my body is like that, and the touch
-is like that."... "The past tense of my mind is like that, and the law is like
-that. "There, consciousness is not bound by desire and greed; when consciousness
-is not bound by desire and greed, it is not happy with it; when it is not happy
-with it [MN.133], this also does not depend on the past. Or, anyone who laughed,
-talked, and played with women before, he did not enjoy it, did not desire it,
-and did not come to happiness because of it [AN.7.50], so he also does not
-depend on the past.
+state where the craving has been cut off, seeing the state of being cut off,
+this is to not be dependent on the past. In addition, "I used to have such a
+form in the past..." looking for joy there. "I had such feelings... (omitted,
+see previous sections)..."
 
-"What should not be counted in the middle": "The middle is called the present
-tense, the craving for the present tense has been cut off, seeing has been cut
-off, in a state where craving has been cut off, seeing has been cut off The
+"What should not be counted (reckoned) in the middle": "The middle is called the
+present tense, the craving for the present tense has been cut off, ..., the
 state of mind should not be counted as the "infected", should not be counted as
 the "disgusting", should not be counted as the "ignorant", should not be counted
-as the "bound person", Shouldn't be counted as "the one who clings", shouldn't
-be counted as "coming to the chaotic", should not be counted as "coming to the
-undesirable", should not be counted as "coming to the fortitude" "Zhe", those
-deeds (artifacts) have been discarded, when the deeds (artifacts) have been
-discarded, they should not be counted in the interests: "hell feller" or "beast
-feller", Or "hungry ghost world", or "human", or "heaven", or "colorful", or
-"colorless", or "thinking", or "non-thinking", or "neither thinking The person
-is not a thoughtless person", he has no cause, no predestiny, and no factor
-where he will fall." It should not be counted in the middle.
+as the "bound person", shouldn't be counted as "the one who clings", shouldn't
+be counted as "coming to chaos", should not be counted as "coming to the
+undesirable", should not be counted as "coming to the fortitude" , those deeds
+have been discarded, when the deeds have been discarded, they should not be
+counted in the interests: "one of falls to hell (world)" or "beast world", or
+"hungry ghost world", or "human", or "heaven", or "formed", or "formless", or
+"thinking", or "non-thinking", or "neither thinking nor non-thinking", he has no
+cause, no predestiny, and no factor where he will fall." It should not be
+counted in the middle.
 
-"For him that is not valued": "For him", for the Arahant; for the person who has
-exhausted his troubles. There are two kinds of emphasis on "valued": [because]
-the emphasis on eagerness and [because] the emphasis on seeing... (in omitted)
-this is the emphasis on eagerness... (in omitted) this is the emphasis on
-seeing. For him, the value of craving has been cut off, the value of seeing has
-been cut off, in the state where the value of craving has been cut off, and the
-state of paying attention to seeing has been cut off, he does not put it (work)
-Desire to love or see is in front and then to go, thirst for love is not for the
-flag, for thirsty for for pawns, for thirst for not to increase, see for flags,
-for prise, for see, do not increase, not to be thirsty or Seeing follow and
-walk, this is not taken seriously for him. In addition, "I will have this kind
-of color in the future life." There is no joy; there will be such feelings...
-there will be such thoughts... there will be such behaviors... "I will have such
-knowledge in the future life" There is no search for (guidance) joy, which is
-also not valued for him. In addition, "My eyes will be like that in the future,
-and colors will be like that." The heart does not hope for what has not been
-obtained, and because of the lack of hope of the heart, you do not like it; when
-you do not like it, this way It is also not taken seriously for him. "My ears
-are like that in the future, and my voice is like that."... "My nose is like
-that in the future, and the smell is like that."... "My tongue is like that in
-the future. , The taste is like that."... "My body will be like that in the
-future, and the touch will be like that."... "My mind will be like that in the
-future, and the Fa will be like that." The unacquired heart does not hope,
-because of the lack of hope of the heart, he does not like it; when he does not
-like it, this is also not valued for him. In addition, "I will become the
-heaven, or one of the heavens with this virtue, prohibition, asceticism, and
-Brahma. [MN.16]" The heart has no hope for the unobtained, because of the
-hopelessness of the heart, He doesn't like it; when he doesn't like it, this is
-not taken seriously by him.
-
-Because of that, the Lord said:
-
-"[Like this Blessed One:] Before the disintegration, he was the one who was
-detached and thirsty, and not dependent on the past,
-
-was not counted in the middle, and was not valued for him. "
+"What for him is not valued": "For him", for the Arahant; for the person who has
+exhausted his troubles. There are two kinds of emphasis on "valued": the
+emphasis on eagerness and the emphasis on seeing... (omitted, see previous
+sections). For him, the value of craving has been cut off, the value of seeing
+has been cut off, ..., he does not do thirsty love or see in the front and back
+(before and after??), thirst for love is not for the flag (??), thirst for love
+is not for building, ...not to increase, ...see for flags, for prise, for
+seeing, do not increase, not to be thirsty or follow views, this is not valued
+for him. In addition, "I will have this kind of form in the future life." There
+is no joy; ...(omitted, see previous sections). The heart has no hope for the
+unobtained, because of the hopelessness of the heart, he doesn't like it; when
+he doesn't like it, this is not  valued by him.
 
 85. Those who are not angry, those who are not afraid, those who do not show
     off, those who do not regret,
-
-After considering the speaker, the one who does not give up, he is indeed Mou Ni
-with his own words.
+The speaker after consideration, the one who does not give up, he is indeed Muni
+    with self-controlled speech.
 
 "Those who are not angry, those who are not afraid": "Whoever is called "not
-angry",But only those anger can be said. Anger is arisen in ten forms: "He has
-acted against me. [AN.9.29]" Anger is aroused; "He is against my behavior.
+angry", but only those anger can be said (??). Anger is arisen in ten forms: "He
+has acted against me. [AN.9.29]" Anger is aroused; "He is against my behavior.
 "Anger is aroused; "He will act against me. "Anger is aroused; "He has been
-unfavorable to my beloved and desirable behavior... unfavorable...will
-unfavorable. "Anger is aroused; "He has benefited (has benefit) for what I do
-not love, undesirable... "Anger is arisen; or anger is arisen in an unreasonable
-place. Any kind of anger, hostility, hatred, hostility, anger, anger, anger,
-aversion, anger, evil, heart aversion, anger, anger, anger, state of anger,
-aversion, anger, The state of anger, aggression, anger, state of anger,
-hostility, hostility, brutal anger, rage, displeased heart, this is called
-anger.
+unfavorable to my beloved and desirable behavior..., is unfavorable..., will be
+unfavorable. "Anger is aroused; "He has benefited from what I do not love,
+undesirable... "Anger is arisen; or anger is arisen unjustified. Any kind of
+anger, hostility, hatred, aversion, evil, heart aversion, state of anger,
+aggression, brutal anger, rage, displeased heart, this is called anger.
 
-In addition, the extreme and small amount of anger should be perceived:
-sometimes anger is only the degree of turbidity, but not as much as frowning and
-frowning; sometimes anger is just as frowning and frowning, but not as much as
-gritted teeth; sometimes Anger is just the degree of gritted teeth, but not as
-much as the verbal abuse; sometimes anger is only the level of verbal abuse, but
-not as much as looking around (follow the observation) [sword]; sometimes anger
-is just looking around in all directions The degree of anger, but not as good as
-the degree of the cane; sometimes the anger is only the degree of the cane, but
-not the degree of the cane; sometimes the anger is just the degree of the cane,
-but Not as good as the hit of the staff; sometimes anger is just the hit of the
-staff, but not enough to cut off what is done; sometimes anger is just cut off
-and not enough to break The degree of rupture; sometimes anger is only the
-degree of rupture, but not as much as every limb is pulled apart; sometimes
-anger is only the degree to which every limb is pulled apart, but not enough to
-kill; sometimes anger is just taking away The degree of life, but not as good as
-the degree of abandoning all over the place. When the angry person kills himself
-after killing others, this situation is that the anger further reaches the
-increase, and the further reaches the increase. "For him, those who are cut off,
-cut off, calmed down, stopped, unable to arise, and burned by the fire of
-wisdom, he is called the unangered. The state of having given up on anger is
-regarded as not angry; the state of omniscience about anger is regarded as not
-angry; the state of being cut off from anger is regarded as not angry. "For
-those who are not angry.
+In addition, the extreme and small states of anger should be perceived:
+sometimes anger is only the degree of turbidity, but not as much as frowning;
+sometimes anger is just as frowning, but not as much as gritted teeth; sometimes
+anger is just the degree of gritted teeth, but not as much as verbal abuse;
+sometimes anger is only to the level of verbal abuse, but not as much as looking
+around for a weapon; sometimes anger is just looking around in all directions
+(for a weapon), but not as much as the degree of (acquiring) the cane; sometimes
+the anger is only the degree of the cane, but not the degree of (pulling out)
+the cane; sometimes the anger is just the degree of the cane, but not as much as
+hitting with the cane; sometimes anger is just the hit of the cane, but not
+enough to cut off what is done (interruption??); sometimes anger is just cutting
+off and not enough to the degree of rupture; sometimes anger is only the degree
+of rupture, but not as much pulling apart every limb; sometimes anger is only
+the degree to which every limb is pulled apart, but not enough to kill;
+sometimes anger is just the taking away of life, but not as much as the degree
+of abandoning all over the place (what is already established??). When the angry
+person kills himself after killing others, this situation is that the anger
+further reaches the increase, and the further reaches the increase." For him for
+whom this anger is cut off, severed, calmed down, ceased, unable to arise, and
+burned by the fire of wisdom, he is called the unangered. The state of having
+given up on anger is regarded as not angry; the state of knowledge about anger
+is regarded as not angry; the state of being cut off from anger is regarded as
+not angry." Those who are not angry.
 
-"Those who are not afraid", here, one type of person is those who are afraid,
-those who have fear, and those who have terror. They tremble, {not?}fear,
-terror, fear, and fear: "I can't get home, or I can't get Group (crowd), or I
-can't get shelter, or I can't get profit, or I can't get reputation, or I can't
-get praise, or I can't get pleasure, or I can't get clothes, or I get There is
-no group meal, or I cannot get a bed seat, or I cannot get the patient's
-necessities and medical necessities, or I cannot get care, or I am unknown. He
-was trembling, fearful, horrified, afraid, and fearful.
+"Those who are not afraid", here, one type of person is one who is afraid, those
+who have fear, and those who have terror. They tremble, have fear, terror, and
+come fear: "I can't get a home, or I can't get a group (crowd), or I can't get
+shelter, or I can't get profit, or I can't get reputation, or I can't get
+praise, or I can't get pleasure, or I can't get clothes, or I get a group meal,
+or I cannot get a bed seat, or I cannot get the patient's necessities and
+medical necessities, or I cannot get care, or I am not known. He was trembling,
+horrified, afraid, and fearful.
 
-Here, the Bhikkhu is the one who is not afraid, fearless, and fearless. He does
-not tremble, fear, fear, fear, or come to fear: "I can't get a home, or I can't
-get a group (people), Or I can't get shelter, or I can't get profit, or I can't
-get reputation, or I can't get praise, or I can't get pleasure, or I can't get
-clothes, or I can't get group food, Either I cannot get the bed seat, or I
-cannot get the patient's necessities and medical necessities, or I cannot get
-nursing care, or I am unknown. He does not tremble, fear, fear, fear, or come to
-fear. "For those who are not angry or afraid.
+Here, the Bhikkhu is the one who is not afraid, has no terror, and fearless. He
+does not tremble, have fear, or come to fear: "I can't get a home, .... He does
+not tremble, ..., or come to fear." Those who are not angry or afraid.
 
 "Those who do not show off, those who do not regret": ""Here, one type of person
 is boasting and showing off. He boasts and shows off: I am a "sufficient
-person", or a "suppression person", or a "precept and restraint ", or "by birth,
+person", or a "person of precepts", or a "person of prohibitions", or "by birth,
 or by surname, or by good family, or by appearance and beauty like a lotus, or
-by property, or by research (acquisition), or by profession, or by skill, or by
-insight (academic ), or by what you have heard, or by arguing, or by something,
-or a monk from a noble family", or a monk from a large family, or a monk from a
-wealthy family, or a monk from a wealthy family A monk", or "Anyone who is at
-home or in a monk is a well-known person or a famous person", or "a person who
-gains from clothing, food, shelter, necessities of the patient, medical
-necessities", or "Teacher", or "Lawyer (law holder)", or "speaker", or "live in
-the woods", or "begging", or "wearing dung and sweeping clothes", or "but three
-clothes", or "begging for food in the second "People", or "Those who do not eat
-after eating", or "People who often sit [not lying]", or "People who live
-anywhere", or"The gainer of the first jhana", or "the gainer of the second
-jhana", or "the gainer of the third jhana", or "the gainer of the fourth
-jhana...wait until the void is boundless...wait until the knowledge is boundless
-...The one who has nothing to wait until...or the one who wants to wait
-everywhere", he boasted and showed off. He doesn't boast or show off like this.
-From boasting, showing off separation, abstaining, abstaining, renunciation,
-renunciation, renunciation, renunciation, he lives with the heart of separation
-and limitation. "For those who do not show off.
+by property, ...(omitted, see previous sections)", he boasted and showed off. He
+doesn't boast or show off like this. From boasting and showing off, separation,
+abstaining, renunciation, he lives with the heart of separation and limitation."
+Those who do not show off.
 
-"Those who do not regret", "Regret", the improper behavior of the hands (evil
-being uneasy) is regret, the improper behavior of the feet is also regret, the
-improper behavior of the hands and feet is also regret, the inappropriate is
-considered (considered) as appropriate, Appropriate is thought of as
-inappropriate, what is not time is thought of as time, what is right is thought
-of as not time, what is innocent is thought of as sin, what is sinful is thought
-of as innocent, all regret like this , The path of regret, the state of regret,
-the regret of the heart, the confusion of the mind, this is called regret.
+"Those who do not regret", "Regret", the improper behavior of the hands is
+regret, the improper behavior of the feet is also regret, the improper behavior
+of the hands and feet is also regret, the inappropriate thought of as
+appropriate, the appropriate thought of as inappropriate, the untimely thought
+of as timely, the timely thought of as untimely, what is innocent is thought of
+as sin, what is sinful is thought of as innocent, all regret like this, the path
+of regret, the state of regret, the regret of the heart, the confusion of the
+mind, this is called regret.
 
 In addition, regret, heart regret, and confusion of mind arise from two factors:
-what is done and what is not done. How do things that have been done and things
-that have not been done cause regret, heart regret, and confusion of mind? "I
-did the evil deeds, but I didn't do the good deeds. "He has regrets, regrets in
-his heart, and confusion in his mind; "I did the evil deeds of speech, and I did
-not do the good deeds of words...I did the evil deeds, but not the good deeds.
-"He has regrets, regrets in his heart, and confusion of mind; "I did the
-killing, and I never did the killing. "He has regrets, heart regrets, and
-confusion of minds; "I did not give and take, and I did not give and take
-abstinence." "He has regrets, regrets in his heart, and confusion of minds; "I
-did it by me, and I never did it. "He has regrets, heart regrets, and confusion
-of mind; "I did the liar, and I never did the abstention of liar." "... "I did
-the parting language, and I didn't do the abstention of the parting language.
-"... "I did the vulgar language, and I never did the quit. "... "I did the
-obscene language, and I never did the abstention. "... "I did it for greed, and
-not for greed. "... "The malice was done by me, the innocence was not done by
-me. "... "The evil view was done by me, and the right view was not done by me.
-"He has regrets, heart regrets, and confusion of mind. This is what has been
-done and what has not been done, and regrets, regrets, and confusion of mind
-arise.
+what is done and what is not done ...(omitted, see previous sections). He has
+regrets, heart regrets, and confusion of mind. This is what has been done and
+what has not been done, and regrets, heart regrets, and confusion of mind arise.
 
-Or, "I am not a full branch in the ring. "He has regrets, heart regrets, and
-confusion of mind; "I am not a guardian of the roots." "... "I am not a person
-who knows how to eat. "... "I am not a sober person. "... "I don't have
-mindfulness and right knowledge. "... "Satisfaction has not been practiced by
-me. "... "Sizhengqin was not studied by me. "... "The four gods have not been
-trained by me. "... "The five elements have not been studied by me. "... "The
-five powers have not been studied by me. "... "The seven enlightenment factors
-have not been studied by me. "... "The eight holy paths have not been practiced
-by me. "... "The suffering is not known to me. "... "The episode was not cut by
-me. "... "The Tao has not been studied by me. "... "Mie was not testified by me.
-He had regrets, regrets in his heart, and confusion in his mind. For him who
-regrets that has been cut off, cut off, calmed down, stopped, unable to arise,
-and burned by the fire of wisdom, he is called the one who does not regret. "For
-those who don't show off or regret.
+Or, "I am not a full-fledged person in the precepts.... For him for whom regrets
+have been cut off, severed, calmed down, stopped, unable to arise, and burned by
+the fire of wisdom, he is called the one who does not regret." Those who don't
+show off or regret.
 
 "The speaker after consideration, the one who does not give up": ""After
-consideration, it is called wisdom, which is wisdom, knowledge and
-understanding... (slightly) no delusion, choice of law, right view. When there
-are many talks; when many talks When there is a lot of explanation; when there
-is a lot of talk, he considers, explores, and then explores and speaks. He does
-not say what is said by evil, what is said by evil, what is said by evil, what
-is said by evil, what is said by evil "." is the speaker after consideration.
-"Those who do not fall away", where, what is falling away? Wherever the heart is
-falling away, there is no silence; the heart is scattered; the heart is
-confused, which is called falling away. He said that this renunciation has been
-cut off, cut off, calmed down, stopped, unable to arise, and burned by the fire
-of wisdom, he is called the one who does not fall. By.
+consideration, it is called wisdom, which is wisdom, ...(omitted). When there
+are many talks; wen there is a lot of explanation; when there is a lot of talk,
+he considers, explores, and then speaks. He does not say what is said by evil."
+He is the speaker after consideration. "Those who do not fall away", where, what
+is falling away? Wherever the heart is falling away, there is no silence; the
+heart is scattered; the heart is confused, which is called falling away. For him
+for whom this has been cut off..., he is called the one who does not give up.
 
 "He is indeed a Muni who has self-controlled speech": "Here, after the monk
-abandons the liar, he is a liar, truthful, true, reliable, trustworthy, and
-non-deceitful to the world. After speaking, he is a divorced speaker: after he
-hears from here, he does not speak there to divorce these people, or after he
-hears from there, he does not speak here to divorce those people, like this, he
-He is the mediator of division, the disseminator of harmony, the one who is
-willing to reconcile, the one who likes to reconcile, the one who likes to
-reconcile, and the speaker of reconciliation. After abandoning the rough and
-evil words, he is the one who leaves the rough and evil words, whoever is soft,
-pleasant, Lovely and tempting, Elegant, loved, and pleasant words by everyone,
-words like this are said by him. After cutting off the obscene language, he is
-the one who is free from the obscene language: he is the speaker of the right
-time, the speaker of the facts, the speaker of the benefit, the speaker of the
-law, the speaker of the law; he is the speaker of value at the right time ,
-Reasonable, restrained, and profitable words [AN.4.198]. He has four kinds of
-good deeds and four kinds of no-fault words. He should have been separated from
-the thirty-two animal husbandry theory, has renounced, has given up, has given
-up, has given up, has been freed, has given up his bondage, he lives with the
-heart of being free and restricted.
+abandons his words, he is a not a liar, truthful, true, reliable, trustworthy,
+and non-deceitful to the world. After discarding speaking, he is a distant
+speaker: hears from here, he does not speak there to divorce (alt: 'say there to
+be a divination to these people'??) these people, like this, he is the mediator
+of division, the disseminator of harmony, the one who is willing to reconcile,
+the one who likes to reconcile, and the speaker of reconciliation. After
+abandoning the rough and evil words, he is the one who leaves the rough and evil
+words; the soft, pleasant, lovely and tempting, elegant, pleasant, and loved
+words by everyone, words like this are said by him. After cutting off the
+obscene language, he is the one who is free from the obscene language: he is the
+speaker of the right time, the speaker of the facts, the speaker of the benefit,
+the speaker of the Dhamma; he is the speaker of value at the right time,
+reasonable, restrained, and profitable words [AN.4.198]. He has four kinds of
+good deeds and four kinds of faultless words. He has been separated from the
+thirty-two animal husbandry theory (should be 'evil words'??), has renounced,
+has given up, has departed, has been freed, has given up his bondage, he lives
+with the heart of being free and restricted.
 
 He said ten things to talk about, namely: the theory of less desire, the theory
-of contentment... the theory of living alone... the theory of incommunicating...
-the theory of vitality... the theory of commandment... the conclusion... the
-theory of wisdom... the theory of liberation... the theory of liberation Wisdom
-view theory...mindfulness theory...right diligence theory...foot theory...root
-theory...force theory...enlightenment theory...dao theory...fruit theory and
-Nibbana theory. "Words have self-control" are cautious, cautious, guardian,
-protective, guardian, and perishable. "Muni", Mu Na is called wisdom, that is
-wisdom, understanding... (slightly) no delusion, choice of the law, right
-view... (slightly) he is Mou Ni after being caught in the net. "Because he is
-indeed Muni with his own words.
+of contentment..., the theory of living alone..., the theory of
+noncommunicating..., the theory of vitality..., the theory of commandment...,
+the conclusion..., the theory of wisdom..., the theory of liberation..., the
+theory of liberation wisdom..., mindfulness theory..., right diligence
+theory..., foot (gods??) theory..., root theory..., force (??) theory...,
+enlightenment theory..., Path theory..., Fruit theory, and Nibbana theory.
+"Words with self-control" are cautious, prudent, guarded, protected, and silent.
+"Muni", ...." He is indeed Muni with his own words.
 
-Because of that, the Lord said:
-
-"Those who are not angry, those who are not afraid, those who do not show off,
-those who do not regret,
-
-After considering the speaker, the one who does not give up, he is indeed Mou Ni
-with his own words. "
+---
+checkpoint
+---
 
 86. There is no bondage in the future, he does not lament the past,
 

@@ -1813,7 +1813,7 @@ to reach." For him who saw the self-evidence law, not rumors.
 
 "Therefore, indeed to that worldly commandment": "Therefore, therefore; that
 reason; that cause; that cause; that cause; that cause. "The commandment of the
-worldly, the commandment of the worldly, the commandment of Joe Tamo, the
+worldly, the commandment of the worldly, the commandment of Gotama, the
 commandment of Buddha, the commandment of the victorious, the commandment of the
 angels, the commandment of the angels, the commandment of Allohan For therefore
 indeed the commandment of the worldly.
