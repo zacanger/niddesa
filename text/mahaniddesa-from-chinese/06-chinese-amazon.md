@@ -1,7 +1,3 @@
-6. notes of the old scripture
-
-Secondly, the description of the Old Scripture will say:
-
 39. It is true that life is less than a hundred years, perhaps less than a
     hundred years.
 

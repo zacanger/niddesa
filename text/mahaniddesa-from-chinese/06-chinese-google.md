@@ -1,6 +1,4 @@
-6. Explanation of the Old Classics
-
-Secondly, the description of the old scripture will say:
+### 6. Explanation of the Old (Age) Scripture
 
 39. This life is really small, maybe less than a hundred years to die,
 

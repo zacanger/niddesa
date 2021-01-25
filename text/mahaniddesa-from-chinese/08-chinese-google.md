@@ -448,7 +448,7 @@ victory. "
 
 When all the demon army and all the hostile pollution are conquered, defeated,
 destroyed, disintegrated, and turned away by the Four Holy Paths, because that
-is called after leaving the army. "They" are Arhats, those who have exhausted
+is called after leaving the army. "They" are Arahants, those who have exhausted
 their troubles. "They do", they do, live, act, turn, guard, survive, and
 survive. "Because Dan left the army, they did.
 
