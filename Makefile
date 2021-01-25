@@ -2,12 +2,12 @@
 BUILD = build
 MAKEFILE = Makefile
 OUTPUT_FILENAME = niddesa
-METADATA = code/metadata.yml
+METADATA = metadata.yml
 CHAPTERS = text/book/*.md text/book/mahaniddesa/*.md text/book/cullaniddesa/*.md
 TOC = --toc --toc-depth 4
 METADATA_ARGS = --metadata-file $(METADATA)
-TEMPLATES = $(shell find code/templates/ -type f)
-# COVER_IMAGE = code/cover.jpg
+TEMPLATES = $(shell find templates/ -type f)
+# COVER_IMAGE = cover.jpg
 
 # Chapters content
 CONTENT = awk 'FNR==1 && NR!=1 {print "\n\n"}{print}' $(CHAPTERS)
@@ -24,9 +24,9 @@ ARGS = $(TOC) $(METADATA_ARGS) $(FILTER_ARGS) $(DEBUG_ARGS)
 PANDOC_COMMAND = pandoc
 
 # Per-format options
-EPUB_ARGS = --template code/templates/epub.html # --epub-cover-image $(COVER_IMAGE)
-HTML_ARGS = --template code/templates/html.html --standalone --to html5
-PDF_ARGS = --template code/templates/pdf.latex --pdf-engine xelatex
+EPUB_ARGS = --template templates/epub.html # --epub-cover-image $(COVER_IMAGE)
+HTML_ARGS = --template templates/html.html --standalone --to html5
+PDF_ARGS = --template templates/pdf.latex --pdf-engine xelatex
 
 # Per-format file dependencies
 BASE_DEPENDENCIES = $(MAKEFILE) $(CHAPTERS) $(METADATA) $(TEMPLATES)

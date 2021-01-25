@@ -40,6 +40,6 @@ platform), as well as the Cardo font.
 
 ## Licensing
 
-For code in this repo, see code/LICENSE.md.
+For code in this repo, see LICENSE.md.
 For the output text, credits and other licenses on the source material, see the
 notes in the introduction file.
