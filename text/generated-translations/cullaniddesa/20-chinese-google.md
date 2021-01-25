@@ -1,6 +1,6 @@
 ## Explanation of the Rhinoceros Horn Sutta
 
-First product
+### First product
 
 121. After putting down the stick to all living things, none of them hurts,
 
