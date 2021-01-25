@@ -1,8 +1,3 @@
-* Fix nested quotes
-  * In progress, mnd 0-9 done, start at mnd 10 and then cnd
-
-* Fix mixed reference styles (some are in the quotes, some are out)
-* Fix mixed period/quote combinations
 * Fix issues marked with `??`
 * Add accents and diacritics to Pali words, and fix Sanskritized and Sinicized ones
 * Fill in spots marked `omitted, see previous sections`
