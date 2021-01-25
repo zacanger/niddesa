@@ -419,7 +419,7 @@ After        all kinds of forms have been cut off, the omniscience of the
 trouble-free people after thirsting for love, I said, "Those people have indeed
 survived the storm." "
 
-52. I am very happy with Daxian's words, which is good at telling: Gautam is a
+52. I am very happy with Great Immortal's words, which is good at telling: Gautam is a
     non-dependent author,
 
 Anything you see or hear or feel here, or even the precepts and prohibitions are
@@ -428,12 +428,12 @@ all abandoned,
 After all kinds of forms have been cut off, the omniscience of those who have no
 troubles after thirsty and love, I also say "they survive the storm."
 
-"I rejoice in the words of Daxian": ""This", your words, language, teaching,
+"I rejoice in the words of Great Immortal": ""This", your words, language, teaching,
 teaching, admonition. "I rejoice", I rejoice; I rejoice; I rejoice; I want, I
-Use it" [, I beg], I hope, I hope, I pray. "Daxian", why is the Lord the Great
+Use it" [, I beg], I hope, I hope, I pray. "Great Immortal", why is the Lord the Great
 Immortal? "The seeker, pursuer, and seeker of the Great Precepts" is a great
 immortal... (Omitted) Where is the bull king among people? "Is a great immortal.
-"I am so happy over Daxian's words.
+"I am so happy over Great Immortal's words.
 
 "Speaking well: Gautam is a non-dependent author": ""Speaking well", telling [,
 interpreting], explaining, teaching, informing, establishing, revealing Open,
@@ -500,7 +500,7 @@ thirst for love, I also say "they survive the storm."
 
 Because of that, the brahmin said:
 
-"I am very happy with Daxian's words, good to tell: Gautam is a non-dependent
+"I am very happy with Great Immortal's words, good to tell: Gautam is a non-dependent
 author,      Nanda student Brahmin asked the seventh [completed].
 
 

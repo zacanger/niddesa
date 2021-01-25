@@ -260,7 +260,7 @@ whitening, no less , those who claim to be like, those who claim to be like, not
 the small, the great, the deep, the unmeasurable, the difficult to penetrate,
 those with vast treasures, those who are equal to the sea, those with six calms,
 the incomparable, the vast, can not He is a man who speaks like that. He is a
-master, a victor, the best and the best, and Daisen, as the lion of the beast,
+master, a victor, the best and the best, and Great Immortal, as the lion of the beast,
 as the river reaches the sea. For like this I forsake many uncommon, such as
 goose has reached the Great Lake.
 

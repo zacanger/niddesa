@@ -393,7 +393,7 @@ have been discontinued,
 I said, "Those who do not have trouble after thirsty love," I said, "Those
 people do survive the storm."
 
-52. I rejoice in the words of Daisen, which speaks well: Qiao Tamo is a man who
+52. I rejoice in the words of Great Immortal, which speaks well: Qiao Tamo is a man who
     has no authority,
 
 Whosoever is seen or heard here, or even after all the forbidden and forbidden
@@ -406,7 +406,7 @@ also said, "They spend the storm."
 admonition, admonition. "I rejoice," I rejoice; I rejoice; I rejoice; I want, I
 take" [, I beg], I hope, I pray, I pray. "Tai Sin", why is Worldplace Tai Sin?
 "Seeker, Seeker, Seeker, Seeker" is Daisin... Where is the cow king among the
-people?" For Tai Sin. I rejoice the words of Daisen.
+people?" For Tai Sin. I rejoice the words of Great Immortal.
 
 "The Good Testier: Jo Tamo is the Unfounded": ""The good to tell, the good to
 tell, the good to preach, the good teaching, the good to know, the good built,

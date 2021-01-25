@@ -94,7 +94,7 @@ And Dudagot, Ubossi, Nanda and Black Margar.
 
 And Bodo Wu Da, Youtua, and Brahmen, and forced salad,
 
-Clever Moyuloh, with the Daisen Man Binchia.
+Clever Moyuloh, with the Great Immortal Man Binchia.
 
 97. they approached the senses: the fairy man with a foot,
 
