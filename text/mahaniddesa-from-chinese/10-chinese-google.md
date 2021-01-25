@@ -198,449 +198,300 @@ enlightenment theory..., Path theory..., Fruit theory, and Nibbana theory.
 "Words with self-control" are cautious, prudent, guarded, protected, and silent.
 "Muni", ...." He is indeed Muni with his own words.
 
----
-checkpoint
----
-
 86. There is no bondage in the future, he does not lament the past,
+He sees touch (as) far away, and he is not guided in seeing (views).
 
-saw the far away person on touch, but he was not guided on seeing.
+"A person who has no bonds in the future": Attachment is called craving, which
+is greed, .... For him, those who (do not) have this attachment, their cravings
+cut off, ..., are those who are unbound in the future. In addition, "I will have
+such a form in my future life." ...(omitted). Because of the lack of hope of the
+heart, one doesn't like it; when you don't like it, this is also the unbounded
+author in the future. "My ears will be like that in the future, and my voice
+will be like that.".... In addition, "I will become the heaven or one of the
+heavens with this virtue, prohibition, asceticism, and Brahma." I do not hope
+for what is not obtained, and because of the lack of hope of the heart, I do not
+like it; When you don't like it, this is also the one who has no bonds in the
+future.
 
-"A person who has no bounds in the future": Attachment is called craving, which
-is greed, greed (complete greed)... (abbreviated) greed, greed, unwholesome
-roots. For him, those who have this attachment, their cravings cut off, cut off,
-calmed down, stopped, unable to arise, and burned by the fire of wisdom, are
-those who are unbound in the future. In addition, "I will have such a color in
-my future life." Don't look for (lead) joy there; there will be such feelings...
-I will think... I will behave like this... Consciousness does not find happiness
-there, so that is also a person who is boundless in the future. In addition, "My
-eyes are like that in the future, and color is like that." The heart does not
-hope for the unobtained. Because of the lack of hope of the heart, you don't
-like it; when you don't like it, this It is also the unbounded author in the
-future. "My ears will be like that in the future, and my voice will be like
-that."... (omitted) "My mind will be like that in the future, and the Dhamma
-will be like that." , Due to the lack of hope in the heart, you don't like it;
-when you don't like it, this is also the one who has no bounds in the future. In
-addition, "I will become the heaven or one of the heavens with this virtue,
-prohibition, asceticism, and Brahma." I do not hope for what is not obtained,
-and because of the lack of hope of the heart, I do not like it; When you don't
-like it, this is also the one who has no bounds in the future.
+"He does not lament the past": "He does not grieve for what has changed, or is
+not sad for what is changing: "My eyes have changed." He is not sad; my ears
+.... He is not sad, not tired, not weeping, not crying, not coming into
+confusion." He does not lament the past.
 
-"He does not lament the past": "He does not grieve what has changed, or does not
-sad what is changing: "My eyes have changed." He is not sad; my ears...my
-nose...my tongue ...My body...my color...my voice...my smell...my taste...my
-touch...my home...my group (congregation)...my residence... ...My gains...my
-reputation...my praise...my pleasure...my clothes...my feeding...my bed
-seat...my patient's needs and medical necessities...my Mother...my father...my
-brother...my sister...my son...my daughter...my friend...my colleague...my
-relatives..."My blood is already Change." He is not sad, not tired, not weeping,
-not crying, not coming into confusion." He did not lament the past for him.
+"Seeing touch as far away": eye contact, ear contact, nose contact, tongue
+contact, body contact, intention contact, name contact, opposite (pair??)
+contact [DN.15], a touch that should feel happy, a touch that should feel
+bitter, a touch that should feel neither suffering nor happiness, good touch,
+unwholesome touch, non-remembering touch, desire touch, physical touch, formless
+touch, empty touch, non-contact, unwilling touch, world touch, out of the world
+touch, the past, the future, the present, and the state of touch, contact,
+complete contact, and the state of complete contact like this is called touch.
 
-"Seeing those far away on touch": eye contact, ear contact, nose contact, tongue
-contact, body contact, intention contact, name contact, opposite contact
-[DN.15], a touch that should feel happy, a touch that should feel bitter ,
-Should feel the touch of neither suffering nor happiness, good touch,
-unwholesome touch, non-remembering touch, desire touch, physical touch,
-colorless touch, empty touch, non-contact, unwilling touch, world touch, out of
-the world The touch, the past, the future, the present, and the state of touch,
-contact, complete contact, and complete contact like this is called contact.
-
-"Seeing those who are far away on the touch": "With me, or with what I have, or
-with constant, or with eternity, or with constant, or with unchanging methods,
-he sees eye contact as far away; ... he sees ear contact For far away;...he sees
-nose contact as far away;...he sees tongue as far away;...he sees body as far
-away;...he sees mind as far away;...he sees name as far away To stay away; ...
-He saw that there was a confrontation to stay away; ... Should feelTo be touched
-by pleasure...should feel the touch of suffering...should feel the touch of
-neither bitter nor unhappy...good touch...bad touch...no memory touch...desire
-touch...material touch...uncolor Touch... He sees the touch of the world as far
-away as I, or what I am, or ever, or everlasting, or everlasting, or unchanging.
+"Seeing touch as far away": "With me, or with what I have, or with constant, or
+with eternity, or with unchanging methods, he sees eye contact as far away; ...,
+he sees ear contact as far away;. ...(omitted) as far away from "I", or "what I
+am", or "forever", or "everlasting", or "unchanging."
 
 Or, he sees the past being touched by the future and the present; he sees the
 future being touched by the past and the present; he sees the present being
 touched by the past and the future, or, where those holy, no worries, out of the
-world, and Void-related touch, those who touched to greet him to see away; to
-anger, ignorance, anger, resentment, hide evil, domineering, jealous, miserly,
-hypocritical, cunning, stubborn, Passion, slowness, extreme slowness, slowness,
-relaxation, all pollution, all evil deeds, all afflictions, all anxiety, all
-enthusiasm, and all bad things do what he sees and keeps away. "For seeing those
-far away on touch.
+world, and void-related touch, the touch of greed he sees as far away; anger...,
+ignorance..., (omitted)." Seeing touch as far away (could also be: 'those who
+are far from seeing touch'??).
 
 "He is not guided in seeing": "For him, the sixty-two evil views have been cut
-off, cut off, calmed down, stopped, unable to arise, burned by the fire of
-wisdom, and he will not be carried away by seeing , Take away, carry, carry, do
-not return, do not return to that evil view as the core." He is not guided in
-order to see.
+off,... , and he will not be carried away by seeing, taken away, carried, nor
+return to that evil view as the core." He is not guided in seeing.
 
-Because of that, the Lord said:
+87. Those who have withdrawn, not scheming, not eager, not stingy,
+Those who are not arrogant, not (morally) disgusting, not keen on (divisive) discourse.
 
-"The author who is unbound in the future, he does not lament the past,
+"Withdrawal, non-scheming": ""Withdrawal", "The abandoned greed state is the
+withdrawn; the abandoned abuse state is the withdrawn; ...foolishness...,
+anger..., (omitted). This was said by the Blessed One: "Monks! How are the monks
+withdrawn? Bhikkhus! Here, the arrogance (slowness??) of the monks' self-being
+has been cut off, and the roots have been cut off, like a palm tree without
+roots, becoming a non-existent thing for the future, Bhikkhus! The Bhikkhu is
+withdrawn like this. [AN.4.38]" A withdrawn person.
 
-saw the far away person on touch, but he was not guided on seeing. "
+"Non-scheming", there are three types of tricks: tricks with money (resources),
+tricks with behavior, and tricks with peripheral language.
 
-87. Those who have quit, those who are not tricky, those who are not eager,
-    those who are not stingy,
-
-Those who are not arrogant, disgusting, and those who are not keen on divorce.
-
-"Withdrawal, non-scheming": ""Withdrawal", "The greedy and abandoned state is
-the withdrawn; the abusive state with the abandoned state is the withdrawn; the
-foolish, withdrawn state is the withdrawn ;Angry...resentful...hiding evil...
-bossy... envy... stingy... (slightly omitted) All unscrupulous people have been
-renounced as those who have quit. This was said by the Blessed One: "Monks ! How
-are the monks who have withdrawn? Bhikkhus! Here, the slowness of the monks'
-self-being has been cut off, and the roots have been cut off, like a palm tree
-without roots, becoming a non-existent thing for the future, Bhikkhu We! Bhikkhu
-is a quitter like this. [AN.4.38]" is a quitter.
-
-"Non-trickster", there are three types of tricks: tricks with money, tricks with
-behavior, and tricks with peripheral language.
-
-What is the trickery of using resources? Here, the homeowners invite the
-bhikkhus with clothes, food, shelter, patients' necessities, and medical
-necessities. He is an evil desire person, a person with a desire for nature, and
-a hoper. He is a person who has clothes, food, shelter, necessities of the
-patient, and medical necessities. Hoping for more and rejecting clothes, refusal
-to give food, refusal to shelter, refusal of patients' necessities and medical
-necessities, he said: "What does high-value clothes have for Samana!" Fan Samana
-should wear a coat after choosing rags from the mound room or garbage dump or in
-front of the shop. What does it mean to Samana with high-value feeding! Fan
-Samana should survive by picking up ears and picking up ears. This is
-appropriate. What is there for Samana with high-value accommodation! Where
-Samana should be those who live under the trees or between the mounds or live in
-the open, this is appropriate. What is it for Samana with high-value patient
-needs and medical necessities! Van Samana should be medicine with fermented cow
-urine or crushed halil, which is appropriate. After grasping that, he wears
-coarse clothes; receives coarse food; lives in coarse dwellings; uses coarse
-patients' necessities and medical necessities. The homeowners knew him this way:
-"This Samana is a person with little desire, a contented person, a lonely
-person, a person who is away from the masses, a person whose vitality has been
-activated, and a talker. "They used more and more invitations with clothes,
-food, shelter, patients' necessities, and medical necessities." He said: "The
-three current states have faithful men who produce a lot of merit: the current
-state of faith has faithful men. The current state of producing a lot of merit
-and charity has a believing man who produces a lot of merit, and the current
-state of a person worthy of support has a believing man who produces a lot of
-merit. You are the believer, and the charity exists (discovered), and I am the
-receiver. If I don't accept it, then you will become outsiders of merit. This is
-not necessary for me, but just for pity. You, I accept. After clinging to that,
-he accepts many clothes, many foods [and many residences], and many patients'
-necessities and medical necessities. The frown of anyone who frowns like this;
-the path of the trick, the state of the trick, this is a tricky thing that can
-be used.
-
-What is the trickery of behavior? Here, there are certain types of evil
-desirers, those who desire nature, and those who desire respect [thought]: "So,
-peopleWill respect me. "He placed to walk, placed to stand, placed to sit,
-placed to lie down, walked for desire, stood for desire, sat down for desire,
-lay down for desire, walked like a person in concentration, as in concentration
-He stands, sits down like a meditation person, lies down like a meditation
-person, and becomes visible as a meditator. The placement, strengthening, and
-complete placement of behaviors like this; the frown of the frowning person; the
-path of trickery and the state of trickery, this is the trickery of deportment.
-
-What is the trickery of peripheral verbal tricks? Here, there are certain types
-of evil desirers, those who desire nature, and those who desire respect
-[thought]: "In this way, people will respect me. He spoke according to the Holy
-Law, and he said: "Whoever dresses like this is a powerful Samana." "He said:
-"Anyone who holds a bowl like this...holds a copper bowl...holds a water
-filter...holds a water filter bag...holds a key...wears shoes...wears a
-belt...tie...he is great power Sand gate. "He said: "Whoever his monk is like
-this, he is a powerful Samana." He said: "Whoever his teacher is like this...
-the monk is like this... the teacher is the same... the friend... the
-acquaintance... the close person... the companion... he is a powerful Samana.
-"He said, "Everyone who lives in a residence like this is a powerful Samana."
-"He said: "Anyone who lives in a half-roof house like this... lives in a
-high-rise... lives in a flat house... lives in a cave... lives in a cave...
-lives in a hut (solitary mansion)... lives in heavy Pavilion... Living in the
-observation deck... Living in a round house... Living in a shed... Living in a
-lecture hall... Living in a tent... Living under a tree... He is the powerful
-sand gate. "
-
-Or, those who keep frowning; those who keep frowning; those who keep tricking;
-those who keep nagging; those who are respected because of their mouths, he said
-that they are as deep, secret, subtle, secret, out-of-the-world, and Sora
-related talk: "This Samana gets this quiet residence like this and waits. The
-frown of anyone who frowns like this; the path of the trick, the state of the
-trick, this is the trickery of the surrounding language. For him these three
-kinds of tricks: tricks with money and tricks, tricks with behavior, tricks with
-peripheral language have been cut off, cut off, calmed down, stopped, unable to
-arise, and The Wisdom Burner, he is called the Untrick. "For those who have
-withdrawn and are not tricky."
+What is the trickery of using resources? ...(omitted, see previous sections).
+What is the trickery of behavior? ....
+What is the trickery of peripheral language? ....
+Or, those who keep frowning; ....
+Those who have withdrawn and are not tricky.
 
 "Those who do not hope, those who are not stingy": ""Hope is called thirst, it
-is greed, greed... (slightly) greed, greed, unwholesome roots. For him, this
-eagerness and thirst have been cut off , Cut off, calmed down, stopped, unable
-to arise, burned by the fire of wisdom, he is called the one who is not eager,
-the colors he does not eagerly... all sounds... all smells... all tastes... all
-touches [...Dhamma]...home...group
-(congregation)...dwelling...profit...famous...praise...happy...clothing...food...housing...patient's
-necessities and medical necessities... Desire Realm... Physical Realm...
-Colorless Realm... Desire to have... Color to have... Colorless to have... Want
-to have... No wish to have... Not to want to have... One aggregate to have...
-Four aggregates to have... …The five aggregates have… the past… the future… the
-present… what they see… what they hear… what they feel… he doesn't desire, want,
-accept, hope, or desire all the dhammas that can be understood." For those who
-are not eager. "Those who are not stingy", there are five kinds of stinginess:
-[Yes] stinginess of dwelling, stinginess of family, stinginess of gain,
-stinginess of praise, stinginess of law, everything like this stingy, stingy
-appearance, stingy state , Greedy, stingy, stingy, stingy, and the state of
-clenched heart, this is called stingy. In addition, accumulation of stingy is
-also stingy; world stingy is also stingy; being stingy is also the obstinacy of
-stingy, this is called stingy. For him this is this. The one who has been cut
-off, cut off, calmed down, stopped, unable to arise, burned by the fire of
-wisdom, he is called the one who is not stingy." He is the one who is not eager,
-and the one who does not.
+is greed.... For him, this eagerness and thirst have been cut off, ..., and hee
+is called the one who is not eager, the forms..., sounds..., ...(omitted) Those
+who are not eager. "Those who are not stingy", there are five kinds of
+stinginess: ...(omitted, see previous sections). For the one who has been cut
+off, ..., he is called the one who is not stingy." He is the one who is not
+eager, and the one who is not stingy.
 
 "Those who are not arrogant, those who do not hate": ""Arrogance", there are
 three kinds of arrogance: body arrogance, speech arrogance, heart arrogance.
 What is physical arrogance? Here, a certain type of people come to the Sangha to
-show their bodies Arrogance, showing the arrogance of the body when coming to
-the group, showing the arrogance of the body in the cafeteria, showing the
-arrogance of the body in the bathroom, showing the arrogance of the body in the
-bath, and showing the body when entering the home The arrogance of the body has
-shown the arrogance of the body when he has entered the [vulgar] home.
+show their body arrogance, showing the arrogance of the body when coming to the
+group, showing the arrogance of the body in the cafeteria, showing the arrogance
+of the body in the bathroom, showing the arrogance of the body in the bath,
+showing the arrogance of the body when entering the home, and showing the
+arrogance of the body when he has entered the [vulgar] home.
 
-How does it come to show the arrogance of the body in the Sangha? Here, a
-certain type of people who come to the Sangha are not respecters. When they
+How does he come to show the arrogance of the body in the Sangha? Here, a
+certain type of people who come to the Sangha are not respectful. When they
 touch the elder monks, they stand, and when they touch them, they sit down,
 stand in front of the [elder monks], sit down in the front, and sit in high
 seats. Sitting down, sitting down with his head covered, he stood and talked,
-waving his arms to talk, so that he came to the Sangha to show his prideslow.
+waving his arms to talk, so that he came to the Sangha to show the pride of this
+bodily arrogance..
 
-How is the arrogance of coming to the group to show the body? Here, a certain
+What is the arrogance of coming to the group to show the body? Here, a certain
 type of people come to the group to be disrespectful. To the elder monks who
 walk without shoes, he walks in shoes, to those who walk in low places, he walks
 in high places, and to those who walk in the ground, he walks in high places. He
-walked through the passage, stood when touched, sat down when touched, stood in
-front, sat down in front, sat down on the high seat, sat down with his head
-wrapped, he stood and talked, Speaking with waving arms, this is to show the
-arrogance of the body in the group.
+walked through the passage, stood when touched (touching??), sat down when
+touched, stood in front, sat down in front, sat down on the high seat, sat down
+with his head wrapped, he stood and talked, Speaking with waving arms, this is
+to show the arrogance of the body in the group.
 
-How is it to show the arrogance of the body in the cafeteria? Here, a certain
+What is it to show the arrogance of the body in the cafeteria? Here, a certain
 type of person is not respectable in the cafeteria. He invades the elder
 bhikkhus and then sits down, blocking the new bhikkhus with his seat, standing
-when touching, and sitting down when touching, standing in front, in front
-Sitting down, sitting down in the high seat, sitting down with his head covered,
-he stood and talked, waving his arms to talk, so that he showed the arrogance of
-his body in the cafeteria.
+when touching, and sitting down when touching, ..., so that he showed the
+arrogance of his body in the cafeteria.
 
-How to show the arrogance of the body in the bathroom? Here, a certain type of
-person is not a respecter in the bathroom. When he touches the elder monks, he
-stands, when he touches, he sits, stands in the front, sits in the front, and
-sits in the high seat. After not asking Putting the firewood, closing the door
-without being asked, waving his arms and talking, this is to show the arrogance
-of the body in the bathroom.
+How does one show the arrogance of the body in the bathroom? Here, a certain
+type of person is not a respecter in the bathroom. When he touches the elder
+monks, he stands, when he touches, he sits, stands in the front, ..., putting
+the firewood after not asking (??), closing the door without being asked, waving
+his arms and talking, this is to show the arrogance of the body in the bathroom.
 
 How is the arrogance of the body shown in the bath? Here, a certain type of
 person is not respectable in the bathing place. When he touches the elder monks,
 he jumps in, jumps in front, when touched, he bathes, bathes in front, bathes
-above, when touched, he goes from Out of the water, out of the water in the
+above, when touched, he goes from out of the water, out of the water in the
 front, out of the water above, this is to show the arrogance of the body in the
 bath.
 
-How is it to show the arrogance of the body when entering the [vulgar] home?
-Here, a certain type of person is not a respecter when entering the [vulgar]
-home. When he touches the elder monks, he walks, walks in front, and walks from
-the front of the elder monks [transcends] repeatedly after leaving the right
-path. Show bodily arrogance when entering the [vulgar] home.
+How is it to show the arrogance of the body when entering the  home? Here, a
+certain type of person is not respectful when entering the [vulgar] home. When
+he touches the elder monks, he walks, walks in front, and walks from the front
+of the elder monks, beyond, repeatedly after leaving the right path. This is to
+show bodily arrogance when entering the home.
 
-How is the arrogance of showing the body when you have entered the [vulgar]
+What is the arrogance of showing the body when you have entered the [vulgar]
 home? Here, when a certain type of people have entered the [vulgar] home, they
-are "Great Virtue!" Please do not [want to] enter" when he is said to enter, as
+say "Great Virtue!" Please do not [want to] enter" when he is said to enter, as
 "Great Virtue!" Please don't [want to] stand." He stood when he was said to be
-"Da Virt! Please don't [to] sit down." When being said, he sits down, he enters
-when there is no space, he stands when there is no space, and he sits down when
-there is no space, where the inner room of the [vulgar] family is hidden and
-secret : The lay woman, the lay woman, the lay wife, and the lay girl sit down,
-where he enters roughly, and he touches the boy's head. This shows the arrogance
-of the body when he enters the [vulgar] home. This is showing the arrogance of
-the body.
+"Great Virtue! Please don't [to] sit down." When being said, he sits down, he
+enters when there is no space, he stands when there is no space, and he sits
+down when there is no space, where the inner room of the [vulgar] family is
+hidden and secret: the lay woman, the daughter-in-law, the lay wife, and the lay
+girl sit down, where he enters roughly, and he touches the boy's head. This
+shows the arrogance of the body when he enters the [vulgar] home. This is
+showing the arrogance of the body.
 
-What is the arrogance of showing words? Here, a certain type of people show
-verbal arrogance when they come to the sangha, show verbal arrogance when they
+What is showing the arrogance of words? Here, a certain type of people show
+verbal arrogance when they come to the Sangha, show verbal arrogance when they
 come to the group, and show verbal arrogance when they have entered the [vulgar]
 family.
 
-How does it come to show the arrogance of words in the Sangha? Here, a certain
-type of people come to the Sangha without being respected. After asking the
+How does one come to show the arrogance of words in the Sangha? Here, a certain
+type of people come to the Sangha without being respectful. After asking the
 elder monks, or without being asked to speak to the monks who entered the
-monastery, answering questions, and reciting the Parati Mucha, he stands.
-Speaking, waving your arms to speak, this is the arrogance of coming to the
+monastery, answering questions, and reciting the Parati Mucha (??), he stands,
+speaking, waving your his to speak, this is the arrogance of coming to the
 Sangha.
 
-How does it come to show the arrogance of words in a group? Here, a certain type
-of people come to the group to be disrespectful. After asking the elder monks,
-or without being asked to speak to and answer questions to the monks entering
-the monastery's garden, he stands and speaks, waving his arms and speaking to
-the monks. The bhikkhunis, Upasai, and Upayi of the garden speak and answer
-questions. He stands and speaks, waving his arms to speak. This is to show the
-arrogance of speech in the group.
+How does one come to show the arrogance of words in a group? Here, a certain
+type of people come to the group to be disrespectful. After asking the elder
+monks, or without being asked to speak to and answer questions to the monks
+entering the monastery's garden, he stands and speaks, waving his arms and
+speaking to the monks. The bhikkhunis, Upasai, and Upayi of the garden speak and
+answer questions. He stands and speaks, waving his arms to speak. This is to
+show the arrogance of speech in the group.
 
-How is it to show the arrogance of speech when you have entered the [vulgar]
+What is it to show the arrogance of speech when you have entered the [vulgar]
 home? Here, when a certain type of people have entered [vulgar] homes, they say
-to women or girls: "What is the name of this person and the last name: Is there
+to women or girls: "What is the name of this person and the last name; is there
 milk porridge, food, and hard food?" What shall we drink? What shall we eat?
-What will we chew? Or something: what will you do to me? "He muttered. Anyone
-who is in such a state of speech, unhelpful words, muttering, verbosity,
-polyphony, and verbosity, is the arrogance of speech when he has entered the
-layman. This is the arrogance of words.
+What will we chew? Or something: what will you give (do??) to me?" He mutters.
+Anyone who is in such a state of speech, unhelpful words, muttering, and
+verbosity, is the arrogance of speech when he has entered the layman's home.
+This is the arrogance of words.
 
 What is the arrogance of the heart? Here, a certain type of people who are not
-from a noble family has a slow person who sets themselves (seeing) together with
-a noble monk, and a person who is not a monk from a large family family sets
-(sees) himself and a large family family with his heart. Those who do not become
-a monk are equal, those who do not become a monk from a wealthy family are
-equated with those who are slow, and those who do not become a monk from a
-wealthy family are equated with those who are not monks. The slow person
-considers himself and the sutra teacher to be equal with his heart, and the slow
-person who does not hold the law...There are slow people who don't say...the
-people who don't live in the woods...the people who are very begging for food
-are the people who are slow...the people who don't wear dung sweeping clothes
-are the people who are slow. Slow people...Slow people who don't eat after
-eating. There are slow people who are very sitting [not lying]...Slow people who
-don't live anywhere...Slow people who don't get the first meditation have their
-minds (see) Oneself is the same as those who get the first Zen... (omitted)
-Those who get the non-imaginary, non-imaginative and waiting for the slow person
-are the same as those who get the non-imaginative, non-imaginative and waiting
-for the time. This is the arrogance of the heart. "For him, those three kinds of
-arrogance are cut off, cut off, calmed down, stopped, unable to arise, and
-burned by the fire of wisdom, he is called the non-arrogant. "For those who are
-not arrogant.
+from a noble family has an arrogant person who sets themselves together with a
+noble monk, and a person who is not a monk from a large family sets himself and
+a large family with his heart. Those who do not become a monk are equal, those
+who do not become a monk from a wealthy family are equated with those who are
+arrogant, and those who do not become a monk from a wealthy family are equated
+with those who are not monks. The arrogant person considers himself and the
+Sutta teacher to be equal in his heart, and the arrogant person who does not
+hold the Dhamma..., there are arrogant people who don't say..., the people who
+doesn't live in the woods..., the arrogant people who are very begging for
+food... (omitted, see previous sections). This is the arrogance of the heart."
+For him, those three kinds of arrogance are cut off, ..., he is called the
+non-arrogant." Those who are not arrogant.
 
-"Those who do not hate", there are those who hate, and there are those who do
-not. What is a disgusting person? Here, a certain type of people are those who
-break the precepts, those who are wicked, those who are impure and suspicion,
-those who behave secretly, those who are not Samana but call themselves Samana,
-who are not Brahmans but call themselves Brahmins, those who leak from internal
-decay, those who have bad personalities [ AN.7.72], this is called a disgusting
-person. Or, he is easily angry and conquered by anger. When spoken a little bit,
-he is angry, angry, aggrieved, rebellious, showing anger, aversion, and
-dissatisfaction [AN.3.25]. This is called a disgusting person. Or, he is an
-anger-prone person, a resentful person, a villainous person, a bossy person, a
-jealous person, a stingy person, a cunning person, a hypocrite, a stubborn
-person, an extremely slow person, an evil desire person, a wrong view person, It
-is a stubborn person, a stubborn person, and a person who cannot give up
-[AN.6.36]. This is called a disgusting person.
+"Those who do not hate (are not disgusting)", there are those who hate, and
+there are those who do not. What is a disgusting person? Here, a certain type of
+people are those who break the precepts, those who are wicked, those who are
+impure and suspicious, those who behave secretly, those who are not Samana but
+call themselves Samana, who are not Brahmans but call themselves Brahmins, those
+who leak from internal decay, those who have bad personalities [AN.7.72], this
+is called a disgusting person. Or, he is easily angry and conquered by anger,
+and when spoken a little bit, he is angry, hurt, aggrieved, rebellious, showing
+anger, aversion, and dissatisfaction [AN.3.25]. This is called a disgusting
+person. Or, he is an anger-prone person, a resentful person, a villainous
+person, a bossy person, a jealous person, a stingy person, a cunning person, a
+hypocrite, a stubborn person, an extremely slow person, an evil desire person, a
+wrong view person, and a person who cannot give up [AN.6.36]. This is called a
+disgusting person.
 
 What is a person who does not hate? Here, the bhikkhu is a preceptor who lives
-and is protected by the self-control of the Borodhi Mucha. He has sufficient
-righteousness and state of affairs. He sees the terrible in minor sins and
-learns [AN.2.37] after being upheld at the school. This is called For those who
-don't hate. Or, he is a person who is not easy to get angry, and is always free
-of irritation. When he is talked more often, he will not be upset, angry,
+and is protected by the self-control of the Borodhi Mucha (??). He has
+sufficient righteousness and state of affairs. He sees the terrible in minor
+sins and learns [AN.2.37] after being upheld at the school. This is called those
+who don't hate. Or, he is a person who is not easy to get angry, and is always
+free of irritation. When talked more (??), he will not be upset, angry,
 agitated, resist, and show no resentment, aversion and dissatisfaction [MN.135].
-Called a person who does not hate. Or, he is not easy to anger, not resentful,
-not hides evil, not overbearing, not jealous, not stingy, not cunning, not
-hypocritical, not rigid, not extremely slow Those who do not have evil desires,
-those who do not have evil views, those who are not stubborn, those who are not
-stubborn, and those who are easy to abandon are called those who do not hate.
-All ignorant ordinary people are disgusting, and virtuous ordinary people,
-including the eight saints, are not disgusting. "For those who are not arrogant
-or disgusting.
+This is called a person who does not hate. Or, he is not easy to anger, not
+resentful, not hides evil, not overbearing, ...(omitted), those who are not
+stubborn, and those who are easy to abandon (who abandon easily??) are called
+those who do not hate. All ignorant ordinary people are disgusting, and virtuous
+ordinary people, including the eight saints, are not disgusting." Those who are
+not arrogant or disgusting.
 
-"And those who are not keen on divorced speech": ""Divorced speech", here, a
-certain type of person is a divorced speaker. After he hears it from here, he
-speaks there in order to divorce these people, or after he hears from there, In
-order to divorce those people, I say here that, like this, he is the destroyer
-of harmony, the spreader of division, the disagreeable, the disagreeable, the
-disagreeable, the speaker of disagreement, this is called For the divorced.
+"And those who are not keen on divisive speech": ""Divisive speech", here, a
+certain type of person is a divisive speaker. After he hears it from here, he
+speaks there in order to divide these people, or after he hears from there, in
+order to divide those people, he says that here; like this, he is the destroyer
+of harmony, the spreader of division, the disagreeable, the speaker of disunity,
+the speaker of disagreement, this is called divisive speech.
 
-In addition, there are two reasons for divorce: to be cute by desire, or by
-desire for division. How to produce divorce from desire to be cute? "For this, I
-will be lovely, I will be desirable, I will be close, I will be a close friend,
-I will be kind. "In this way, a divorce arises from desire to be cute. How to
-produce divorce with the desire for division? "How will these become various,
-will become separation, will become division, will become two kinds, will become
-contradictions, will become two factions, will break down, will not make
-reunion, make living in suffering and uneasy. "This is the desire for division
-to produce divorce. For him who is cut off, cut off, calmed down, stopped,
-unable to arise, and burned by the fire of wisdom, he is not enthusiastic,
-unyoke, and yoke not strong. Those [, those who are not fully yoke, those who do
-not face the yoke], those who are not completely yoke. "For and not keen on
-divorce.
+In addition, there are two reasons for divisiveness: to be lovely by desire, or
+by desire for division. How to produce divorce from desire to be lovely? "For
+this, I will be lovely, I will be desirable, I will be close, I will be a close
+friend, I will be kind." In this way, a divide arises from desire to be lovely.
+How to produce division with the desire for division?" How will these become
+various, will become separate, will become divided, will become two kinds, will
+become contradictory, will become two factions, will break down, will not
+reunite, cause suffering and unease." This is the desire for division to produce
+division. For him who is cut off, ..., he is not enthusiastic (in dispute),
+unyoked, not strongly yoked, those who are not fully yoke, those who do not face
+the yoke, those who are not completely yoke." Those who are not keen on divisive
+speech.
 
-Because of that, the Lord said:
-
-"Those who have quit, those who are not tricky, those who are not eager, those
-who are not stingy,
-
-Those who are not arrogant, disgusting, and those who are not keen on divorce. "
-
-88. Those who have no leakage on the satisfaction, and those who are not
-    enthusiastic on the extremely slow,
-
+88. Those who have no leakage in satisfaction, those who are not enthusiastic in
+    arrogance,
 The soft and the eloquent, the unbeliever, he will not be tainted.
 
-"Satisfying people without leakage": "Satisfactory ones are called the five
-desires. For what reasons are the satisfying ones called the five desires? Most
-people want, accept, The five desires of hope, enthusiasm, and desire are called
-the five desires for that reason. The satisfying desire for him who has not
-given up will flow out due to the color of his eyes. , Production (Thailand
-version), flow, transfer; The craving due to the sound of the ear... the craving
-due to the smell of the nose... the craving due to the taste of the tongue...
-the craving due to the touch of the body... the craving due to the law of mind
-flows, produces, and flows , Turn up. For him who this satisfying craving is cut
-off, cut off, calmed down, stopped, unable to arise, and burned by the fire of
-wisdom, his craving due to the color of his eyes does not flow out, do not
-produce, and does not Flowing, not turning; the thirst due to the sound of the
-ear...(slightly omitted) The craving due to the law of mind does not flow, not
-produce, flow, or turn. "For those who are satisfied with no leakage.
+"People without leakage in satisfaction": "Satisfactory ones are called the five
+desires. For what reasons are the satisfying ones called the five desires? The
+five desires that most people want, accept, hope, have enthusiasm for, and
+desire, are called satisfying for that reason. The satisfying desire for him who
+has not given up will flow out due to the color of his eyes (?), flow, produce,
+and transfer; the craving due to the sound of the ear..., ...smell of the nose
+..., ...taste of the tongue..., ...touch of the body..., the craving due to the
+dhamma of mind flows, produces, and transfers. For him who this satisfying
+craving is cut off, ..., his craving due to the color of his eyes (??) does not
+flow out, does not produce, and is not flowing, not turning; ...due to the sound
+of the ear...(omitted). " Those who are satisfied with no leakage.
 
-"And those who are not enthusiastic about extreme slowness": "What is extreme
-slowness? Here, a certain type of person is born, or by surname... (omitted) or
-scorn others with something like this. The thought of the situation, the high,
-the lofty, the flag, the high, the vanity of the heart, this is called the
-extremely slow. For him this extremely slow is cut off, cut off, calmed down,
-stopped, unable to arise, Those who are burned by the fire of wisdom are those
-who are not enthusiastic, those who are not yoke, those who are not strong [,
-those who are not fully yoke, those who do not face the yoke], and those who are
-not completely toward the yoke." And those who are not keen on extremely slow.
+"And those who are not enthusiastic about arrogance": "What is arrogance? Here,
+a certain type of person by birth, or by surname... (omitted). The thought of
+the situation, the high, the lofty, the flag, the vanity of the heart, this is
+called arrogance. For him for whom this arrogance is cut off, ..., he is not
+enthusiastic, not yoked, ...." Those who are not keen on arrogance.
 
-"The soft and the eloquent": ""The soft", "with soft body kamma" is soft, soft
-language... "with soft mental kamma" is soft, "with soft mindfulness" "For the
-soft, the soft Zhengqin... the soft gods' feet... the soft roots... the soft
-powers..." the soft sensations are the soft ones, "with the soft eight branches
-"Is the soft one.
+"The soft and the eloquent": ""The soft", "with soft body kamma" is soft, "with
+soft language kamma" is soft, "with soft mental kamma" is soft, "with soft
+mindfulness", ..., soft effort (Zhengqin??), soft four (gods feet??), ..., "with
+the soft eight paths (branches??)" is the soft one.
 
-"With the talented person", there are three kinds of talented person: the
-learned person, the questioned person, and the proven person. What is a learned
-debater? Here, a certain type of people are originally learners: Shudara, Zhiye,
-Jishuo, Gada, Udana, Ritual, Jataka, No Dhamma, Vapora, and they were defended
-after relying on his learning. It is a learned debater. What is a repetitive
-debater? Here, a certain type of person is a questioner in terms of his own
-interests, righteous interests, characteristics, reasons, possibility and
-impossibility (disposal), and he is replied after repeated questioning. This is
-repeated questioning. Debater. What is a proven debater? Here, a certain type of
-person is the attainer of the four mindfulness, the four righteousness, the four
-spiritual feet, the five senses, the five powers, the seven enlightenment
-factors, the eight holy ways, the four sammon fruits, the four debates, and the
-six magic powers. Those who have known the reason, the known method, and the
-known word are the ones who are defended in the known reason, the law is
-defended in the known law, and the word is defended in the known word. There is
-no question about these three kinds of wisdom. Obstructing the wisdom, reaching
-(possesses), fully reaching (possessing), entering, fully entering, possessing,
-fully possessing, possessing this argument does not hinder the understanding of
-wisdom, he is called the person with argumentative ability. If he hasn't
-learned, questioned, and proved, what will he answer? "For the soft and
-talented.
+"The talented person", there are three kinds of talented person: from learning,
+from questioning, and from proving. What is a learned debater? Here, a certain
+type of people are originally learners: Shudara, Zhiye, Jishuo, Gada, Udana,
+Ritual, Jataka, No Dhamma, Vapora (??), and they defended after relying on his
+learning. This is a learned debater. What is a questioning debater? Here, a
+certain type of person is a questioner in terms of his own interests, righteous
+interests, characteristics, reasons, possibility and impossibility, and he is
+replied (to) after repeated questioning. This is repeated questioning debater.
+What is a proven debater? Here, a certain type of person is the attainer of the
+four mindfulness, the four righteousness, the four spiritual feet, the five
+senses, the five powers, the seven enlightenment factors, the eight holy ways,
+the four Samana fruits, the four debates, and the six magic powers. Those who
+have known the reason, the known method, and the known word are the ones who
+defend in the known reason, the Dhamma is defended in the known Dhamma, and the
+word is defended in the known word. There is no question about these three kinds
+of wisdom. Obstructing the wisdom, reaching, fully reaching, entering, fully
+entering, having, fully having this argument does not hinder the understanding
+of wisdom, he is called the person with debate ability. If he hasn't learned,
+questioned, and proved, what will he answer?" The soft and talented.
 
 "The unbeliever, he will not be tainted": "The unbeliever," who has been
-personally proven by himself, the Dhamma of self-representation does not believe
-in any other Samana, or Brahman, or heaven, or man, or Brahma: "All actions are
-impermanent "I've proved it by myself... (slightly omitted) "All actions are
-suffering"... "All Dhamma is selfless"... "Act is based on ignorance"...
-(Omitted) "Being based on life Old death"..."Death by ignorance leads to
-demise"...(slightly omitted) "Birth and death lead to death and death"... "This
-is suffering"... These are defilements"... (slightly omitted) "This is the path
-leading to defilements"... "These laws should be proven to be known"...
-(omitted) "These laws should be witnessed" by themselves... (omitted) VI The
-gathering, extinction, pleasure, trouble, detachment of the touch... the
-gathering of the five aggregates... (omitted) the four major gatherings,
-disappearance, pleasure, trouble, detachment are justified by oneself Knowing...
-(omitted) "Any collection of dhammas is extinguishing dhamma." The dhamma that
-is self-proven and self-proven does not believe in any other Samana, or Brahman,
-or heaven, or man, or Brahma.
+personally proven by himself, of the self-represented Dhamma does not believe in
+any other Samana, or Brahman, or heaven, or man, or Brahma: "All actions are
+impermanent "I've proved it by myself..., "All actions are suffering"..., "All
+Dhamma is selfless"..., "Action is based on ignorance"..., "Being is based on
+life, age, death"..., "Death by ignorance leads to demise"..., "Birth and death
+lead to death and death(??)"..., "This is suffering"..., These are
+defilements"...,  "This is the path leading to defilements"..., "These dhammas
+should be proven to be known"..., "These dhammas should be witnessed"..., "The
+gathering, extinction, pleasure, trouble, detachment of the touch...", the
+gathering of the five aggregates..., the four major gatherings, disappearance,
+pleasure, trouble, detachment are justified by oneself Knowing... "Any
+collection of dhammas is extinguishing dhamma". The one who knows the Dhamma by
+himself, self-proven, does not believe in any other Samana, or Brahman, or
+heaven, or man, or Brahma.
+
+---
+checkpoint
+---
 
 This was said by the Blessed One [SN.48.44]: "Sariputra! You have [this] faith:
 when the root of faith has been practiced and more practiced, there is an
@@ -692,13 +543,6 @@ freedom from anger; the extinction of delusion becomes the state of freedom from
 delusion, he is the person who has fallen into the state, has practiced the
 behavior... (omitted) the cycle of life and death, Without his rebirth." As an
 unbeliever, he is always infected.
-
-Because of that, the Lord said:
-
-"Those who have no leakage on the satisfaction, and those who are not
-enthusiastic on the extremely slow,
-
-The soft and the eloquent, the unbeliever, he will not be tainted. "
 
 89. Learning to gain, and getting angry when there is no gain,
 
