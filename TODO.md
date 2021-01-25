@@ -1,9 +1,15 @@
-* Fix issues marked with `??`
 * Fix nested quotes
-* Change 'like this' — an artifact from the translation from Chinese, but is awkward in English
-* Fill in spots marked `omitted, see previous sections`
+  * In progress, mnd 0-9 done, start at mnd 10 and then cnd
+
+* Fix mixed reference styles (some are in the quotes, some are out)
+* Fix mixed period/quote combinations
+* Fix issues marked with `??`
 * Add accents and diacritics to Pali words, and fix Sanskritized and Sinicized ones
-* Remove trailing sentences from explanations (the last sentence repeating the first)
+* Fill in spots marked `omitted, see previous sections`
 * When a first edition is ready:
-    * Unignore the assets dir and turn on GH pages
+    * Unignore the assets dir and index.html and turn on GH pages
     * Comment on related forums, wikipedia, etc
+* Fix epub thinking each verse number is the start of a list
+  * Escaping, other list formats, other non-list formats, unordered lists with
+    numbers in the list, etc., don't seem to fix this. An alternative might be
+    using the HTML to generate the epub.
