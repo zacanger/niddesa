@@ -6,7 +6,8 @@ The Niddesa is an ancient part of the Pāli Canon, the traditional texts of
 Theravāda Buddhism, from the Khuddaka Nikāya (the 'small' or 'miscellaneous'
 collection) in the Sutta Piṭaka (the basket of discourses). It is a commentary
 on parts of the Sutta Nipāta (section of suttas), and is attributed to Venerable
-Sāriputta (Pāli; Sanskrit Śāriputra). There are two parts:
+Sāriputta (Pāli; Sanskrit Śāriputra), though was likely finalized a few hundred
+years after his death. There are two parts:
 
 * The Mahā Niddesa (Nd 1), a commentary on the Atṭḥaka Vagga (Sn 4)
 * The Cūlạ Niddesa (Nd 2), a commentary on the Pārāyana Vagga (Sn 5) and the
@@ -28,11 +29,14 @@ romanizations and some dictionaries. There will likely be many errors,
 inaccuracies, and inconsistencies in this early version, but it will improve
 with time.
 
-This translation prefers Pāli over Sanskrit terms (Dhamma vs. Dharma, kamma vs.
+This translation prefers Pāli over Sanskrit terms (dhamma vs. dharma, kamma vs.
 karma, etc.). If you're used to the Sanskrit terms — to paraphrase Engels,
 changing the words we use a bit won't change the things themselves. For
 readability, I have also omitted and abbreviated some stock passages which are
-repeated verbatim.
+repeated verbatim, as well as concluding sentences of each paragraph (which
+usually repeat the first sentence), and concluding repetitions after the
+explanation of each verse. Without these omissions, the book would likely be
+near a thousand pages.
 
 Included verse numbers are numbers of the verses as presented in the two parts
 of the Niddesa itself. Including separate verse numbers for each sutta, their
@@ -80,9 +84,10 @@ International](https://creativecommons.org/licenses/by-nc-sa/4.0/) license. This
 means you are free to copy and redistribute this work, as well as make changes,
 as long as you provide attribution (give credit back to this work) and share
 your changes under the same license. It would be preferable to always link back
-to [the source](https://github.com/zacanger/niddesa) rather than distributing
-your own copies which may get out of date. Under this license you may not use
-this translation for commercial purposes (you can't sell it). See the link for
-the full version of the license.
+to [the source
+(https://github.com/zacanger/niddesa)](https://github.com/zacanger/niddesa)
+rather than distributing your own copies which may get out of date. Under this
+license you may not use this translation for commercial purposes (you can't sell
+it). See the link for the full version of the license.
 
 \newpage

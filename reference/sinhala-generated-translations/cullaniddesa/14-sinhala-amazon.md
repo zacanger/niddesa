@@ -2,152 +2,221 @@
 - Chula Sleepings
 - Parayanawaganadzno
 
-#14. Extortion Formulas
+# 17. Udaya Humanic Formula Recommendation
 
-[Msdiv 61] (#msdiv61) {#msdiv61 .ref .msdiv} (10-1)
+[Msdiv 74] (#msdiv74) {#msdiv74 .ref .msdiv} (13-1)
 
-[APZ 61.1] (#apz61 .1) {#apz61 .1 .ref .apz} "Ref '
-is what tells the compassion. Immigration, progression, time, mansion, cavity, work, genesis,
-The fall, the rebellious race, the shit death, and the precocious ends of the genitals do not appear.
-The last edge also does not appear. There were animals in the Sanasara center
-Alunahu are galunahu.
+[APZ 74.1] (#apz74 .1) {#apz74 .1 .ref .apz} "Centralization Minor Kings
+"Who were impoverished" is a medium for the people who were impoverished.
+Dosage. Senstrate by the State Center. Centralization by secondary centrality.
+Seniorized by tertiary mean. The Chatura is moderated by the center. Arguments
+Seniorated with reviews. With nonverbal reviews
+Centralizated by medium. Seniorated by the unreasoning Reviews.
+Seniorated by the preferable medium. Prime-free Central
+Centralization. It is also centralizated by the luxury center. Inspektio
+Centralizated by medium. Centralizated by the Zero Center. Amityt
+Midnight also by medium. It is also centralising in the middle of the year. Secular
+Centralizated by medium. Stretch by Lokotthara Central. Central
+The meaning of Alunay is distinguished by the meaning of it. 'Rajasin
+Separated" is a government of lust. Malice is a government. The brains are a king. The Kroha is a government. Transplant
+Hatred is a government. All Accumulary Collectors are a king. A Kings Bhavath Buddhism
+The original Aththah, the originality of God. The latter is made like a whale tree.
+In complete demise. Repeated into the Noudana. Hence
+Buddhjathemama is not kings. There are five kings. Separated from Rajasin. "Lust
+a government. It is not said that it is a renal. 'Rajasa is this other name for lust. (ii) Passas
+The Buddhism that has given him this king. Hence the Ginan turned down
+Kelles are said to be kings. (iii)Malice is a government. (herein (ii) Applied
+Must.) The brains are a king. ((ii) shall be applied herein.) Individuals who have been in the
+He was working in the charitiary place of a rock. "The grieving of the grievance
+Muniya, who was working alongside the city, was afraid of the Trincomalee's martya
+This is how the men pack, the men have been working. Stuck
+The spheres are, because they have compounded all merits. Covered Wasits
+Occurs. There are habituated journeys. (In Mahaniddeis (3-7) 6 (ii) should be applied.)
+He has no antiquity again. Here are the bugters.
 
-[APZ 61.2] (#apz61 .2) {#apz61 .2 .ref .apz} "How is the previous end of the Sanaya
-Didn't appear?"
+[APZ 74.2] (#apz74 .2) {#apz74 .2 .ref .apz} "Ref.apz"
+What to do is the Buddha's work and what to do in the first place
+Deadly. The latter kisses were made like a whale tree. In complete demise.
+Repeated into Nouvera. Therefore, Buddhism has been committed.
 
-(i) Thousand races prevailed. There is no point to say beyond. Here
-The previous end of the genitals does not appear. One hundred million million (ii) Sasara
-existed. There is no point to say that beyond. Premonition of Mezsila Sanasaya
-A corner did not appear.
+[APZ 74.3] (#apz74 .3) {#apz74 .3.ref .apz} "Cravings if someone is wary
+or not artificials to the monk who has a secret incarnated carama
+Not a rash". Inhalations are the inhalers who have been engaged in the work
+There are four inhalations. That is, Kamasawa, Bhawawa, Ditatarya, Avichiya. A Batch
+It was the Miravo of Buddha. Originally slanted. The latter is a whale tree
+As was made. Complete fade. Then came back into Noudana.
+Therefore Buddhism is breathless.
 
-(iii) Thousand Million Million of Nation (here (ii) shall be applied.) Around the nation's crores
-A point (ii) should be applied here.) Applied for years (here (ii)
-Must.) This should be applied for six years (here (ii).) Thousand Years
-((ii) shall be applied herein.) Six thousand years (here (ii) Applied
-Must.) This year quota should be applied (ii) This year around the year
-One hundred (here (ii) shall be applied.) Thousand Million Million (here (ii) Applied
-Must.) Rs. 1 million (here (ii) should be applied.) About this
-A number ((ii) should be applied here.) Approximately one hundred thousand (here (ii)
-Must. Thousand should be applied here (ii). About six thousand
-((ii) shall be applied herein.) A quota should be applied here (ii)
-Approximately one hundred million million (here (ii) should be applied.) Around thisThousand Million
-((ii) shall be applied herein.) Ten Thousand Trusts
-This was curated by. "Mahani, there is no late rounding of the constipation. Pre-end
-Not seen. Rating of animals whose craving is associated with the combination of cravings
-Navigate. Mahani, thus suffered a long time sadness. What is terrible
-In sufferers. As the business suffered, the tombs were waved in this congregation.
-Suitable to be made. Suitable for separation. It is desirable to get rid of." Mezuli Constipation
-How does the last end of the constipation not appear?
-The shears are maintained in compastion
+[APZ 74.4] (#apz74 .4) {#apz74 .4 .ref .apz} "went to the peril of all doctrines" is
+The guardians knew all doctrines with wise wisdom, and went to the age. Briqued
+Knowing went into the street. Propagated and went into the parade. He went through meditation.
+RefractoryAs went into the parade. He went through society. All
+He knew the doctrines with wise consciousness, and went into the age. To know all the suffering.
+Gone. All the elves went into the parapet by the prophesy. Four road
+He went through meditation. By making the prophecies, the necrotic went into the heater.
+All the socialites went through the skin. He is prophesy.
+Parami Preparaset. Divisional as Aryruwa. Paramy Prophet. Aryan
+Wasi Divisional in Samadhara. Parami Preparaset. As in the Ordinary Consciousness
+Preparasena. Paramy Prophet. He is paralysed in the liberation of Aryan
+Said. Parammy is saturated. went to extremes. Complainted with extreme. went to the corner.
+Complainted to the end. went to the terminal. Complainted with the terminal. went to the end.
+And came to the end, went to safety. Complainted with security. went to the place.
+Complainted with the location. went into sanctuary, came into sanctuary, went into unsanctuary
+And he complained, went into the morrow, and complained to Nibbana
+Gone. Arrived in Nibbana. He hath clogged and finished solutions. (Great
+(3-7) (6) (ii) should be applied in the nod.) He has no rebirth.
 
-(iv) There is no such matter whatsoever. About one hundred races
-Thousand Nation, Six Thousand Nation (HERE (iv) shall be applied.) Here
-The last end of the sangar did not appear. There were animals in the center of the Sanghara,
-Alunahu come, and come.
+[APZ 74.5] (#apz74 .5) {#apz74 .5 .ref .apz} "To ask a question
+I came to question" was I who came to question. In order to be critiqued
+I came. The presence of the question critics of the question,
+Coming, puberance, segmented. Here I came to ask questions.
+And you will have the presence of question. You have come to the country. Me
+Suitable to be critiqued by. You trust to solve to say. Question
+I came to hear. Cash VimodeyaNanawi is a cassa
+Vimodea Manuwi, Manipulate, Open Manuwi
+Split, measure the pros. Manurements, Readers. "Inscience
+Breaking" is the breaking of the inscience, the business, the compassion of the immortal
+Nibbana is the breaking of inscience. Therefore, Brahmana said:
 
-[APZ 61.3] (#apz61 .3) {#apz61 .3.ref .apz} A great fear arose (blow)
-Khala is a carmogary, Bavodiya, Ditshy, at the time of birth, at the time of birth,
-The fear of fear is the fear of the nation, the fear of fear is afraid.
+[Msdiv 75] (#msdiv75) {#msdiv75 .ref .msdiv} (13-2)
 
-[APZ 61.4] (#apz61 .4) {#apz61 .4 .ref .apz} "Jara is the oppressed by death"
-Jara's death of the justices of the oppressed, of the men by race, of the jarrawen
-Dispersion, Bretched, Protect Naughty,
-It is the one of the sailors to swim. Eminence, O Jara of the death of the pitilists
-Safety Lockable, Maniferens, Manurements, Opening
-Manuals, Divide, Manuals, Manuals. 'Nidukaneni, 'is a favorite
-The Word is the Word of Respect, the Word to be considered, "You will say," is
-Knife, Sink, Sistion, PollinationNanawi, Dekanu Manuwi, Karunu Manuwi,
-Opens are measured, divided, measured, stated.
+[APZ 75.1] (#apz75 .1) {#apz75 .1 .ref .apz} "Proaction of Rooms"
+If there is a vote in the rooms, there will be any vote in the rooms, Kama
+Bonding Adda, Kama Cravings Adda, Kama Sneak Adda, Kama Thirst
+Eadda, Kama Eadda, Kama Embroidery, Draining the room,
+Carmography, carmography and carmography will be the same as the rooms.
+"The cause of the roomers" is the compastion of the business, the unpretentious Nibbana.
 
-[APZ 61.5] (#apz61 .5) {#apz61 .5 .ref .apz} "You have some location for me
-If, saith, then it is. The other will not be in a way." The miseries are here
-Hence the Brahman, and shall be concomitant, so shall the same Brahman. 'Asth'
-Goes. The sadness of receiving the resonance again shall be nouveth. Kama or Kama
-in the jewelery or in the image of the jewelery, or in the veneer or in the recess or in the recess of the jewelery
-Nevasvana in the nasal jewelery or in the collective jewelery or in the capsule
-Pagakhavokara or regeneration or genesis or rejoint or jewala
-In the constipation or in the recess or in the thread. Will not cause, and this will be redeemable
-Convenience, ' Therefore, Brahmana said:
+[APZ 75.2] (#apz75 .2) {#apz75 .2 .ref .apz} Dawn
+The two in the rooms are the provocation of the chamomons, the unhappiness of the choral sadness,
+Chateurism and untouchable unhappiness, is the "Domin" the two is the room
+Doomnacia is the dismantling, constipation, impulsive Nibbana.
 
-[Msdiv 62] (#msdiv62) {#msdiv62 .ref .msdiv} (10-2)
+[APZ 75.3] (#apz75 .3) {#apz75 .3.ref .apz} "Dispel of the Thunder"
+If any inappropriateness of the emotional is a maleness, a lack of work, then such
+Dumping of the trunk, constipation of the constipation, indignant Nibbana in the cookie
+Prevention is a cube on the hand. The cube on the foot is a cookie. limbs
+About Kuku is a cookie. The feeling of disfelence, the feeling of the uncut of the dedication
+Feeling of the intransigent of the fault, the feeling of guilt in the intransigent is like this, kukas
+That is, the irritations of the mind, the infirmity of the mind, the two things that stop if the heart is inconspicuouslykin
+Kukusa is born. (Should apply (10-3) 4 in the Great Niddeesa.) Therefore, the loaders
+Him.
 
-[APZ 62.1] (#apz62 .1) {#apz62 .1 .ref .apz} Spans Capp, Sasara
-The death of the Jara victims in the middle of the Mawathu Ogaya
-Tell. If "Pre" goes to the middle of the "Pre", then "Pre",
-Traffic, time, stink. Bavarya, Chuthia, Genesis, Breaking the Nation
-The previous ends of the genitals also do not appear. After that, the ends do not appear too. Creatures of Middle Sassare
-And there were, they came Alunahu. How is the previous end of the convalestion
-Do not appear (10-1 (2) :i-ii-iii should be applied.) Thus, Sanasaya's prior
-The ends did not appear. How does the later end of the Sanaya not appear? (10-1 (2) (iv) Applied
-Must.) Thus, the later end of the Sanaya did not appear. Thus are the previous ends of the Sanaya
-After the end was not in the middle of the constipation, and there was an alumnahu,
-The comers are gallons. 'A Great Fear ArrivedIn Lal is, 'Carmogaia,
-Bhavodiya, Ditthogy, Avigoy, Lower in the time of its occurrence.
-The great fear is the fear of the nation, the fear of business, the fear of death. "Jara's death
-"To the oppressed" is to the jaunted people according to the nation (born)
-The dissolved sadders are not in a position to be seduced by business.
-"Nidukaneni, Manuwi Manuwi will be imposed to express security
-The manometer will be divided into open openings. You stabbed me
-Measure the posts. It shall not be in any other way" is this sadness here
-Replace if the rework is recompressioning, if going to the stove
-If the sadness is disturbed, the images of the Kama stream or the image of the Kama stream or the image of the image
-In the jewelery or in the sassava or in the sassava, or in the nevassava, or in the event of a sassava or
-Repeatment or recuperation of the recuperation or recuperation of the recuperation or
-Genesis or Rejunction or Bawabawatha or in the Condensate or Discount
-If the illiterate is not caused by this, if the constipation is constipated
-Ready. Therefore, Brahman himself said.
+[Msdiv 76] (#msdiv76) {#msdiv76 .ref .msdiv} (13-3)
 
-[Msdiv 63] (#msdiv63) {#msdiv63 .ref .msdiv} (10-3)
+[APZ 76.1] (#apz76 .1) {#apz76 .1 .ref .apz} "In two instructions
+If the instructor "Depleted", there is an instructor of any Chart Centre,
+There is a consensus, a mortal, a centrality: it is the week of the Emoter
+Is it a memorial because of the instructions of a certain four century'
+Whether an award is a satire.
 
-[APZ 63.1] (#apz63 .1) {#apz63 .1 .ref .apz} "Reef or Sanasara Center
-Sithahu" means "Par". Immigration, Traffic, Time
-The business, the genesis and the death of the nation, is not the previous end of the Sanaya. (10-1) 1
-(I-ii-iii-iv) should be applied.) The death of the nation jara is a place for the oppressed.
-Tell. The extortion is a light protection, and say a mushy. Deshana
-I will open the opening. Therefore, I will be divided
-He prostated.
+[APZ 76.2] (#apz76 .2) {#apz76 .2 .ref .apz} "Inquisitely & Spiced
+Purified" is the instructor and the purified. Sanctified
+Pure and clean, babalannahu yard rahithawahu
+Aththahu was used to kamma.
 
-[Msdiv 64] (#msdiv64) {#msdiv64 .ref .msdiv} (10-4)
+[APZ 76.3] (#apz76 .3) {#apz76 .3.ref .apz} "Dhamma argument goes before"
+The Dhamma argument is what the concept tells. It will be in the same way. Previouses.
+Precipated. The Dhamma argument was made in this way. Reasoning Dhamma
+Same tells the view. Whoever was in the forerunner, etc.
+The Dhamma argument was made in this way. Preparations of the four paths
+tells the show. It will be in the same way. Preamuwa Wei Preangama. Here
+The Dhamma argument was made.
 
-[APZ 64.1] (#apz64 .1) {#apz64 .1 .ref .apz} "Ragaese sneaky without hardness
-If "No Capture" is "No Capture" (4-11) 1 is applied from where the snees go
-Must.) The hardness tells the craving (ii) a certain lust is a sticking
-It is the hardness of the genus. Indication of hardness, constipation of hardness,
-(iii) This is the location of the Nibbana. No other" is the location of this.
-Protection is a tree. There is no other location in the veneer. arched,
-This is the most prominent, prominent, knife. "I say it is Nibbana"
-'Dairy' tells the craving. Yamracha Adda (10-4) 1 (ii) should be applied.)
-It is the unpretentious Nibbana, the cravings of cravings, the craving of cravings
-Ithi 'thus' is the vowal joint. vowel intercourse. Complete the vowels.
-The letter is to do. The term is to be used. "Say" is Deshanamam, I am, put,
-Open, divide, publish, publish, go. "This is some of those senses
-Knowing the matter", "this" is the impeccable Nibbana. All those editors
-Contraination is a rash of all subfebrile, cramps, pause
-Nameless, Nibbana, Nibbana. "Know" is a decision with knowing
-As a rule, all editors must apply (1-8) 3.) Any
-Reason is a doctrine, knowing that it is all to be done in order to be repositories
-Wait, Decisionate. "Yamman" is Arhetthu Kshinasravayo.
-The "dream" is the remembrance of four things. Mindfulness that looks according to the hindrance
-Since (1-8) 4 (ii) should be applied.) So remembrance is sawed.
-Dewki Dharma, "Dhakiadharama Twinahu"
-The doctrine, which determined the doctrine, is the one. NiunahuTwinahu, since the lobby was extinguished,
-Since the malice is extinguished (3-4) 2 should be applied. In 1578) "They are
-Though not coming to the domain of the mara" is a certain mara, the lord of the glasses, the hanger, the only
-If the name of Bandhu does not go into the year, but the marah does not take them into the year,
-Leave—Leave—Leave—Leave—Leave—Leave—Leave—and Leave—and Mara Housing,
-Maragocharatha and leatherette, behave, abode, posture
-Hold, control. "They are not the martyrs' 'is the marty'
-Do not behave. They are the children of the Buddha, and they are the children of the Buddha. Hence
-The spachers preached. ((1-8) (6) should be applied at the end of the stanza.)
+[APZ 76.4] (#apz76 .4) {#apz76 .4 .ref .apz} "Acavavavimodea"
+Arahatta Vimokedara said Arahatta Vimokkedara. Deshana.
+I will open, put, open. Divide, promulate, I will promult.
+The disscience of the breaking of the inscience is not to know the sadness. Science is
+And this is the root of Akulsala. Breaking is the concomitant, the impoverished NibbanaI
+So the prophets prophesy.
 
-Kapamanawaputhraniddezno.
+[Msdiv 77] (#msdiv77) {#msdiv77 .ref .msdiv} (13-4)
+
+[APZ 77.1] (#apz77 .1) {#apz77 .1 .ref .apz} "What is the combination of locus?"
+The combination of the world was drunk, bonded, what would be to the Kilu
+Applicable? Ready. How is its critique? is the critique, the tab.
+Does the casing world behave? Is it said to be very undeniable by the onslage? is a key
+Does Nibbana say, proclaim, by comparison with the Progression?
+Will. Therefore, Brahman himself said.
+
+[Msdiv 78] (#msdiv78) {#msdiv78 .ref .msdiv}
+
+[APZ 78.2] (#apz78 .2) {#apz78 .2 .ref .apz} "The combination of the Nanduru world"
+Nanduria tells the craving. Any lust is sticking to the lust
+This is said to be Nandiya, where a central lobby is an Akushal root. The Nandy
+A combination of the world. Elbation. binding. Subclate. This Nandy World
+Junction, Exact, Abstract, Equal, Elbuny.
+
+[APZ 78.3] (#apz78 .3) {#apz78 .3.ref .apz} "Comment Reviews"
+The discourse is the new withercaoi kama discourse, the business discourse, the joke
+Dissent, Conscious Dissent, States Dissent, Amara Dissent, Polliness
+Replicable Compression Cheap Care Reputation
+It is these new weathermen who are the repositors' dissent. The New Wizers of the Locker
+Block reviews are available. The world behaves with this new weirdly
+behave.
+
+[APZ 78.4] (#apz78 .4) {#apz78 .4 .ref .apz} "Nibbana by dandruing cravings
+It is said." The images of cravings are craving, sounds, odors, tastes, touch
+Nibbana is said to be by impoverishing the cravings. is a craving
+DrowningNibbana says by constipation of mankind. Progresses.
+Proposes. So the prophets proclaimed.
+
+[Msdiv 79] (#msdiv79) {#msdiv79 .ref .msdiv} (13-5)
+
+[APZ 79.1] (#apz79 .1) {#apz79 .1 .ref .apz} "How to behave in remembrance"
+How to behave wisely, in remembrance of how to dwell.
+Constant, prevail, govern, dependents. Conscious
+Constipation is the business and the compilation.
+
+[APZ 79.2] (#apz79 .2) {#apz79 .2 .ref .apz} "Trusts
+Arrive" is an invitation to visit the Buddha and ask them to ask them
+Let's be Avo. Arrives. Samprapthawamu. Ready. "Bring up the word of you
+Ask" is the word of you, ask the conjunct, learn and bear the word
+So said Brahmina, therefore:
+
+[Msdiv 80] (#msdiv80) {#msdiv80 .ref .msdiv} (13-6)
+
+[APZ 80.1] (#apz80 .1) {#apz80 .1 .ref .apz} "Happy with pain inside
+Not to be" is an academic stethoscope, looking and dwelling according to the pain
+Not happy with the pain. Not saying. Pleasure, Telling, Paramarahe,
+Entry is dispel. Exclude. Complete demise. Outside
+By looking at the pain of the pains, the dwelling is not happy with the pain; (ii)
+Not saying. Pleasure, taking telling Paramaroscopy infiltrates, deviates,
+Complete demise. Depending on the pain in the back and back of the dwelling.
+Doing is not happy with the pain. Not saying. Taking pleasure Telling is Paramortizing
+Entry is impregable. Complete demise; (iii) Occurrence in education
+Doctrine looks according to the stethoscope of the stethoscope and dwells about the stethoscope
+Not happy. (here (ii) Should be used.) According to the Destroy Doctrine of Education
+domicile (Should be used here (ii)) Presence in Education and
+Loss looks according to doctrine (should be used here (ii)).) Outside Presence Doctrine
+According to (ii) should be used.) The outside is looking at according to the destruction doctrine (here (ii)
+Should be used.) Outside occurrence and destruction are taken into account by doctrine (here (ii)
+Must.) In accordance with the Destroy doctrine, it should be used here (ii).
+Incidences should be used in accordance with the doctrine (ii)) This
+Twelve way lives by seeing and dwelling by pain in pain (here (ii)
+Should be used.) The anal pain is inextricably looking at (here (ii)
+Should be used) as a result of suffering, as a disease, as a pus, as a tribulation,
+Disabilities, as excreted, should be used here (ii)) This
+Desatalis looks according to the stethoscope of the Vedanawan (used here (ii)
+Must.)
+
+[APZ 80.2] (#apz80 .2) {#apz80 .2 .ref .apz} "Behave in remembrance"
+It is the postures that will behave with great discreet in remembrance
+Conveyor, Controlled, Consciousness Is Instilation
+Editorical Consciousness, Convenient Editorical Consciousness, Other Consciousness
+Editorary consciousness is irritated. Into the heart of the snot. Ready. Hence
+The propyants prodded.
+
+(With the end of the stanza, (1-8) 6 should be used.)
+
+Udayamanawaputhaniddezno.
 
 [AP de Zoysa] {.author} edition.
 
 Permission to publish was kindly granted by Kumari Jayawardhana.
 
 Digital files were kindly supplied by Srisumana Godage of [Godage
-International Publishing] (http://www.godage.com/), who publish a print
+International Publishing] (http://www.godage.com/), who publish aprint
 edition of this text.
 
 Conversion from PDF was by Janaka of < http://pitaka.lk/ >.

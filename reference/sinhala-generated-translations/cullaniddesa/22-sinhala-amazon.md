@@ -1,691 +1,365 @@
-- Khuddka denomination
-- Chula Sleepings
-- Parayanawaganadzno
+## 3. Thaiyagaggoo
 
-# 22. Parayanugithigathanidadesno
+[Msdiv 141] (#msdiv141) {#msdiv141 .ref .msdiv} (18-21)
 
-[Msdiv 102] (#msdiv102) {#msdiv102 .ref .msdiv}
+[APZ 141.1] (#apz141 .1) {#apz141 .1 .ref .apz} "Thins of Optics exceeded"
+The vision bites tell the differing self-view. This teasup
+Incompetent in Aryan Dharma, who did not see Aryans, who did not see Aryan Dharma,
+The ignorant of the ignorant in the genitalia, who are incompetent in the genitalia
+The surface itself looks like the image as the soul. The soul thinks or thinks of the images. Soul
+Think the image is segmented. The soul thinks of the image. pain,
+Sign, edited, consciousness, looks self-conscious. Soul Conscious or
+That there is consciousness over the soul, or that the soul is segmented upon consciousness, or
+A certain point of view, a vision, a vision desert, a vision camphor
+A bites, a vision shock, a visual combination, a rash, a retraction
+Entry, wrong way, lie, conviction, guilt,
+This is a viresaya, a myth, a view for December,
+This vision is the evil voice, the 'over' is the visible beyond. Separated,
+Ready.
 
-[APZ 102.4] (#apz102 .4) {#apz102 .4 .ref .apz} "I sang according to pharaise."
-is that I sang according to the singing. According to the saying said. "Hello
-The term" (spi ayasma) is the matching of verses. The order of verses
-This is the case. "Hello" is the Favour Word, the Honor Word Honor Affairs
-This is the word to be considered, hello. 'Ayushath Pingiya' is a Theatrean
-is the name of God. Imposition, Conductive, Really. "Hello,"
-said. ' Ready. And he said so," (ii) defied, and imposed,
-laid, opened, divided, promulted, expressed. All Editors
-No. (iii) Saw it, and said so. All editors grieve (here
-(ii) Should be applied.) All doctrines should be applied here (ii).
-A doctrine born in some form, to refine it all
-And he saith so, that he said. ((ii) shall be applied herein.)
+[APZ 141.2] (#apz141 .2) {#apz141 .2 .ref .apz} "Come to the road and Order
+Arrive" is the norm of four Aryan saws. Four Aryan Road
+Arrived to the regulation. Touted, prodled. The 'road' is
+Aryan tells the octanginal road. How to clamping? A Resource Vision, a Resource
+Concept, a word, an ascetic industry, an ascetic religion, an ascetic
+A business, a resource, a society, is a society. got the line,
+Arreed.
 
-[APZ 102.5] (#apz102 .5) {#apz102 .5 .ref .apz} "Most Discreet chastised"
-What is' chastised 'is Ragyamale, malice, what is the feces, the transplanted hatred
-(3-4) 3. The dimension should be used from where it goes.) All acronyms are editors
-Bhabavavi Buddhidu. Originally citation was called. Like a whale tree
-Carded. Complete demise. Buduradhathema, chirmala
-The feces were dropped. Separate from all feces.
+[APZ 141.3] (#apz141 .3) {#apz141 .3.ref .apz} "Birth Consciousness without knowing from the other
+I am true. On that soil the Buddha begat consciousness, the lower, the bereath, the bereath.
+"To know in a dream" is thatThe Buddha in the soil shall not partake. Seminar
+Not. Those who have not been conscious know what others are. All Editors
+Consciousness is born of consciousness. Occurred, parties were. All editors grieve,
+All doctrines are infested, there is a doctrine born for some reason, and all that
+Maintain for the sake of reproach is not conscious of others. Hence
+On that soil the Buddha prodused.
 
-[APZ 102.6] (#apz102 .6) {#apz102 .6 .ref .apz} tells the earth "Geary". A
-The broad was justified by the earth-like prophecy. "Medha"
-istells the promontory. Any signal is applied to Adda (Mahanidadesi (3-1) 3
-Must.) It is an Amoik Dhammavichu Samaratsha. Trusts
-This is the same with the promontory.
+[Msdiv 142] (#msdiv142) {#msdiv142 .ref .msdiv} (18-22)
 
-[APZ 102.7] (#apz102 .7) {#apz102 .7 .ref .apz} "Separated from the room to the house
-There were two sections of kama as a prophecy called "Came". also objects
-Clayshakamai too. ((1) 1 (ii) 2—3 should be applied in Mahanidadesi)
-The objects are the saws, they are the clayroom saws, the bakal buddha
-The rooms of objects were fully known by God. Cleese kamamayo
-Implements. Rooms, because they know the objects
-Not unpopular. Rooms are not expected. Therefore, Buduradhathama
-Roomless. From the rooms. Therefore, the rooms of the house
-Not unpopular. Does not desire. Miducama occurs. Convinced fates.
-Causes constipation. Pawuragas have been. Removable rags. Smeared Raga
-Occurs. Cravingless was that the twine was just as comfortable as the Brahman
-inhabited by spirit.
+[APZ 142.1] (#apz142 .1) {#apz142 .1 .ref .apz} "Nillopedia, not hypocritical
+There is no thirst," the bluepy tells the loss of cravings. Any lust
+If the feces are a metal, the source of the feces is a lollupper
+The craving is the Buddha's secret on that soil, originally extracted from the late sips of palms
+Like a tree, the complete demise was brought back into the nostra
+Pamunuwal. Therefore, the soil did not crave the Buddha. Is not hypocritical. (Great
+(10-5) 2 (ii) shall be applied in the law.)
 
-[APZ 102.8] (#apz102 .8) {#apz102 .8 .ref .apz} "Ref"
-Lust is a wild. Malice, brains, crocifisso are constipation, vaunted. All
-Collectors of Akushala The Vanayo of the Bhabawath Buddha.
-Originally, there was a salient. Estimated by a whale. In complete demise.
-Repeated into the Noudana. Therefore, Buddhathema are names of others. from the wilt
-Discarded. And get rid of the water.
+[APZ 142.2] (#apz142 .2) {#apz142 .2 .ref .apz} The Three of the Paebuda
+Hyponasthahu is the Conveyor. Originally sounded. Sanginaha. Aogre were born.
+The fire was burned in the name of the wisdom. Therefore the Buddha on that soil is not hypocritical.
+The thirst tells the craving that thirst is not thirst. Any lust, sticking
+Einda is a metal root, which is a metal medium. A thirst called craving
+The Buddha's secret on that soil was originally instilled. Thaltree
+was. In complete demise. Repeated into the Noudana. Hence
+Pasebuda says he is not hypocritical and thirsty.
 
-[APZ 102.9] (#apz102 .9) {#apz102 .9 .ref .apz} "Naga" is the logs
-He is. Nagasekara because guilt is uncommitted. (4-10) 1 should be applied from the place of stay.)
+[APZ 142.3] (#apz142 .3) {#apz142 .3.ref .apz} "Mecca" is a mushy
+What is a 'whip' is a lust scout. Malice is a scout. The brains are scabies
+Constipation of Crop Hatred, Thinking of Virtues and Conscious, All Abralies
+Collections are a scout. The reason for the lack of sadness is the cause of sadness
+There is no knowledge. It is true not to know the cause of the grievous incarceration. Grievous
+Incognition occurs in the approach of moving into the neoplasm. Prepainted
+There is no knowledge. Incognition of crime occurs. Preparation
+There is no knowledge. The doctrine is unknowable in the Samathpaddy doctrines.
+Not knowing what this is, not looking, not figuring out, mistaking, not noticing,
+Non-Promoting, Fool, Weakness of Good Mindfulness, Inscience
+The name of Satawatha, Ascience, the emergence of Adscience, the emergence of Adscience,
+The brain is the epileptic. The soil is the name of the Buddha, and the scammer, and the Morhya.
+Damanala. In the deprivation, at first incense, plant, constipation. To be born
+The wisdom was burned by the fire of the name of consciousness.
 
-[APZ 102.10] (#apz102 .10) {#apz102 .10 .ref.apz} "Enagyan Covers
-Lying by reason?" 'For any reason' means, by any matter, by which
-Sleep, by any kind of approach. Is 'liar, 'is the muzzai,
-Whether promulgation, whether he publicates, does some person in this locality to the congregation
-went or went to a group of people or went to the middle of kin or went to Gammeddar or Rajakula
-Shakshi was examined by 'Emba many', here
-So. If something knows, says, I know or do not know what in time I said
-Do not know or know. Didn't know what I saw or what I did
-Do not see, because of himself, or by any reason from other or amyssa
-Or know and lie, this says falsiness.
+[APZ 142.4] (#apz142 .4) {#apz142 .4 .ref .apz} "desire" is telling craving. a
+It is a lust, a central lotus, a root of Akushal. 'All the World'
+is in all the hell world, in all the human world, in all divine,
+In all the relics, all entities in the world, are longed for. "All
+Lokahivi" is the desire of all the world, without cravings, without thirst
+Behave alone by the hinges of the capricia. So the Buddha on that soil
+stated.
 
-[APZ 102.11] (#apz102 .11) {#apz102 .11 .ref .apz} "Stop Three Points
-Mucosa. Musa will tell him the idea before. Mucasakiwa
-Musa says to him an idea. I said Musa unto him when he said Musa. Idea
-Wei. This is a three-way malaise. Stop is blurred with a snot.
-Stop, six points are blurred by six points. Stuck
-With a attic there is mucus. From any reason, whether they are used, and the business
-Do, do. Therefore, the Pingiya himself said:
+[Msdiv 143] (#msdiv143) {#msdiv143 .ref .msdiv} (18-23)
 
-[Msdiv 103] (#msdiv103) {#msdiv103 .ref .msdiv} (17-6)
+[APZ 143.1] (#apz143 .1) {#apz143 .1 .ref .apz} "Sin Realms"
+Sin support is a certain assistant (friend) who is a mythology
+VisivallyIn the case, (ii) there are no rewards of what was given. Votive gave
+There are no rewards in the thing. There are no rewards in what is cooked. Karma who did not do well.
+There is no fruit reward. There is no in this world. There is no paramedic. Motherless. No father, no man's animal
+No. There are no heavenly brahmins, who have well-deserted good journeys in the world. Whoever
+Are the world and the paralochial proclaiming, (iii) this
+Sin Assisting.
 
-[APZ 103.1] (#apz103 .1) {#apz103 .1 .ref .apz} "The Innate Cellular and Brains
-The "stale of Buddhism" is Ragamalee, Bishamalee, Mohamalee, Manamalaya
-Optic, Classical, All Perceptio, All Spiritful Karmale, Thuai Brains
-If there is no knowledge in the case, suffering in the grief, in the grief
-In the Nurodhagamini reaction, there is no sense in the reaction,
-Science, LiThe head (lock) is the brain, the root of the letter. This is what says. What
-The stool is also the secret of the Buddha, originally found in the urine. Originally Pisses
-It was like a palm tree. Complete demise. Repeat
-It was turned into nouvedana. Therefore, the feces and brains of Buduradhathama
-Done.
+[APZ 143.2] (#apz143 .2) {#apz143 .2 .ref .apz} "Whoever is sin assistant
+The doer" is the cause of sin assistant. Strike. 'Infinality'
+It is a companion of the vicious thing that is, in decimal mythology
+Justification (Should be applied here (ii).) The proofs also indicate this danger.
 
-[APZ 103.2] (#apz103 .2) {#apz103 .2 .ref .apz} "Dimension and Mecca"
-One way dimension is that there are some rises in the mind. Himself
-The dimension is both to be promoted and to put down others.
-I am a redee. I was the same. Three-way Wemii
-Dimension. The dimension is earned by profit. Dignity deriys the dimension. Propagation dimension
-Birth. The dimension is born from the supply. Egon is born.
+[APZ 143.3] (#apz143 .3) {#apz143 .3.ref .apz} "The Alloy of the Vicious Thing" is a heterogeneous
+The alley of the boardman, the alley of the heterogeneous, the alley of the heterogeneous manaH kamma
+Alloy of heterogeneous community, Alloy of heterogeneous Adaddana, Heterogeneous Kama
+Alloy of mythology, anomalous lying, the aluminious clam of the anomalous clam
+Alloy, heterogeneous hollow words of heterogeneous Pharous Word, heterogeneous stiff
+The alley of the world destroys the heterogeneous, heterogeneous of the idea
+Alloy in mythology, Alloy in heterogeneous edits, heterogeneous curbs
+The Alloy of the properties, the Alloy of the heterogeneous Panchanewarana doctrines, the Galliers, the Arrived
+Ready.
 
-[APZ 103.3] (#apz103 .3) {#apz103 .3.ref .apz} "Images Receivedere
-Reminery is born dimension. Sounds are received, reminiscent of the dimension is born.
-Odors, tastes, touches, soils that are reminiscent of Wemi
-The dimension is born in a way.
+[APZ 143.4] (#apz143 .4) {#apz143 .4 .ref .apz} "Three-size
+Do not serve. What is' justified 'is that someone finds rooms and is pertinent
+Discover (ii) It is characterized by the fact that it is abundant, it is adored, bent to it
+It was burdened by its alley, it was the alley of the heathen room.
+In the predominant room, there is a canal in the heaty room(iii) Someone is craving
+The image is looking for sound, odor, rousy, touch. ((ii) shall be applied herein.)
+Does anyone look for sound, odor, taste touches (here (ii) apply
+Must.) Heetfatty cravings imposes the image, sound, odor, taste,
+Conducts the contact. ((ii) shall be applied herein.) Size
+Size should be said.
 
-[APZ 103.4] (#apz103 .4) {#apz103 .4 .ref .apz} "Earns dimension by receiving eye. Ear
-Receiving, receiving the nose, receiving the tongue, receiving the body, receiving the mind
-The vaginal dimension is born. dimension, ultra dimension, manatimeter, multimeter, ultra,
-The asimetic, the mythometer, the seven way dimension is born.
+[APZ 143.5] (#apz143 .5) {#apz143 .5 .ref .apz} "The bodiest or vocabulary
+An application of the mind of the visocious or manas of the visocious character or of the tandle quality
+Adda, working unoristically, frequently acting in order to grow the culinary doctrines
+Not working, lack of finished work, hesitance, will be placed
+That there is a set of work, not being serviced, not abundant, determined
+Do not, do not overdo. A certain amount of size
+Adda says this is the size. "He shall not serve" is to serve oneself
+Do not do, do not behave. The quantity is not maintained. Ready. Therefore, it is the soil
+The Buddha prodused.
 
-[APZ 103.5] (#apz103 .5) {#apz103 .5 .ref .apz} "Earns dimension in profit.
-Loss yields depreciation. Dignity deriys the dimension. Depreciation from Scandal
-Birth. Demonstrations are born. The humiliation is instilled. Dimension
-Birth. Sad inspires desensitization. The right way the dimension is born.
+[Msdiv 144] (#msdiv144) {#msdiv144 .ref .msdiv} (18-24)
 
-[APZ 103.6] (#apz103 .6) {#apz103 .6 .ref .apz} "Ref
-amMi dimension, birth. Similar to the sergeant was born in the Vemi dimension.
-He was born to the man, and he was born. The similarity was embodied by the Vemi dimension
-Birthplace. The similarity was born in the Vemi dimension. The likeness was diminuted by the Vemii dimension
-Birth. Hinea was born. Similar to Henaya, Wemi
-The dimension is born. Hinea was born in the new way of the Wemi dimension
-Birthplace.
+[APZ 144.1] (#apz144 .1) {#apz144 .1 .ref .apz} "Multiplexed Event
+(Friendly) Bhauves" is the Friendly Polymerized, the Collected Pillu
+In the middle of the day, the end of which is cleaned, the end of which is cleaned.
+All the fulfillment of the purification of the defined communities.
+Whether stated, in the contemplation of the mind accustomed by the word pressed
+The doctrines that were adhered to, were many borne. Ready. 'Dharmadhara' is
+Formula, Payment, Stanza, Udanaya, Savor, Nation, Abd
+The doctrines of Dhamma, Wedalla, are borne. Multiculturalist DharmadharaFriendly Bhabilitation
+The doer will do the service.
 
-[APZ 103.7] (#apz103 .7) {#apz103 .7 .ref .apz} "Someone Here From The Nation
-or from prey or patriarchy or in shape, or by wealth, or
-By learning or by academia or by craftsmanship or by college or
-Dimension is born either by grade or by reflex.
+[APZ 144.2] (#apz144 .2) {#apz144 .2 .ref .apz} "Has great renews
+Friendly" is the Friend, whether the Friend is majestly, in commandment, in pledge,
+He is also the gentleman, from the wise vision of liberation by liberation. Referention
+(understanding) is the premise of the perspectio, in the reciprocity
+Whether the policy is there, the policy of the hyperthermia is there.
 
-[APZ 103.8] (#apz103 .8) {#apz103 .8 .ref .apz} "Venin other points or
-A particular dimension is a thought that makes a thought more than a thought.
-This is the dimension of the mind, as a flag, to be raised.
+[APZ 144.3] (#apz144 .3) {#apz144 .3.ref .apz} "What is the understanding of the perspective?
+Here some person has the formula, the house, the application, the stanza, the Udanaya,
+Do these doctrines of the rest, the nation, the Abdithu Dhamma, Wedalaya,
+This terminal is due to the fence, and these terminals are the fence.
 
-[APZ 103.9] (#apz103 .9) {#apz103 .9 .ref .apz} Any Ergonomy called "Mecca"
-This is a mechia, which seems to be a mechia. The dimension of the spheter and the dimension
-The essence, originally begged, came back into unborn, and therefore the Buddhist himself
-Dimension, and the size of the mucosa,
+[APZ 144.4] (#apz144 .4) {#apz144 .4 .ref .apz} Which is the premise? HERE
+A certain person is in the sense, in the business and in the characteristic, in the matter and in the place
+His questions are being asked. Really because of his asking questions (these questions
+Hearing) is the perpendicular understanding.
 
-[APZ 103.10] (#apz103 .10) {#apz103 .10 .ref .apz} "So I am in the gunway
-I will say the word with" so 'is the term term of verse matching,
-Filling is to equalize the letters. This is why. "Gunaparana'
-I will promulgate the word, which is the glamour, and I will dissect,
-I will open, I will open, divide, and I will. Hence Fillings
-Stable stated the third.
-
-[Msdiv 104] (#msdiv104) {#msdiv104 .ref .msdiv} (17-7)
-
-[APZ 104.1] (#apz104.1) {#apz104 .1 .ref .apz} "Darkness," is
-Ragus darkness malicious darkness, what darkness, dimensional darkness vision darkness,
-Classy darkness, visceral darkness, senseless disillusification, prophecy,
-Dandrued Party, dug. Complete demise came.
-
-[APZ 104.2] (#apz104 .2) {#apz104 .2 .ref .apz} "Buddha" is some of those who
-He is. (17-2) 1 Should be applied from the place of 'Buddha') Promised
-imposition. Samanthakkhu tells the Almighty. (Mahaniddesi (14-7) 4 'Buddha
-Eye' should be applied from where to go.) Therefore, the name of Samantha Chakkhu.
-
-[APZ 104.3] (#apz104 .3) {#apz104 .3.ref .apz} "All that went to the corner of the locker
-One of the logs is the "Bavavaloya". Two Lorks Bavaloya
-The world of tradition is also the world. The resource world is also the world of adversity. Locaust.
-
-Vedanathi. There are four locals. Four food. Loko soil is decapitating. Locastion.
-Spiritual Institutions. Locasoti saturated consciousness. Loka
-Eight. Ashtaloka Dharmayoi is a nine locals. Noththawasayoi Loka Decade. Dealer Institutions
-Twelve Lorks. Twelve institutions. Eighteen locals are octaraharaharahua.
-
-[APZ 104.4] (#apz104 .4) {#apz104 .4 .ref .apz} "Went to the End of Location" is
-He went to the corner of the locker. went to extremes. Nibbana
-Gone. He has finished the rain, has the habitual travel
-(In Mahaniddeya (3-7) 6 (ii) should be applied) There is no race death. to him
-There is no revival. Bhavavea is called Bhatiya, which exceeds the Bhatiya. Karmabhaya too
-Replace resuscitation is also the resuscitation.
-
-[APZ 104.5] (#apz104 .5) {#apz104 .5 .ref .apz} "What is the kamma? Bearing
-Edit is the Annejabi edition. Revival of Reconcitation?
-Conscious images are the editors of the signal, the editors of the signal, the reconnects
-Revival, 'exceeded' is the separation.
-
-[APZ 104.6] (#apz104 .6) {#apz104 .6 .ref .apz} "was breathed"
-There are four inhalations. Kamasaiya, Bhawa Zee, Ditsha Zee, Avijsha Zee.
-The Miravo of Bhabavu Buddha was the genitality. Originally, the urinaline was called. Late Sips
-Like a taltree, it was brought back into noupatana. Therefore, Buddha
-Stirle-free.
-
-[APZ 104.7] (#apz104 .7) {#apz104 .7 .ref .apz} "All suffering is unpretentable"
-If suffering is a retracted nation sadness, a jaaraduah, a democracy, a death
-(4-2) 3 should be used. Optics
-Sadness is the mystery, first thought, constipation, constipation to be born, consciousness
-Burned by fire, and therefore Buddhism made all suffering.
-Anahara. All woes were made unpretendous.
-
-[APZ 104.8] (#apz104 .8) {#apz104 .8 .ref .apz} "Brahman Infused Tattoo
-The name was called" is the Vipassassei Whipassei, whose name was called Siri
-Him Sikhi Bhutemaksha Bhutan Kakumoon
-The Trusts are the Conagama Trusts, the Trusts are the Trusts
-A Budduru was called Siriyana. 'Siriya' has the arment'.
-Shakhiyamuni are also those who have the Siri name of Buddha
-Said. Siri has the armont, "Inspirated" is by me that
-Buddha was inspired by the king. Pirupasa was disenchedded. Questions were asked. Reviews
-Readyable. Therefore, the cooking layer said:
-
-[Msdiv 105] (#msdiv105) {#msdiv105 .ref .msdiv} (17-8)
-
-[APZ 105.1] (#apz105 .1) {#apz105 .1 .ref .apz}"Yamsei Bijaya (bird) food
-The 'duodenal' is the bird that closes many nuts except the lost condensate"
-In any case, Bijaya says to the bird, since it is born twice.
-Moukusinda is in the mouth. That fact tells Bijaya. 'No food
-Vand' is a little fruiting, except for the little melting condensation, which has a little fruiting
-Do you come to the great garden, where there are many fruits, and dwell in the
-Do it.
-
-[APZ 105.2] (#apz105 .2) {#apz105 .2 .ref .apz} "Thus to the great waters
-What came like the swan," says' thus' is the preparation of the parable. Shovels
-Watertub Kot' is a Bawari Brahman and his other academics
-When thinking of Buddha, few are like melting. Lacers are like water.
-A little stream of Brahmina has melted beyond the melting of the stream.
-Successful Undoubted, Disaptipuggalawu, Devathidevu
-To Buddha, the decimitous Buddha, the male Sinhala, the male Nagana, the purisajal
-arrived.
-
-[APZ 105.3] (#apz105 .3) {#apz105 .3 .ref .apz} If Yamsei Swan Manasa
-The lake will come to the place where there is a great hydromassage of the lake, the great reference, etc.
-And the constant presence of unshakable brahmina, which has unshakable traits
-have a wise, open eyes, who have reflekated. have four decomposition,
-The Emancipated, Mathu, Gampahara, Underestimated, Many Ruwan, Ocean
-Unequal, unequal, unequal and unequal properties
-arrived in Buddhadunu. As for rocks, as well as gurulam to birds,
-The Lord as the lion to the beasts, as the birth to the souls.
-The jinan came to GodYi. Thus I was a little watershed
-I came like the swan who came into the water, so the strained stratification of God
-said.
-
-[Msdiv 106] (#msdiv106) {#msdiv106 .ref .msdiv} (17-9)
-
-[APZ 106.1] (#apz106 .1) {#apz106 .1 .ref .apz} "Someone says before me
-Whoever is a Bawari Brahman, and some other lecturers
-They have their own view, their own will, their appetites, their cult, their own
-The study, its own option, expressed. LAH, Panned, EEC,
-Divide, opened, prodded.
-
-[APZ 106.2] (#apz106 .2) {#apz106 .2 .ref .apz} "Before Goumma" is Goumma
-First of all, from the plant. Goumama is from the Buddha plant, Jinasasana,
-God from the stantala plant, and from the flower of Arahantha.
-
-[APZ 106.3] (#apz106 .3) {#apz106 .3.ref .apz} "All things that are here
-Generations who know in the news that this is how to create arguments"
-Due to the manner in which the arguments taken in parts come as a result of the
-The view from the insulation is by penetration. The third is not aware of the briquetted. to himself
-The doctrine was not said.
-
-[APZ 106.4] (#apz106 .4) {#apz106 .4 .ref .apz} "It all makes argument"
-What makes it all argument. Will cause dissent. have concepts
-Will be made. Kama will cause dissent. The business will cause dissent.
-The joke will cause dissent. Constant Decoding States, Pollinity
-Reduced Compulsion, wreaks. Cheap Care Thank You
-Wast, and the cheapness of care will be overlooked. Separated from reproach
-Compulsion is wreathed, So said the pierful strations:
-
-[Msdiv 107] (#msdiv107) {#msdiv107 .ref .msdiv} (17-10)
-
-[APZ 107.1] (#apz107 .1) {#apz107 .1 .ref .apz} "Lonely Done Darkness
-"There was" who was single because the spheres were pacific
-Said. There is no second one. Lonely since the cravings were discarded. Monthentha Weetharaga
-Because lonely. Singled because of the monastery. Since the monastery is Vetamoha
-Singled. Singles are single, because they are free. Going to the monagonal road
-Singled. The same returnees came to the compassion, but they were single.
-
-[APZ 107.2] (#apz107 .2) {#apz107 .2 .ref .apz} "How to Spend
-Is it single by desensities?" He was young and had a scarlet hair
-The voice laments with the tearfulness of the young age of the young.
-All household peeling without the consent of the alleged parent and relatives
-Ambuluru Pistallide Cousins Pistallide, Mithramatha Pistallide
-The palate of the plant called Anagariya, where the beard was cut off and scavenged.
-Has not come into being and behaves alone and holds postures,
-Controls, Depends, and thus the congregations are lonely.
-
-[APZ 107.3] (#apz107 .3) {#apz107 .3 .ref .apz} "How to Spend
-Uniquely single?" He who was single was thus despended
-People who have little sounds, are separated from the people who have little husha
-Secret activities serve brigades who are worthy of rest. Him
-Moving alone. Stands alone, lives alone. To give the village alone
-behave. Go on alone. Return alone. Sit at work in secret alone. Alone
-Walkway Itaganii, behaves alone and dwells. Holds postures. Control
-makes. Depend. MesseThe people of the farm were uniquely single.
-
-[APZ 107.4] (#apz107 .4) {#apz107 .4 .ref .apz} "How to Guest
-Is it lonely in the sense of dispel cravings?" He was thus singled
-The second one was lost because she was a girl who had been impoverished spirit
-Close with a Boruak at Neranjaranadetiya with the Sena
-Namuchi, only a marah who was the name of Bandu who had been driven by the craving network
-Wizathika, disposed of cravings, and came to complete demise
+[APZ 144.5] (#apz144 .5) {#apz144 .5 .ref .apz} What is the Emgama raid? HERE
+Four Sathipatanaya (Receiving)
+Four Leaders: Paghachendirio Pantalayo, Sapthabothangayo, Aryan
+Ashtanginal Road Four Aryan Roads, Four Sirthara Pawala Four Rehabilitation
+He understood the meaning of Shat vows. Doctrine is raided.
+Nirukism is understood as the meaning of Wei. Doctrine
+Knowing the doctrine was raided. Nirritability was known when the recline was
+Fence passes. This three-wise approach has been made. A soil
+The Buddha came from this reparation and reparation
+BirthedJustification will be made. Therefore, the Buddha is in charge of that soil
 Said.
 
-[APZ 107.5] (#apz107 .5) {#apz107 .5 .ref .apz} "Cravings Second
-Man hovers in this long conundrance, and from this spirit to the other soul
-Coming does not exceed the cessation."
+[APZ 144.6] (#apz144 .6) {#apz144 .6 .ref .apz} "Does anyone have the terminal
+Reviews of questions or not hyperthermia, what do you understand, know the meanings
+Doubt" means knowing self-self-self-self-knowing and knowing the altruism and knowing the meaning of this world
+By knowing the purpose of knowing the meaning of the world and making a decision
+Ready. Will dispel doubt. is the disposer and the dismantling. Complete
+To fade away. So the Buddha prophesed on that soil.
 
-"The cravings thus cause suffering, and the despised cravings have no hardness
-The monk in remembrance will behave" thus the craving of the cravings
-Singly in the sense.
+[Msdiv 145] (#msdiv145) {#msdiv145 .ref .msdiv} (18-25)
 
-[APZ 107.6] (#apz107 .6) {#apz107 .6 .ref .apz} "How to Spend
-Is it single because of the monastic street?" Since lust is a favorite, monaththa
-Wetharaganai was single. Yakantha Vetadoshanui was singled, because he had impoverished malice.
-Ekantha Vetamohanui was single, because the brains were made. Claysayan Conveyor
-Because in that way, the girl is not lonely.
+[APZ 145.1] (#apz145 .1) {#apz145 .1 .ref .apz} "Game also in the game
+There are two games, 'if' game 'in the place of the room. Physiological Tact
+The game is also. (The Great Sleepness (14-12) 6 is the tact game
+Should be used in place.)) 'Rathy' is this other name to do, 'Kama luxury'
+This was dispatched by the chapters. 'Mahny, these rooms are beside them. A
+Which soil is? EYE Know (ii) Preferential image of the ISHTED woman
+(iii) Figuines and the eatery (here (ii)
+Should be used.) Noises and nose should be used here (ii).)
+Knowing odors and tastes (should be used here (ii))
+((ii)) If these are Mahaniyi, Panthakama Gunners
+They are. This is due to the fact that Mahanaya has been born a somnasak.
+Kama says luxury. Location is the name of human locality.
 
-[APZ 107.7] (#apz107 .7) {#apz107 .7 .ref .apz} "How to Spend
-Got to the monotonous road, single?" (ii) The road is the four
-Satipatzers say. A four year to the chiefs, the pangchendrians,
-The Aryan tells the octagonal road, to the septic, to the septic. 'Nationality
-The Buddha, who has seen the imaginable, knows the way. Pre One
-By the way they crossed the sassara. Climb now, climb raiseddoer. Thus
-He was single, that the spheters went on the road of monotonous.
-
-[APZ 107.8] (#apz107 .8) {#apz107 .8 .ref .apz} "How to Guest
-Is it a single, if a refracture came to the compassion?" Bodhi Four
-Tells the people of the ways. Prophecy, flagship, archaic
-Sambojdhi, Wimingana, Exhibit is the view. Individuals
-He had found all the editors out of that body. All
-The editors were figuring out the grievance. All doctrines have been figuring incarnate.
-There is a doctrine that is caused by some reasons to refine it all
-Determined to maintain. Figuring out the riser should be seen
-The prophecial work had found it all with bodhi consciousness, and complained,
-Sahold, prodused. He thus revitated himself
-A resource came to the compassion, and was single.
-
-[APZ 107.9] (#apz107 .9) {#apz107 .9 .ref .apz} "Darkness" is
-Bags of Ragandhakara, Dhishandikara, Mohanadhakara, Optics
-Darkness, Clayshness, Visible Darkness, Blessness of Eyes, Unknowing
-To do, reproach the prophecy, do not cause Nibbana, lose the thing.
-Dirty was fertilized. Dehenakalaseem. 'Hid' is a rock of the spheres
-He was working in the Chateplace.
-
-[APZ 107.10] (#apz107 .10) {#apz107 .10 .ref .apz} "Him, Aloka
-A man." is Rashy, Pledged, Pledged, Pledged
-Intelligent, wise, discreet. A 'light light' is a light-maker
-A heathen is a lamp maker.
-
-[APZ 107.11] (#apz107 .11) {#apz107 .11 .ref .apz} "Great Pledge" is a Higher
-CommandmentsOccurs. Pagkaha, Pagkaha, Pagkaha, the Prophecy is emphatic. Search
-Abundant, underneath is abundant. Bridal redemption is abundant.
-Propeller deformation. It is characterized. It is abundant. It is honorable,
-The inclination to it is heavy upon it, and its tilt. It is overstated. 'Bauriyi'
-The earth tells the earth to be of equal prognoy.
-
-[APZ 107.12] (#apz107 .12) {#apz107 .12 .ref .apz} tells the prophecy "Medha".
-Any signal should be applied (3—1 (3) of the Great Decree.) Trusts
-This prophecy was born at the end of the day. Therefore, Buduradhathama
-The great pledges were made, and therefore said the stratified strations:
-
-[Msdiv 108] (#msdiv108) {#msdiv108 .ref .msdiv} (17-11)
-
-[APZ 108.1] (#apz108 .1) {#apz108 .1 .ref .apz} "Whoever hath given me doctrine
-Do you?" Is not an academician who has been figuring out with a certain degree of intuition
-The Truths of the Three Truths of the Doctrines that they had not been figuring out before
-Said. Then came the Almighty. Preaching doctrine came to fruity
-Done. Doctrine is the beginning good, the middle good, the late good defined genitals
-All with pure Brahmachikuya i.e. four weeks (17-10) 7 (ii)
-Should be applied.) Aryan Octanginal Road, Nibbana Nibbana Gamini Reaction
-Said. Dezzana hath made. Panted, laid, opened, divided, protruded
-Seer, Yu.
-
-[APZ 108.2] (#apz108 .2) {#apz108 .2 .ref .apz} "Sharushtika Alphabetic" is
-By the discreet who deserve to say that the most rewarding is untimely and forceful.
-Whoever is an Aryan octarian, who is next to the next one.
-The road will come to the plaque after that roadIt is, suffers. It is reaped. Here
-Shandrushtikana Alphaliku Yamseh people are not found among their wealth
-Hopefully, this doctrine is not. Whoever is the Aryan Octonal Way in this world
-More and more then the line will be gradient. It suffers. Not parotized. Alphabetic
-The cravings of 'craving' are the images, the smell of sounds, the taste, the touch
-Dhamma is craving. 'Terracida' is a ragtua, malicious decay, mohakera,
-Dynamics, Genesis Decay, Dawathy, Conservation, Discount.
-
-[APZ 108.3] (#apz108 .3) {#apz108 .3 .ref .apz} The mass of "Etitid",
-Saws and Ethi (trickle), Ethi provoking Ethi,
-Exclusion of ETHI is an impeccable Nibbana. "There is no parable anywhere for a while."
-'Someone 'means Nibbana. No parable is something to equate
-No 'something' is any place in education or
-There is no parable of the exteriorist or academic exterior—or home. Hence
-Then said the Lord of the stratified strations:
-
-[Msdiv 109] (#msdiv109) {#msdiv109 .ref .msdiv} (17-12)
-
-[APZ 109.1] (#apz109 .1) {#apz109 .1 .ref .apz} "FREE, KIT?
-Will he close apart from him?" What is what separates from Buddha?
-Will get out? "A moment" is a moment at least a moment
-Ready. 'Pingiya' is from Gauthawana Usagnana Aththaththa is the 'Conscious Flag
-The cone of the cone, the prophecy from the Lord, and the search is abundant
-From Aththa, from the submissive Aththa, from the Thutha, it is in character
-From the Aththa, it is abundant, and from the Aththa, it is abiding, and it is bent to it
-From him, from him who is slightly burdened to it, is said.
-
-[APZ 109.2] (#apz109 .2) {#apz109 .2 .ref .apz} says "Georiai" to the earth.
-'This is relay' tells the promontory. Applied to any handle in Adda, (Mahanidadis (3-1) 3
-Must.) The prophets made this prophecy, arrived,
-Therefore Buddha himself has good pledges. Hence Fillings
-The stratists said:
-
-[Msdiv 110] (#msdiv110) {#msdiv110 .ref .msdiv} (17-13)
-
-[APZ 110.1] (#apz110 .1) {#apz110 .1 .ref .apz} "I am separate from Him
-No." is that I am not apart from the Buddha. Do not leave.
-
-[APZ 110.2] (#apz110 .2) {#apz110 .2 .ref .apz} "Brahman is a moment '
-The moment is the immediate moment. 'Gutamana Uthagnana Aththagan' is the flag of the prophecy
-And the prophecy, and the prophecy, and the prophecy,
-Reach from Aththa. 'Whoever hath given me doctrine, 'is some of those profiteers
-(Should be applied in Mahaniddeis (7-2) 1.)
-
-[Msdiv 111] (#msdiv111) {#msdiv111 .ref .msdiv} [Msdiv
-112] (#msdiv112) {#msdiv112 .ref .msdiv} [Msdiv 113] (#msdiv113) {#msdiv113
-.ref .msdiv} (17-14)
-
-[APZ 113.1] (#apz113 .1) {#apz113 .1 .ref .apz} "I see the eye" is
-Whether a man with his eyes sees images of Eliya, whether he sees or sees the images of his eyes
-Do, in the epidermis, I will see in the heart of the Buddha,
-I will look and check.
-
-[APZ 113.2] (#apz113 .2) {#apz113 .2 .ref .apz} "Brahman, in his heart
-Or Eye or Night Days" is the Buddhist Smothatia, Night Solves and Buddhist Smethia
-Wade.
-
-[APZ 113.3] (#apz113 .3) {#apz113 .3.ref .apz} "clawing" is kaine or
-Word, Word or Bright, Mind or Bright, Nickness Policy
-or curt, care or care from the doctrine policyDoing,
-Done, multidimensional, does not separate the day at night.
-
-[APZ 113.4] (#apz113 .4) {#apz113 .4 .ref .apz} "I think it's not separating." is
-I know that Buddha shall be waved with satiety. Hence Fillings
-The stratists said:
-
-[Msdiv 114] (#msdiv114) {#msdiv114 .ref .msdiv} (17-15)
-
-[APZ 114.1] (#apz114 .1) {#apz114 .1 .ref .apz} "Loss, Pride, Mind
-"Smothetiya" is a result of the congregations.
-Ocappancreas. That is, that is, that is, that is, that is, that is, that is, that is, that is, that is, that is, and that is, the
-The 'Pride' is a certain Pride, Promotions, because of the Trustees,
-Nice, a wrapping of the heart is what it is. 'Mind 'is a certain set of lovers
-Thick is fantasy, manasa, hythia pandara, bridal, manandriya, consciousness,
-Conscious, that is what causes something. Smothatiya
-Arabaya is a certain mind, a memorial.
-
-[APZ 114.2] (#apz114 .2) {#apz114 .2 .ref .apz} "My Confused,
-Mind, mind, and not leave the Goumest plant" is from the Goumest Plant,
-From Buddhasasasa, from the Tharatha, from God,
-Do not leave Arahanthasana, but go.
-
-[APZ 114.3] (#apz114 .3) {#apz114 .3.ref .apz} "Some of the great news
-Direction" refers to the previous length or to the west, or to the south or north,
-Traveling. Forward.
-
-[APZ 114.4] (#apz114 .4) {#apz114 .4 .ref .apz} "Great Pledge" is the Great
-Pledged, Pledged, Pledged, Has Pledged Pledges
-There are nibular pledges.
-
-[APZ 114.5] (#apz114 .5) {#apz114 .5 .ref .apz} tells the earth "Geary". A
-Gentlemen resembling the EarthThe prophecy was made.
-
-[APZ 114.6] (#apz114 .6) {#apz114 .6 .ref .apz} "Some of the great pledges
-It bends in a direction and in that direction" is the Buddha
-Somewhere also bends towards it. It bent, it was burdened by its alley
-There is a predominant one. So said the pierful strations:
-
-[Msdiv 115] (#msdiv115) {#msdiv115 .ref .msdiv} (17-16)
-
-[APZ 115.1] (#apz115 .1) {#apz115 .1 .ref .apz} "Aged with weakened bodies
-My" is the last age, which went into the scrupulous, scrupulous.
-"Few strength is true of weak bodies."
-
-[APZ 115.2] (#apz115 .2) {#apz115 .2 .ref .apz} "So the body does not go there"
-Is the Buddha somewhere, does not go there, does not move, does not move forward, does not go.
-Thinking is from the journey of wisdom, by the way of consciousness, by the way of wisdom.
-Walk, move forward.
-
-[APZ 115.3] (#apz115 .3) {#apz115 .3 .ref .apz} "Brahman, My heart is there
-The term" is the 'heart' of a particular thought in Adda (Mahanidadesa (16-13) 4
-Should be applied from place.) In its term 'is the mind of the Buddhist in a certain place
-Its application is available. So said the pierful strations:
-
-[Msdiv 116] (#msdiv116) {#msdiv116 .ref .msdiv} (17-17)
-
-[APZ 116.1] (#apz116 .1) {#apz116 .1 .ref .apz} "Example of Madi" is in Kama Madi
-In the fats, in the form of fats, in the form of fats, for example.
-
-[APZ 116.2] (#apz116 .2) {#apz116 .2 .ref .apz} "grating" is a craving
-By looking grating, grating is grating, grating,
-Grating by resorting, grating by rewarding, by looking for visualness
-grating, grating with lust, corrupt with maliceSay, blunting
-Mulalawa grating, grating by dimension and dispersed by inflation,
-By birth, grating with sadness, grating in distress
-Grating is grating, grating by business, woe domnas
-grating with synapses, grating with bad sadness, grating with beasts,
-grated with a preposterous sadness. grating with human sadness. Getting down the Gades
-Getting up from the pregnancy with a grief that has arisen from the pregnancy with an early sadness
-Souphopakram with a sadness caused by the Upadhi Prison
-From the direction of sadness, the misery is grated with sadness.
-Gone in the direction is to come from a Shanthraw, from a doctrine
-By means of a way to a doctrine, from a view to a view
-went on a road. '
-
-[APZ 116.3] (#apz116 .3) {#apz116 .3 .ref .apz} "I saw Buddha soon."
-After this, the term is the term 'to pass the letters' letter letter letter
-The purpose is to do. 'Seeing, 'means seeing.
-
-[APZ 116.4] (#apz116 .4) {#apz116 .4 .ref .apz} "Buddha" is some of those who are
-(17-2) 1 Buddha should be applied from where it goes.)
-
-[APZ 116.5] (#apz116 .5) {#apz116 .5 .ref .apz} "Ogya crossed" is the bugger
-He crossed the Komoghe. Bhavodiya crossed. Avizhoy crossed. All
-The constipation was crossed. Exceeded. Separate, and he finished the rain.
-(In Mahaniddeya (3-7) 6 (ii)) He has no national death, no revival
-No. 'Inhalation Rhithawuwa 'is the Carmai, Bavara Visual,
-Inscience is. A Miravo Bhagavha Buddha, originally
-The citation was made like a whale treeSitemas. Complete fading
-was. Repeated into Nouvera. Therefore, if the load is too unscathed
-Was it. Ready. So said the pierful strations:
-
-[Msdiv 117] (#msdiv117) {#msdiv117 .ref .msdiv} (17-18)
-
-[APZ 117.1] (#apz117 .1) {#apz117 .1 .ref .apz} "Yamsei Wakali Terun
-God" is (ii) the embodiment of the embodiment of the embodiment
-A complainant of the Lord of the Sirath, (iii)
-Should be applied here (ii)) Yamsee Alavigumu
-Stratily (here (ii) should be applied.) You and the epidermis,
-All editors are transient. Confident Confident, All Editors
-Woe is faithfully, and all doctrines are instilled with confidence
-What is a doctrine born for some reason, as the wisdom is the money, and all that
-Constant in order to maintain the incarnate, and you in the epidermis
-From the money of the person, you and the leavers belong to the leatheretess, the leavers belong to the leavers
-The thing or the area is the clayos, the masses, the editors, and the saws, 'that is.'
-Aruthana tells Nibbana.
-
-[APZ 117.2] (#apz117 .2) {#apz117 .2 .ref .apz} All A Nibbana
-The editors settled that all the earmarks were compacted by the name of the crazvana tuyamveda,
-Viragama Namveda, Nirodha, Nirwana 'from the area belonging to the leatheya
-Send' is from the area belonging to the leavers, Ethera South, Ethera
-Reasonably. Therefore, God hath been disgraced.
-
-[Msdiv 118] (#msdiv118) {#msdiv118 .ref .msdiv} (17-19)
-
-[APZ 118.1] (#apz118 .1) {#apz118 .1 .ref .apz} "HERE" is
-(ii) I am more confident. Work moreBeen sticky. All
-The editors are more and more sticky. The more Grow, the more
-I believe too. More greased sticky. (ii) shall be applied) all
-Dharmayo should be applied here (ii) A
-There is a doctrine born by reason, and all it is maintained in order to be incarnate
-I believe more and less, I think more and more.
-
-[APZ 118.2] (#apz118 .2) {#apz118 .2 .ref .apz} "Heard the Word of Munine"
-What is Muni tells the wisdom (applied in the Great Nidness (8) 8 (10)
-Must.) Muni is the same if the crazvana network is exceeded. Munine's Word
-As' is your word, congruent, heard and learned, considered.
-
-[APZ 118.3] (#apz118 .3) {#apz118 .3 .ref .apz} "Buddhism who has made the veil"
-If the veil is a veil, then the veil is a soil. Cravings, optics, clayey, visceral. Science,
-Ready. The garments of the Bhabawatta Buddha went away. Destructed. Nasunaha
-Provoted, originally Sinaha, Shanthi. They were born. Knowness-name
-Fire burnt out. Therefore, the bugurdha has loathed gloves.
-
-[APZ 118.4] (#apz118 .4) {#apz118 .4 .ref .apz} "Buddha" is some of those
-(17-8) (i) should be applied from where 'Buddha') Rehioned
-imposition. It is these people.
-
-[APZ 118.5] (#apz118 .5) {#apz118 .5 .ref .apz} "Hull has no raids"
-'Hull Nathta' is Ragahula, Bheshahula, Moha Krodhahula Upanahula,
-This Hull Bhavath Buddhism, which collects all the Akushal
-Practionyaha, originally Uduunaladaha, was called an agasypuan palm tree, which would be demise
-Hence, again returned into the unborn. Therefore, if Buddhadatha continues.
-raidsThere are three understandings. Order, Question and Improvement,
+[APZ 145.2] (#apz145 .2) {#apz145 .2 .ref .apz} "Expectations without decorating
+Without" is the game of the locust, the room, the supply of kama, without decoratingHopelessly and deviated, compassed, complete demise
 Ready.
 
-[APZ 118.6] (#apz118 .6) {#apz118 .6 .ref .apz} "Extension Readings, Which?"
-Here some person has the formulas, the house, the forgification stanza from the deformation,
-These doctrines are the Udanaya, the rest, the nation, the Abbhathamma, the Wedalaya.
-He breathes the terminal and gets the understanding. This is the understanding of the terminals.
+[APZ 145.3] (#apz145 .3) {#apz145 .3.ref .apz} "Separated by decorations
+There are two decorations called "Truthful". (Great Buddhism
+'Decorative names' should be used from where.) These are the decorations of the swings.
+"Truthful" is the Buddha on that soil has tales of creeds that tell the Truth
+There are believable stories. Separated from the decorations
+Unrestricted heart dwells. Therefore the prophesy of the Paebuda
+did.
 
-[APZ 118.7] (#apz118 .7) {#apz118 .7 .ref .apz} "Question Readings
-Which?" Here some person is in sense, in business, and in characteristic,
-In the case, in the host, there will be a question. Asking him questions
-Because of the railing. These question eye-ups are understandable.
+[Msdiv 146] (#msdiv146) {#msdiv146 .ref .msdiv} (18-26)
 
-[APZ 118.8] (#apz118 .8) {#apz118 .8 .ref .apz} "What is the Emgama Reply?"
-Some people here are fenced by four sathipatshana. Four Award Major
-Fence passes. Four Directiyapatha, Pagyachendiriya, Padahabala, Sapthabothanga, Aryan
-The octagonal road, railing. Four Aryamatha, Four, Four
-References, Shat Wise, Ababadhu. He knows the meaning.
-Doctrine is in the knownar. Niruktiya is in the know. Meaning Teeth Readles Meaning Doctrine
-Teeth understand the doctrine. Nervousness is realized when it is known. This
-This is the wisdom of the three people of the people who are ready for the three people
-References are attached to the tab. Therefore, Buddhathama
-Or in the news. Whether someone has a terminal, a paralysis
-or not, no hyperthermia? What does he understand? Ready. Hence Fillings
-The stratists said:
-
-[Msdiv 119] (#msdiv119) {#msdiv119 .ref .msdiv} (17-20)
-
-[APZ 119.1] (#apz119 .1) {#apz119 .1 .ref .apz} "High God Doing Doctrine
-Know" God is God, Genesis, Laundering,
-God is three part. (5-3) (i) to be applied. Conventions
-Knowing God is superior to God, knowing Genesis goes to God and superior God,
-Know that sanctification is God superior to God, and have decided to make a decision
+[APZ 146.1] (#apz146 .1) {#apz146 .1 .ref .apz} "Son, Wife, Father,
+Four sons, "mother," were four sons. The son born of himself.
+In the field, the born son, the upended son. Arm the hand. 'Edge'
+is what tells the wife, 'father' is some raised father, 'mother' is the born mother
 Ready.
 
-[APZ 119.2] (#apz119 .2) {#apz119 .2 .ref .apz} "oneself and mutual" is oneself
-The mutual also know the higher God's Dhamma. Know. Figurated. Himself
-Which Dhamma is higher than God? (ii) Resource, Replication
-Reverse, Non-Change Reverse, Rhythmia Reverse, Rain Complete
-To have a knit door, feeling around the grooves, drowsiness
-Doing, Dreaming, Four Sitematas Head, Pagachendiriya,
-Sapthaba Sapthabothanga Aryan Octanga Way is a High God
-The Dharma is Saw.
+[APZ 146.2] (#apz146 .2) {#apz146 .2 .ref .apz} "Wealth and Grints and Torture Bonds"
+are Stirling Swarms, Pearl Gems, Vedurian Beads, Gold Silver, Silvery, Masiri
+Stone, yai, 'ceilings' are 'pubbanna' and 'incarnates'. Hal Names Pubbek
+Efforts. If to kill, escape, etc. The four relatives named 'Naio' are part. Cousins
+Bandhu, Tribe Bandu, Mithra Bandhu, Crafts Bandu.
 
-[APZ 119.3] (#apz119 .3) {#apz119 .3.ref .apz} is superior to the God of the other
-What is the paving Dhamma? Resource Reverse (17-19) 2 (ii) shall be applied.) Aryan
-The octagonal path is the doctrine of the fact that these are superior to the god of the other
-Saw. Thus, the men themselves, and the excessive God of the other
-Know the doctrines, looked at, figured out. A Question End
-Dosage. The prophets make the end of the pharaic question. Separate
-By showing. He is a wagering leader.
+[APZ 146.3] (#apz146 .3) {#apz146 .3.ref .apz} "Komayo" Komayo
+If the rooms are two-part, that is, object rooms, and clayroom rooms,
+Ready. ((1-1) (ii) 2—3 should be applied in the Great Nidadesi. 1523—1524 pages)
+Rooms are drenched, especially knowing the rooms of the room.
+Disposed of. Complete AhaRepeat the water. Some saliva by means of Sawan
+And if the girl does not return, but does not return. Sukhidagami
+Any Kelles by Road, Any Kelles by Anagami
+If some of the other things were inherent by the way of the innate and the earth?
+absent. Do not return. So the Buddha prophesed on that soil.
 
-[APZ 119.4] (#apz119 .4) {#apz119 .4 .ref .apz} Wagons Leader
-Cross by desert, do chore cross desert, and have evil animals
-Crossing by desert, rareCross the desert, lose water
-Cross the desert, cross the land of Nabhiya, and the spouses
-He was a wagons leader. Creatures cross the desert. From the nation desert,
-Jara, Deathes, Deaths, Grief, Domanasa, Synapasa Deserts
-traverse. Ragh crosses from the desert with malice, moha, vision, clayey,
-Risky, cross from the desert. Raga, Maawanen, Malesha
-The Maha is crossed by the Maha Maha Maha Maha. visuous
-The name crosses from the High Lounges. Nibbana is the territory of Nibbana.
-This is the one who has succeedeth.
+[Msdiv 147] (#msdiv147) {#msdiv147 .ref .msdiv} (18-27)
 
-[APZ 119.5] (#apz119 .5) {#apz119 .5 .ref .apz}
-Leader, Pamunavunasa, Panawasa, Brigade, and the Boats of this Successful
-It is possible to do so.
+[APZ 147.1] (#apz147 .1) {#apz147 .1 .ref .apz} "This is an allusion, little comfort
+Segmented." The 'clapping' is or the billage is or the armisse is or this is the nakama
+The virtues are named. Mahaniyi, this is due to the virtues of the salient, Somnasa
+Birdiya, this says Kama luxury. This is a little, this is a titer, and this is supplied
+Lameer, this supply is low, this is sad, "This is an allusion here
+Few" The most suffering here are the rooms by the congregations
+Alpahavah ((1-3) 2 (ii) to be applied in Great Niddezah, pages 1527—1528)
 
-[APZ 119.6] (#apz119 .6) {#apz119 .6 .ref .apz} "Ship Trusts
-The unborn way is born. Unread road, untold road
-saith, knower the way, and adept in the way. Now the Broadcers By Way
-Gayahu Weseth.
+[APZ 147.2] (#apz147 .2) {#apz147 .2 .ref .apz} "This is the stone or the sinking
+Discreet Know" is "swallowing" or billard or armisse or swallowing or bonding or this
+If the word 'spi' (this is) is the verses joint, the verses match
+Filling the verses, skin the letters easy to say 'discreet'
+It is the pendulent, the prophesy, the intelligent, the conscious, the conscious. This is
+Knowing 'swallowing' means the discreet swallowing, knowing the billier, knowing the impulse
+Knowing libation, knowing bondage, knowing the shieldness, and decided to be skinned
+And that's why. So the Buddha prophesed on that soil.
 
-[APZ 119.7] (#apz119 .7) {#apz119 .7 .ref .apz} "If doubt be known" is
-Even if it comes to doubt. Ragadi come with Hull and comment on Hull
-With two, come and lose it. Come in doubt and go unsuspecting.
-Ragahathahuwe, who came with raga. Come with malice and not malicious
-WEth. Come with him, and do not have the brains. Come with straight and without straighting
-Whoa. Therefore said the stratified strations.
+[Msdiv 148] (#msdiv148) {#msdiv148 .ref .msdiv} (18-28)
 
-[Msdiv 120] (#msdiv120) {#msdiv120 .ref .msdiv} (17-21)
+[APZ 148.1] (#apz148 .1) {#apz148 .1 .ref .apz}"Combinations (obligations) are impoverished"
+is a decade of combinations. Kama Rage Combination, Reverse Combination, Dimensional Combination,
+Optic combination, inverted parotid combination, inverted parotid combination, Bavaragan
+Combination, jealous combination, mathsar combination, eloquent combination.
+'Combinations are impoverished, disposed of and compelled by combinations.
+Complete demise.
 
-[APZ 120.1] (#apz120 .1) {#apz120 .1 .ref .apz} "Will not change permanently
-Nibbana" is 'not changed'tells Nibbana. All of a certain
-A comparison of editors has been a pause that dispelled the craving
-Nibbana. If it does not differ from lust. Do not change from malice. braintance
-By thinking that it has great and skin properties, with the spread of hate,
-By jealousy, by deception, by jealousy, by congestion
-From all the glamour of all the glamour, the most impeccably
-From all the burning of all the stains, from all the collections
-Nibbana does not change, the statue is the firmware.
+[APZ 148.2] (#apz148 .2) {#apz148 .2 .ref .apz} "Fish net in Saliva
+As if broken," the grate says the thread to the net. 'Saliila' Waterproof
+says. 'Ambuthuri 'tells the fish. Break the net, dwelt and dwell.
+Holds, exists, controls, relies on postures. The epidermis itself craving,
+The two nets of the sight net are laid out (Motherhood is the "grate")
+(2-6) 1 (ii) (iii) should be applied in Niddeesah.) The cravings of the Buddha on that soil
+Network is Conscious, Optics Network is Consolated, Tershana Network is Conscious
+Since the optical network is conjugated, the Buddha in the image is not in the sound
+Noallying, odor, seen, heard mud (nose, tongue, body)
+Inconspicuously, inconspicuously, dismantled, separated from the doctrines of knowledge
+The untreated heart dwells.
 
-[APZ 120.2] (#apz120 .2) {#apz120 .2 .ref .apz} "Does not have a parable?" Going
-'Yamakata' refers to Nibbana. 'No parable 'means no equalment
-Where is nowhere in education or externally.
+[APZ 148.3] (#apz148 .3) {#apz148 .3.ref .apz} "Fire to the place of burning
+As if not to return" is the fire does not burn grass, firewood, etc.
+And also some of the things from the Sawan of Buddha on that soil,
+Kelles do not return again by means of sakhigami, by means of anagami
+Even if some of the elves by the way of Earhath, those kelas do not return. Back
+Not come, therefore proclaimed the Paebuda.
 
-[APZ 120.3] (#apz120 .3) {#apz120 .3.ref .apz} "Go Home
-No doubt" is the prescribed word, 'in that way'. The unmistakable word means
-Two is the word without. is the real word. The debugging word. The unopposed word.
-I will come, 'I will go from the woman'. I will make the renews. Ready.
-'There is no doubt, 'here' is in Nibbana. Doubt is a query
-There are no two comments in the form of a nonsense. Not scientific, not received. Continction,
-Originally, there was a salient. The plant, the consonant, the desire to be born, the fire called wisdom
-burnt.
+[Msdiv 149] (#msdiv149) {#msdiv149 .ref .msdiv} (18-30)
 
-[APZ 120.4] (#apz120 .4) {#apz120 .4 .ref .apz} "The Redeemed Mist" is
-Nibbana, the marrow of Nibbana, the garment of Nibbana
-Behold me. Therefore said the stratified strations.
+[APZ 149.1] (#apz149 .1) {#apz149 .1 .ref .apz} "The eyes gazed under are feet
+Is there not lolliness, is the eyes that have spread out, (Applied in the Great Niddess (14-8) 1
+Must.) How feet are there, here some person's feet
+(Should be applied in the Great Niddesa (14-11) 2.) occult
+The incarnate has the guarded mind is that the Buddha has been crypt on that soil
+The incarnate does not see the image with the eye. Formings
+Do not take, it is hard to dwell this chakkhundiya uncorruptible by some point
+The Lombiya Domnasa shall go according to him, and to conform it.
+Adidai Chakkkhundiriya. Arrives in Chukkhundiya. craners
+The sound is heard and smelled from the nose and touched the touch of the diarrhea
+The heart does not know the doctrine. Any that does not take shape
+In a matter, this is a medium to dwell inconspicuously (hard lobby)
+The lamar Akushala Dharmaah, Domnasa, will go according to him, and it will be said to be congested.
+Mandiriya, comes to the conglomerate of Manendiya. The guarded mind has
+It is the mind that has been guarded. Bent as Celleri
+This is what is coming is expressed by Hou Maha Mughalan Thurun
+Carded. Dhamma Schemes that are not taken as the name of Anawasutha Pariyah
+will do. I will ask it, and I will say, "Yea"
+Wow," And the bhikkhu said unto him, Hou Maha Mugalan.
 
-Parayanugithigathaniddezno Attabarasamo.
+[APZ 149.2] (#apz149 .2) {#apz149 .2 .ref .apz} "Hello Maha Mugalan Terun
+He stated this. Wow how to wow (Ginawa in Kamasha)
+Wow, the monk of this plant is eyedseen in the image (ii) in the image of the favorite,
+Does the heart of the image of Africa dwell with the unmeditated heart, the slightest
+Whether the sillings are true, the liberation of Chetho and the emancipation of the Promises are not known as:
+(iii)
+Sounds should be heard from the ears, and applied in the favorite sound (here (ii).) Smell from the nose
+Knowing Favorable Smelling (here (ii) shall be applied.) Priis to know the taste of the tongue
+Also in taste ((ii) should be applied here.) Kaine on touch and on the favorite touch
+((ii) shall be applied herein.) In the Favorable doctrines knowing the doctrine with the mind (here
+(ii) Should be applied.) Wow, A monk in eye-view images (iv)
+(v) Applied in the sounds heard by the eaters (iv)
+Must.) In the taste of the tongue (should be applied here (iv)) which the cans endure
+In serpents (should be applied here (iv)) Know with Mind Dharma
+KAMAZA GAMAZA. Eye to that monk who dwelleth:
+The marrige comes. The man will be allowed. (vii)
+Junior should be applied to that monk (here (vi)) From the nose to that monkkkkuwa
+(Should be applied here (vi).) Applied to A Monk (here (vi)
+Must.) Keinda to that monk (here (vi) should be applied.) A monkksikuwa
+Manasinda (Should be applied here (vi).)
 
-Parayanagaggoo Samaththa.
+[APZ 149.3] (#apz149 .3) {#apz149 .3.ref .apz} "Wow, made of Yamseh pipes
+Is there a house or partition made of bamboo is very old,
+A fire hulle, which a man has appointed in advance, and shall come therein, and the fire shall be therein
+It takes up space. Fire receives a purpose, West Donga, North Donga, South
+Male to underneath direction, overheadThe Fire Hulak was appointed
+Whether there come, that fire will take space, fire will have a purpose, O O,
+To the monk who dwells by the epidermis himself (here 2 (vi) shall be applied.)
 
-[AP de Zoysa] {.author} edition.
+[APZ 149.4] (#apz149 .4) {#apz149 .4 .ref .apz} "Wow, images (ii):
+Monk Madaganii, who dwelt, (iii) Monk figures. Sounds (ii)
+Apply) Monk Sounds Nomadic Odors (ii) Apply Monk Odors
+Nomady. Apply flavors (ii)) Monk tastes. Apply touches (ii))
+Monk touches are Nomadically.
 
-Permission to publish was kindly granted by Kumari Jayawardhana.
+[APZ 149.5] (#apz149 .5) {#apz149 .5 .ref .apz} "Mania, Figures (ii) A Monk
+Madie says this (iii) sounds (apply here (ii)) odors (here (ii)
+Apply) Rashes (apply (ii) here) Tactacles (apply here (ii))
+Re-giving, Re-giving, Re-grieving, Re-giving Dharamana
+Nadiyahuvu. Mahaniah, thus he was overheard.
 
-Digital files were kindly supplied by Srisumana Godage of [Godage
-International Publishing] (http://www.godage.com/), who publish a print
-edition of this text.
+[APZ 149.6] (#apz149 .6) {#apz149 .6 .ref .apz} "Wow, how to
+Nawasasuthawu? Wow, see the image with the eye of the monk here and the image is the favorite
+Not unhappy in the image of Africa (ii) mindful of what has come
+Dwellings, emancipation of mort and emancipation of pledges
+Know in practice. Without leaving his lamar Akushala Dharmies anywhere
+Constipation. Wow, this monk says Anawasuthu. (iii) with eye
+(iv) The man does not occupy space. Maryman
+(v) Close monk images are suppressed.
+Rupio says the monk is nomadith, mahaniyi, this monk is the image of this monk. craners
+Noise, odor from the nose, taste from the tongue, kine touch, heart doctrine (Rear
+UseableMuti) Lumeric straightening, Re-giving, Re-giving
+There is no clayey that will give death, and give grievances
+Mahana, thus, is unscrewed. Unknown is born from lust
+Not known by burner, not born by malice, born from brainly
+The Buddha proclaimed on that soil, therefore not known by the burner.
 
-Conversion from PDF was by Janaka of < http://pitaka.lk/ >.
+[Msdiv 150] (#msdiv150) {#msdiv150 .ref .msdiv} (18-31)
 
-The assistance of Amaradasa Liyanagamage, Ven Mettavihari and Maithri
-Panagoda is gratefully admitted.
+[APZ 150.1] (#apz150 .1) {#apz150 .1 .ref .apz} "Lay Points deviated" is
+Leave the layouts, deviate the layouts, remark the niche.
 
-Prepared for SutteCentral by [Penny Jordan] {.editor}.
+[APZ 150.2] (#apz150 .2) {#apz150 .2 .ref .apz} "The overlapping of the leaves
+Like" is that Kovilara, if there are leaves that have arisen shaded,
+And on that soil the Buddha hath fulfilled the bowl. Kashaya
+If the garments are gone, the Buddha is all the house on that soil
+The shield hole is the paliid of the cousin, the shield of friends and friends
+Collecting shields are laid out with hair beards and waved from the whip
+Anagariya has come to have no cleavage or nothing in the plant
+Behave alone. resides, holds postures, exists, controls, relies on,
+So the Buddha prophesed on that soil.
+
+Gogo.

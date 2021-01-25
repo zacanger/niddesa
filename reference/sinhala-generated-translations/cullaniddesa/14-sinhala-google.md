@@ -2,145 +2,214 @@
 - Chula Niddasa
 - Parayanavagganiddeso
 
-# 14. Extortion formula recommendation
+# 17. Udaya Manavaka Sutta Recommendation
 
-[Msdiv 61] (# msdiv61) # msdiv61 .ref .msdiv} (10-1)
+[Msdiv 74] (# msdiv74) # msdiv74 .ref .msdiv} (13-1)
 
-[APZ 61.1] (# apz61.1) # apz61.1 .ref .apz} "in the world"
-Says to Samsara. Advent, travel, time, nature, nature, origin, origin,
-Descent, inhibition, race, filth, death, and the front end of samsara are invisible.
-The last end is not visible either. The animals were located in the middle of the samsara
-Alunahu means galunahu.
+[APZ 74.1] (# apz74.1) # apz74.1 .ref .apz} "Meditation Minority Rajas
+The meditative meanings of "absent" are the meditations of the Blessed One.
+කරණසේක. Meditate from the beginning. Meditate on the secondary.
+Meditate on the Tertiary Meditation. He meditates on the Fourth Meditation. Arguments
+Meditate with critical meditation. With non-judgmental critiques
+Meditation by meditation. Meditate with non-judgmental, non-critical meditation.
+He meditates with joyful meditation. And from unhappy meditation
+Meditation. He also meditates on blissful meditation. Optimistic
+He also meditates through meditation. He also meditates on Zero Meditation. Animistic
+He also meditates through meditation. He also meditates on the non-existent meditation. Worldly
+He also meditates through meditation. He also meditates on worldly meditation. In meditation
+The meaning of the word 'adhesive' is 'if you respect that meaning'. 'Rajasin
+Separated "means lust is king, hatred is king, delusion is king, anger is king.
+Hate is king. All akushala collections are king. That Rajas is the Blessed Supreme Buddha
+His futility has withered roots. When the end was done like a withered whale.
+In complete extinction. When made non-reusable. Therefore
+The Buddha himself has no kings. There are kings who have passed away. He was separated from the king. "Lust
+A king. It is not called Renu. 'Rajasa is another name for lust. (ii) Five
+The Supreme Buddha has removed this kingdom. So the jinn departed
+It is said that there are kings of evil. (iii) Hatred is king. (Where (ii) applies
+Should.) Moha is a king. (Here (ii) should be applied.) Those who are are blessed
+The Lord dwells in the rock temple. "Went to the abyss of misery
+The sage who lived next to the city was afraid of the Trinitarian killer.
+This is how the Blessed One lived. Again
+The Blessed One was there because he had satisfied all the merits. Closed dwellings
+Enough. There are accustomed journeys. (Application (3-7) 6 (ii) of the Ordinance.)
+He has no rebirth. Thus the Blessed Ones That is.
 
-[APZ 61.2] (# apz61.2) # apz61.2 .ref .apz} "How the End of Samsara
-Can't you see? "
+[APZ 74.2] (# apz74.2) # apz74.2 .ref .apz} "unauthorized activities"
+Is the work of the Blessed Buddha, and the futility of what to do first
+Received. The end was made like a dried whale. Completely extinct.
+Was made unproductive again. Therefore, there are activities done by the Buddha himself.
 
-\ (i \) There were so many thousands of nations. There is no point in saying no beyond. Thus
-The anterior end of the samsara is not visible. This number of nations is one billion (ii) Sasara
-Existed. Needless to say, it does not exist beyond that. Thus also the antecedent of samsara
-No end in sight.
+[APZ 74.3] (# apz74.3) # apz74.3 .ref .apz}
+Or to a monk with a broken, lustful body, who has lost his functions?
+It's not .It's not. It's not. It's not. It's not. It's not
+There are four associations. That is, kamasava, bhavasava, dittasava, avijjasava. That's it
+Those associations of the Buddha were futile. Originally dried. A withered whale
+Was done as. Completely extinct. Came back unborn.
+Therefore the Buddha himself is without association.
 
-\ (iii \) Billions of such races (should apply here (ii)) Billions of races
-One lakh (here (ii) should be applied.) This number of years (here (ii) should be applied
-Should be.) So many hundred years (here (ii) should apply.) So many thousand years
-(Here (ii) should be applied.) This is how (ii) is applied for hundreds of thousands of years
-Should be.) Millions of years (here (ii) should be applied
-One hundred (here (ii) should be applied.) Billions of years (here (ii) apply
-Should.) So many trillions of years (here (ii) should apply.) So many kalpas
-Number (here (ii) should be applied.) Hundreds of such kalpas (here (ii) apply
-should be. So many thousand kalpas (here (ii) should be applied, so many hundred thousand kalpas
-(Here (ii) should be applied.) This number of kalpas should be applied (here (ii) should be applied.)
-This number of kalpas is one hundred million (here (ii) should be applied)
-((Ii) should be applied here.)
-This was uttered by. "Mahanaini, there is no end in the world, no end
-Does not appear. The running of ignorant closed beings bound by a combination of desires
-Is navigation. Mahanai, you have suffered for so long. Terrible things
-Suffered. During the calamities, graves were dug in this world
-Worth to disappoint. Deserves to be separated. Deserves to be redeemed. "
-This is how the last end of samsara is not visible
-Nations exist in samsara
+[APZ 74.4] (# apz74.4) {# apz74.4 .ref .apz යනු "goes beyond all religions"
+The Blessed One went abroad knowing all the Dhammas with special wisdom. Well done
+He went abroad knowingly. He was defeated and went abroad. He went beyond meditation.
+He went far beyond realizing it. He has gone far beyond the end. all
+He knew the Dhammas with special knowledge and went abroad. All rights reserved
+Gone. He has gone far beyond all defilement. Four way
+He went beyond meditation. Prohibition went far beyond realization.
+All the endings went far beyond the skin. He is fascinated.
+Parami Prapthaseka. Fascinated by the Aryan rites. Parami Prapthaseka. Aryan
+The enchantment of samadhi. Parami Prapthaseka. Fascinated by Aryan wisdom
+Adaptation. Parami Prapthaseka. He is the epitome of Aryan liberation
+He said. Parami has reached. Went to the extreme. Has come to an end. Went to the corner.
+Came to an end. Went to the terminal. Arrived at the terminal. Finally gone.
+He finally came and went to safety. Came to the rescue. Went to the rescue.
+Came to the rescue. He became Abhaya, he became Abhaya, he became Achyutha
+He has become immortal, has gone to nectar, has come to nectar, has gone to Nibbana.
+Gone. He came to Nibbana. He has a shower after the rain. (Great
+Apply (3-7) (6) (ii) of the ActTui.) He has no rebirth.
 
-\ (iv \) There is no such thing as not going beyond that. There are so many hundred races
-One thousand races, one hundred thousand races (here (iv) should be applied.) Thus
-The last end of the samsara is not visible. In the middle of samsara the animals are sitiahu,
-Alunahu and Pambiyahu.
+[APZ 74.5] (# apz74.5) පිණිස # apz74.5 .ref .apz} "To ask a question
+I came "to question, to inquire
+I came. Again the arrival of the questioners, the questioners,
+Approach, pirupasana, yes. This is how I came to ask questions.
+Again, you have problems. You too have come abroad. me
+Worth to inquire by. It is up to you to decide. These are also questions
+I came to hear. Please tell, whats the story of them big puppys .....
+Preach emancipation, enact, enjoin, enjoin,
+Please share and make it public. Please declare, that is. Of ignorance
+Fracture "means the breaking, dispelling, and soothing of ignorance
+Nibbana is the breaking of ignorance. Therefore the Brahman himself said:
 
-[APZ 61.3] (# apz61.3) {# apz61.3 .ref .apz ගත් The Great Fear
-When is the time of lust, lust, delusion, birth, descent,
-Great fear means fear of race, fear of disease.
+[Msdiv 75] (# msdiv75) # msdiv75 .ref .msdiv} (13-2)
 
-[APZ 61.4] (# apz61.4) {# apz61.4 .ref .apz යනු means "victims of shit death"
-From the filth of those who have suffered the death of filth, of those who have gone by race
-Of the dispersed, of the afflicted, of the unprotected,
-Of the helpless. Lord Nidukana, of the victims of the filthy death
-Please help, preach, keep, open
-Please, please share, please declare. 'Nidukaneni,' is Priya
-The word, the word of honor, is the significant word, "Please help me."
-Help, refuge, nature, recitation, preach, keep,
-Please open, distribute, declare.
+[APZ 75.1] (# apz75.1) # apz75.1 .ref .apz} "The effect of lust"
+The vote is whether there is any vote in the lusts, whether there is lust, lust
+There is bondage, there is lust, there is lust, there is lust
+Have lust, have lust, have lust, have lust,
+Lust, lust yoga, sexual intercourse, and whether there is a suppression of lust.
+"The transcendence of the lusts" means the attainment of Vyapasman, the Nibbana of nectar.
 
-[APZ 61.5] (# apz61.5) # apz61.5 .ref .apz} "You help me
-That is to say, it is so. It's not the other way around. "
-It is annihilated and calmed down, so the Brahman himself said, 'To the point
-Is going. The grief of having a crisis again does not arise. Of lust or lust
-In nature or in image or in form or in consciousness or in unconsciousness
-Neonatal nasopharynx or monotonous or quadruple
-In the Pentateuch or in the rebirth or rebirth or in the crisis or in the state
-Does not arise in samsara or vatta. Will not occur, will be suppressed here
-Will be comforted. ' Therefore the Brahman himself said:
+[APZ 75.2] (# apz75.2) {# apz75.2 .ref .apz ‍ Blessed Morning
+The effects of lust and sadness are both emotional dissatisfaction and emotional distress.
+Unhappiness with the psyche, that is, "sadness" is the same as the lust of the two.
+It is the removal of sorrow, the soothing, the nectar of Nibbana.
 
-[Msdiv 62] (# msdiv62) # msdiv62 .ref .msdiv} (10-2)
+[APZ 75.3] (# apz75.3) {# apz75.3 .ref .apz} "Thin's removal"
+If there is any inappropriateness of the mind, it is a lack of work, such
+The exorcism of the thin, the soothing of the breath, the immortal Nibbana in the cuckoo
+Prevention is also a rash on the hands. The cock on the foot is also a cock. Limbs
+The cuckoo is also a cuckoo. The sense of commitment in commitment, the sense of commitment in dedication
+Feelings of guilt, guilt, guilt
+That, the distortion of the mind, the instability of the mind are two things againBy
+The cock is born. (In the Great Commandment (10-3) 4 should be used.) Hence the Blessed Ones
+The Lord said.
 
-[APZ 62.1] (# apz62.1) # apz62.1 .ref .apz ‍ Blessed Kappa, Sasara
-Help those in the middle with the filthy mortals when the Great Depression strikes
-I say. For those who are in the middle of "before", the "after" is samsara.
-Traffic, time, pace. Bhavabhavaya, Chutiya, Genesis, Breakdown and Degeneration
-The anterior end of the samsara is also invisible. The back end is also invisible. Animals of the Middle Sasara
-Sitiyahu, Pitihyahu Alunahu came. How the anterior end of the samsara
-Invisible (paragraphs 10-1 (2): i-ii-iii should be applied.)
-The end is not visible. How can the back end of the samsara not be seen? (10-1 (2) (iv) applies
-Should.) Thus the posterior end of the samsara is not visible. Thus the anterior end of the samsara
-The back end is also invisible in the middle samsara, situated, attached,
-Come on, Galunahu. 'When the great fear comes,' lust, '
-Bhavoghaya, Dittoghaya, Avijjoghaya, when it arises, when it arises, when it descends.
-Fear of greatness means fear of race, fear of disease, fear of death. "From the shit death
-To the oppressed "means to the filthy, to the filthy to those who go by race (birth)
-Dispersed means those who are sick and helpless.
-"Nidukane, please declare security and preach."
-Please keep it open, please divide it. You help me
-Please comment. It's not the other way around. "
-If it is suppressed, if it is calmed down, if it is lost, then it is a crisis again
-If grief does not arise, it is in the form of lust or lust or image
-In the sense of being or in the sense of being or in the state of unconsciousness or in the sense of being in the new sense
-Monotony or quadrupedal or pentagonal or recurrence
-Genesis or crisis or in nature or in samsara or in Vatta
-If it does not occur, it does not occur
-That is. Therefore the Brahman himself said.
+[Msdiv 76] (# msdiv76) {# msdiv76 .ref .msdiv} (13-3)
 
-[Msdiv 63] (# msdiv63) # msdiv63 .ref .msdiv} (10-3)
+[APZ 76.1] (# apz76.1) {# apz76.1 .ref .apz} "Two optimistic memories
+Upeksha in "Purified" Is there a Upeksha in any Fourth Meditation,
+Consensus, peace of mind, moderation: this is the week of the mind.
+Is a memory or a remembrance due to the neglect of a fourth meditation '
+That's a memory.
 
-[APZ 63.1] (# apz63.1) {# apz63.1 .ref .apz} "
-The "after" of the city is samsara
-The structure and the origin of the race do not appear at the front end of the death cycle. (10-1) 1
-(i-ii-iii-iv) paragraphs should be applied.) Assistance to victims of racial slurs
-I say. The cup is a light, a protection, I say. I preach
-I will keep it open. Therefore, Blessed are those who divide and conquer
-The Lord declared.
+[APZ 76.2] (# apz76.2) # apz76.2 .ref .apz} "From Ignorance and Memory
+Purified "means neglect and memory, purified. Purified.
+Purified, purified, shining, courtyardless, filthy
+That is, they were softened and fit for kamma.
 
-[Msdiv 64] (# msdiv64) {# msdiv64 .ref .msdiv} (10-4)
+[APZ 76.3] (# apz76.3) ෙහි # apz76.3 .ref .apz ෙහි "Dharma argument goes forward"
+Dharma logic refers to the concept of samyak. It's like that. Will be ahead.
+Is preceded. This is how the Dhamma argument came to the fore. Again the doctrine of Dhamma
+Samdy tells the point of view. Someone was in the foreground and the forerunner
+This is how the Dhamma argument came to the fore. Again the prelude to the Four Paths
+Tells Vidarshana. It's in. The front is the forerunner. Thus
+The Dharma argument was preceded.
 
-[APZ 64.1] (# apz64.1) {# apz64.1 .ref .apz} "Strictly without Ragadi Kinchanas
-No seizures "in Kinchana (4-11) 1 applies from Kinchana
-Should.) Strictness means lust (ii) whether there is any lust or attachment
-That's it. Severity of seizures, seizures,
-Immortal Nibbana (iii) This is help. There is no other. "
-Security is a quality. No other means there is no other help. Infamous,
-This is the greatest, foremost, help. Means "I call it Nibbana."
-'Vanaya' says to lust. (10-4) 1 (ii) should be applied if there is a disease.)
-The nectar of Nibbana is the cessation of cravings, the cessation of cravings, the cessation of cravings.
-So 'thus' is the vowel joint. Vowel intercourse. Tone completion.
-To spell. To degrade. "Say" means preach, enact, lay,
-I open, I divide, I publish, I declare. "It simply came to our notice then
-Knowing the fact that "this" means immortal Nibbana
-Whether there is a consolation or a renunciation of all subconsciousness, called virulence
-Named Nibbana. "Knowing" means knowingly looking at and deciding
-All rights reserved. (1-8) 3 should apply.) Anything
-Even if there is a doctrine of causation, it is known to exist for the prevention of all, equally
-Wait, decide, that is. "Someone" is a deserving slacker.
-"Mindful" means mindful of four things. Cultivate mindfulness according to the body of the body
-Therefore ((1-8) 4 (ii) should be applied.) Therefore, even if they are conscious.
-The doctrine of seeing is the doctrine of seeing
-Dhamma is the Dhamma that decides. Nivunahu means Nibunahu because greed is quenched,
-Since the hatred was extinguished (should be applied to the Great Tribulation (3-4) 2, p. 1578) "They
-Even if he does not fall under the spell of the mara "means some mara, the lord of the ears
-If they are not seduced by the demon called Bandhu, they will not be seduced by the demon,
-They are the killer, the killer, the killer, the killer, the poison, the killer.
-Behavior, inhabitance, posture, suppression of aggression and aggression
-Maintains and controls. They are not students of Mara. "
-Not the behaviors. They are the disciples of the Blessed Buddha. Therefore
-The Blessed One preached. ((1-8) (6) should apply with the end of the stanza.)
+[APZ 76.4] (# apz76.4) ෙහි # apz76.4 .ref .apz} "I say enlightenment"
+I call the Arahant Vimoksha the Arahant Vimoksha. I preach.
+I impose, I place, I open. Divide, declare, declare.
+The fracture of ignorance is the ignorance of sorrow. Ignorance is
+Moha is the root of evil. Breaking is the soothing of the soul, the smoky Nibbana
+So the Blessed Ones declared.
 
-Kappamanavapuchchaniddeso Dasamo.
+[Msdiv 77] (# msdiv77) # msdiv77 .ref .msdiv} (13-4)
+
+[APZ 77.1] (# apz77.1) # apz77.1 .ref .apz} "What in the world is a combination?"
+The combination of the world, the sticking, the binding, whatever the world was made of
+Did you apply? That is. How is its trial? Is the trial, the trial.
+How does the world behave? Which of the following is Nibbana? Is something
+Nibbana is said to be expressed by the consolation of Prahana
+Will do. Therefore the Brahman himself said.
+
+[Msdiv 78] (# msdiv78) {# msdiv78 .ref .msdiv
+
+[APZ 78.2] (# apz78.2) # apz78.2 .ref .apz} "Nandiya is a combination of the world"
+Nandiya of means to lust. Is there any lust or attachment?
+It is said that Nandiya is the root of superstition, greed and evil. This is Nandiya
+A combination of the world. An album. A bond. A contaminant. The world from this Nandi
+Yukta, Prayukta, Ayukta, Samayukta, Elbuneya.
+
+[APZ 78.3] (# apz78.3) {# apz78.3 .ref .apz ෙහි "Argument is trial"
+Argumentation is the New Argumentation of Argumentation, Business Argumentation, Violence.
+Argument, Cognitive Argument, Colonial Argument, Amara Argument, Transcendence
+Reconciliation Argument Cheap Hospitality Reputation Argument, Anonymous
+These are the new arguments, the counter-argument. These new arguments belong to the world
+Censorships are trials. The world behaves especially with this new argument
+Behavior means.
+
+[APZ 78.4] (# apz78.4) # apz78.4 .ref .apz} "Nibbana by eliminating lust
+It is said that lust is the desire for images, sounds, smells, tastes, touches
+Nibbana is said to be the elimination of lust. Is lust
+Nibbana is said to be by appeasing the abstinence from detachment. Uses.
+Declares. So the Blessed Ones declared.
+
+[Msdiv 79] (# msdiv79) # msdiv79 .ref .msdiv} (13-5)
+
+[APZ 79.1] (# apz79.1) # apz79.1 .ref .apz} "How to behave consciously"
+Is how to behave with mindfulness and wisdom
+Those who maintain, those who exist, those who rule, those who depend. Consciousness
+Antidepressant means sedative or sedative.
+
+[APZ 79.2] (# apz79.2) # apz79.2 .ref .apz} "Greetings to the Blessed Ones
+Come "means to invite the Blessed Buddha to ask for a proper inquiry
+Let's go. We arrived. Arrived. That is. "Keep your word
+Hear "is your word Sermon, Listen to the conclave, Learn, hold
+That is why the Brahmin also said,
+
+[Msdiv 80] (# msdiv80) # msdiv80 .ref .msdiv} (13-6)
+
+[APZ 80.1] (# apz80.1) {# apz80.1 .ref .apz} "Happy about the pain inside and out
+Non-existent "means living by looking at the pain of spiritual pain
+Not happy about the pain. Does not say. Pleasure, to say, to consult,
+Entry awayDoes. Discards. Completely extinct. Outside
+Living by looking at the pain of suffering is not about being happy about the pain. (ii)
+Does not say. Pleasure, taking, exclusion, exclusion,
+Leads to complete extinction. Living by looking at the pain of pain inside and out
+Doing is not happy about the pain. Does not say. The reference to taking pleasure
+Removes entry. Leads to complete extinction. (iii) Occurrence in the psyche
+According to the Dhamma, living by looking at the pain of suffering is about living in pain
+Not happy. ((Ii) should be used here.) According to the doctrine of destruction of spirituality
+Dwells looking (here (ii) should be used.) Occurrence in spirituality and
+Loss is viewed according to the Dhamma (here (ii) should be used.) External appearance is Dhamma
+According to (ii) should be used.) According to the doctrine of external destruction (here (ii)
+Should be used.) According to the doctrine of external emergence and destruction (applied here (ii)
+Should be) according to the doctrine of destruction inside and out (should use (ii) here.)
+Internal and external occurrences are viewed according to the Dhamma (here (ii) should be used.) This
+Living by seeing the pain in twelve ways (here (ii)
+Should be used.) Again the pain is viewed as irregular (here (ii)
+Should be used) as suffering, as disease, as malnutrition, as affliction,
+As a disorder, as an exit, see (here (ii) should be used.) This
+There are forty ways to look at pain in pain (use (ii) here
+should be.)
+
+[APZ 80.2] (# apz80.2) # apz80.2 .ref .apz} "Behaving like this"
+This is the mindfulness and wisdom of the speaker
+Who maintains, who controls, that is. Consciousness is the antidote to charity
+Edited Wisdom, Apunyabhi Edited Wisdom, Ananjabi
+Edited consciousness is suppressed. The calm goes to waste. That is. Therefore
+The Blessed One declared.
+
+(Use (1-8) 6 with the end of the stanza.)
+
+Udayamanavapuchchaniddeso Therasamo.
 
 [AP de Zoysa] {.author} edition.
 

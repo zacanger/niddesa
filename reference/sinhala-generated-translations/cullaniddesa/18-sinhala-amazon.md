@@ -2,257 +2,205 @@
 - Chula Sleepings
 - Parayanawaganadzno
 
-#18. Posala Humanistic Formula Recommendation
+#21. Recommendation of Paraana Humanic Formula
 
-[Msdiv 81] (#msdiv81) {#msdiv81 .ref .msdiv} (14-1)
+[Msdiv 93] (#msdiv93) {#msdiv93 .ref .msdiv} (17-1)
 
-[APZ 81.1] (#apz81 .1) {#apz81 .1 .ref .apz} "Does anyone post the past?"
-"Whoever" means those who do not have an academician who knows himself
-Has he disappoints the three truths of doctrines not heard before? There is also a serviceman
-The penity came into being the divines of the productions. The past is stated
-The prophets are prophesied in his own and in others. Future Prodals
-makes. Also stated the existing time.
+[APZ 93.1] (#apz93 .1) {#apz93 .1 .ref .apz} "Guides Country
+Sixteen Brahmins who were working in the Rock Chaitiya
+The questions asked by the invitation were resolved. This is
+Him the spheters. And this "pharayana" is said. 'Bhagawath is Honours
+Word. (Should be used in Mahaniddesa (7-8) 1.) Reduced imposition.
 
-[APZ 81.2] (#apz81 .2) {#apz81 .2 .ref .apz} How to Past
-Is it stated? The Trusts of His Past (ii) One Nation
-makes. Two races promulgate. Three races, four races, five races, (from 5
-Up to 10) Should be completed.) Twenty Nation, Twenty Nation Thirty Nation
-Forty race worms (here 50 to 100 must be fulfillable.)
-One hundred and seven hundred races, one hundred thousand races, no convulsions, no one
-Vocational Thoughs, No Moved Thoughs, Dispersed Thoughs. If:
-To be a real man. Thus was a victim. The color of the food is thus
-What is thus healed, so that such a helper is concreted by it.
-Above the place is born. Thus, what are these prey, what colors are like
-There is, what food is so healed that such food is in the corner
-There will be. It is born here, (iii) with such forms
-Nobody forms with the manifesting of prementions. The Trusts
-He is promulgating his past.
+[APZ 93.2] (#apz93 .2) {#apz93 .2 .ref .apz} "This is the country in which the piers are guides
+The dwellings are made at the Chatea of a rock." is the residence of the colony named 'in the way'
+Kuku. 'dwelling' is what behaves when postures are held
+Control is controlled. 'Chety' of a rock tells a certain Buddhist.
+Sixteen Bamunans who are the Brahman of Bavaria Brahman
+A scholarship. Near behaving. Was a proctator.
 
-[APZ 81.3] (#apz81 .3) {#apz81.3 .ref .apz} How to Respect
-Is the past stated? The Trusts of the Past (here 2 (ii)
-Should be used.) Thus, the propyants proclaimed the past of others.
-He is the past of five hundred nations, and in his own, and in the past.
-Proposes.
+[APZ 93.3] (#apz93 .3) {#apz93 .3.ref .apz} "So this is how the sixteen
+Sixteen Bamunans who are enumerated. Bamuno Sixteen Bamuno
+Buddha's are children. Piritees are wary. Mezili Visits Sovu
+Invited by Bamunan to solve the questions of reviews
+Said. Therefore, this is said. That is, the people will reside the country in the way
+Reviews by Sowa Bamunan, Phragic at Rock Naka Chyatyaya
+Solve the problems.
 
-[APZ 81.4] (#apz81 .4) {#apz81 .4 .ref .apz} "Great Matter" Formula
-(ii) arises the past in their own and others. (iii) "Mahasadasana"
-Formula stated (should be used here (ii)) 'Mahagoinda '
-The formula should be used here (ii).) The Excellent God
-Determine the formula (should be used here (ii))
-God was devoted.
+[Msdiv 94] (#msdiv94) {#msdiv94 .ref .msdiv}
 
-[APZ 81.5] (#apz81 .5) {#apz81 .5 .ref .apz} "Chunya Past Time Arrange
-Remembrance whether he is any consciousness, whether he hopes for some
-makes. Chunya, the future, the present, the arabah, the body of the people who have been raised.
-Birthplace. This is the last nation. Now there is no Genesis again. Ready. Indriya
-The wisdom of the paropariyatta is a realised power of the people. Distillation of animals
-The ascetic is a stabified power of him. Rehabilitating the Gathihara of Yatalakan
-power. Subbine consciousness is a conscious power of the ascetic. Disclosure Consciousness
-The ascetic is a stabified power of him. Disclosure Incentive Incentionism in All Thousand
-The ascetic is a stabified power of him. Thus are the spouses of him and in the way
-Testimonies the past. The future is well stated. The existing time is stated.
-Says, Dezhana, imposes. Places, opens, divides, replaces, prosists
-Makes.
+[APZ 94.4] (#apz94 .4) {#apz94 .4 .ref .apz} "Know the meaning of the same question
+Doctrine is known and doctrine." These DharmaciesRa's death
+is a minus. The other name is the pharaan to this Dhamma. "One Question'
+is one of one undefeated question, one of the three, one of the three, one of the most undefeated question
+One Mettegu Question One of Punanaka Question
+One Subsequent Question One One in One Question
+One extortion question of one wholesale question, one extortion question
+One Posala of one Bhuta Question, One One One of the Udaya Question
+Knowing the meaning of one single single single question of question
+Knowing doctrine is to solve that question doctrine. 'Meaning' means knowing the meaning
+Wait and make a decision. 'Doctrine know' is a know-how decision
+Ready. 'Replication of Dharmany' is a Respect of Respect
+Reverse, Good Reverse. Advertise is in doctrine
+The statue is the basis.
 
-[APZ 81.6] (#apz81 .6) {#apz81 .6 .ref .apz} "There is no doubt that there is no Pharah"
-Cravings called PharajaTells. A certain lust, a sticking stick,
-A central lottery is an Akushalamulaka, if this is a craving.
-The Spirit of Buddhism was originally synthesated. A whale tree is like a whale tree
-Deadly. Complete demise. Repeated into Nouvera.
-So the Bhabha Buddha is named the other. Cravings or
-The other are names, because the shock is indivisible.
+[APZ 94.5] (#apz94 .5) {#apz94 .5 .ref .apz} "The Generation of Jharamathaya" is an amorphous
+Nibbana goes. A comparison of all those editors, all accolades
+Bhaa Lay Adda, a repositorized Viraganam Nibbana, which is the name of the craving
+shall go to the parathy of the jaramathah" shall come to the parathy of the jaramathah,
+See, the parter shall prophesy, and go.
 
-[APZ 81.7] (#apz81 .7) {#apz81 .7 .ref .apz} Is the Trustees a Cheapest
-Do not shake. (3-1) Should be used from where 1 'profit'.) Wow
-Do not shake. Unshaking. Suspicion whether there is a rant suspicion is the disposition
-says. Suspicious of sadness ((4-11) 5 should be used.) A Doubt
-The Buddha's instilled. Wicely said. Convenient. It was agile to be born.
-Wisdom was burned with fire. Therefore, Buddhia is doubtful.
-Going through the excellent wisdom of all doctrines. Ofste
-Knowing went to the street. The prophesy went away. Retirees
-Doing went through. The society has gone through, Questions
-I came in order to do. Is what the question came willingly. (3-1) 5
-It should be used from where to 'question') so said Brahman.
+[APZ 94.6] (#apz94 .6) {#apz94 .6 .ref .apz} "These Dharms are parting
+What is this" is that these doctrines are brought to the age, and the jaarmoras are brought to the age.
+These dharies shall be brought to the street to cross. Hence
+Hence it goes to the Dhamma Schemes, therefore it is from that matter.
+By virtue, from that sleep, to this doctrine is to go to this pharatha 'road '
+is what tells Nibbana. The MaraThe category says. "Name" is the prognotation
+Yai, the Constant is the name of Nirritability, and this one
+If knowing the meaning of the question and the doctrine is practiced in the doctrine of the jaramathah
+Therefore, the pharahana says that they are being brought to the nation.
 
-[Msdiv 82] (#msdiv82) {#msdiv82 .ref .msdiv} (14-2)
+[Msdiv 95] (#msdiv95) {#msdiv95 .ref .msdiv} [Msdiv 96] (#msdiv96) {) #msdiv96
+.ref .msdiv} [Msdiv 97] (#msdiv97) {#msdiv97 .ref .msdiv} (17-2)
 
-[APZ 82.1] (#apz82 .1) {#apz82 .1 .ref .apz} "Threated Image Signs"
-What is the image signal? Rupavahara society or Birnahu
-Themes of the theme park in the world or a signal, these images are made.
-Signal images are four images of images
-And the signs were prophesy. Vadana Laddahu, eMauawahu go.
-All Points are Recipient, All Referential Image
-It is his images that are found in the unpretentious prophecy.
+[APZ 97.1] (#apz97 .1) {#apz97 .1 .ref .apz} "They came to the Buddha"
+These are these twelve paraetic brahmins. 'Buddun' is
+Some of them are the people. Chatura himself has been figuring out the truth'
+No academician. Doctrines that have not been figuring out before, have been figuring out the fact of the third.
+Then the serviceman complainated, came into the plaque of the plaque, what Buddha is
+Is Buddha in a sense? Figuring out the truths. Buddha Nami, Community
+Figuring over the name of Buddha. Buddha name because everything is teeth.
+Buddha because everything was seen and Buddha lost his elas. Kitty
+The Buddha name is the monastery, since it was disturbed.
+Since Satantha Vetadodsha, Buddha name. The name of Buddha because of Satantha Vetamoha. Month
+Nikkievas (since there are no saliva) is Buddha. Buddha, who went to the Yatanana road
+NAMI. The Buddha name came to the Sambodhi. Intelligence
+The discernment is divided by the result of the Buddha name. This name of Buddha is by the mother
+Undereated. Unmade by the father. Brother by Sister,
+By Mithramans, No Sahale Natives by Brahmans
+Undereated. Undone by two times. Vimodeya ends
+Buddha has received almighty wisdomAs a result of concomitant effects
+Imposition of the cause. This is the Buddha. "They came to the Buddha, and the Pyrupasa
+"Shirana, Cost, Shirana, Shirana, Shirana"
+Occurrence of Characteristics, Inductive Constraint and Characteristics, Feeling Around
+Character. The application of sleep is also subject to remission. Dhamma Satha Chaaranayoyi
+Desensitization by the escorts. The cirritous is a
+Character. The most noble chakorasyon is the dominant chakorasyon. Very noble chainship. 'Direct '
+It is the people who are direct. A multitude of magnanimous shirds searched.
+(4-6) 1 should be used.)
 
-[APZ 82.2] (#apz82 .2) {#apz82 .2 .ref .apz} "See Nothing" is
-Akijachanagatha is society, in what kind do you say there is nothing?
-In remembrance of Conscious Conscious Societies
-Rise in remembrance and dispel that consciousness itself. Disappears, there is nothing
-Looks. Anchenyatta tells the society that there is nothing out of that matter.
+[APZ 97.2] (#apz97 .2) {#apz97 .2 .ref .apz} "Reviewer" Is Question
+The doers ask. 'An intuitional Question' is to see the deepened
+Shantha, Proprient Athakkawatha, who is in difficulty, in figuring out the sadness
+Punditu is a stethoscope. 'Buddha to the Buddha, 'to the Buddha'
+(17-3) 1 (i) used from where Buddha
+Must.)
 
-[APZ 82.3] (#apz82 .3) {#apz82 .3.ref .apz} "Consciousness from the Sharets
-Commentations. 'Share' is the 'Share' of the Sharets
-Names. The name of Shakha was an ordained by the plant. Fearing Fear and
-The reason for fear is that the lower Lomu catcher is true. Curations
-I critique the wisdom from Him. I critique the wisdom from Him. Questions
-Commentations. Is it too scary? What kind? Ready.
+[APZ 97.3] (#apz97 .3) {#apz97 .3 .ref .apz} "pre 'is an apg, seri
+The leading noble came to the very noble Buddha. Pirupas did. Reviews,
+Promoted.
 
-[APZ 82.4] (#apz82 .4) {#apz82 .4 .ref .apz} "What is pressed
-How? is that it must come and be. Must be hiked, imposed. Must look,
-It should be clear, how should the wisdom of the mother be born from it? Ready. 'Ebadu' is
-It is a society where there are such notes.
-Ready. Therefore, Brahmana said:
+[Msdiv 98] (#msdiv98) {#msdiv98 .ref .msdiv} (17-3)
 
-[Msdiv 83] (#msdiv83) {#msdiv83 .ref .msdiv} (14-3)
+[APZ 98.1] (#apz98 .1) {#apz98 .1 .ref .apz} "The Buddha to them
+'To them, 'stated, "to them" refers to the Sophen Paraenic Brahmins.
+The 'Buddhia' is some of those people. (17-2) 1 Applied from the place of Buddha
+Must.) The Buddha prophesed unto them. Said, Dezzana,
+Panted, laid, opened, divided, and said. Question Reviews
+Requested InvitationYi.
 
-[APZ 83.1] (#apz83 .1) {#apz83 .1 .ref .apz} "All Conscious Is
-He knows the four Conscious Conscious Conscious. How
-Do the Conscious Conscians know the four Conscious Conscious? This is
-Determined by the Trusts" HighNeni, Conn Rupupupa (ii)
-Conscious is present. Inflammation into morphology
-(iii) Adopts to deviations, swollen stethoscope or (hereinafter (ii) Applied
-Must.) There is a sense of consciousness or consciousness that is present in the swollen.
-Frequency reactivity is accompanied by a decomposition that is too great for the scrotum.
-Thus he knows the four Conscious Conscious Conscious.
+[APZ 98.2] (#apz98 .2) {#apz98 .2 .ref .apz} "as it says" should be said,
+And so said. Should it be done two hundred and so, if the thing should be imposed
+So laid, if the thing should be laid, and if the thing should be divided into
+Bedusseh. If the thing should be prophesed, then proprophesy. Yamsei stated
+If necessary, then stated. 'by promulgating the details of the quizes' is
+The business of the question is by saying, by displaying, by showing, by opening
+By doing, dividing is by expression.
 
-[APZ 83.2] (#apz83 .2) {#apz83 .2 .ref .apz} "How to Hold
-How to know the four congences as a result? This is the Trusts
-by. Mahanai, Nanathkaya, Nanaththakaya.
-There are some men, some gods, some vinyl. This
-Conscious. Mahanai, Nanathkaya, and there were other animals. A
-The first is the lower Brahmical god, and this second is consciousness.
-Mahanai, one, and the tubers, and the animal. Abassara
-God is. This third consciousness is Mahani, Unitataya and Unitatu
-There are also creature animals. There is a God of God of God of God. The four
-Conscious. Sahy, omnidirectional beyond the metaphor signal
-The stomach is the extreme, without sliming the signs of the nose, and to the Acasanas.
-Arrives, this fifth Consciousness is the Omnidirectional Consciousness
-Exceeding Conscience is Infinite Conscious, but this is the Sunth
-Consciousness Almighty is nothing beyond Consciousness
-This is the Conscious Conscious Conscious, who came to the Akijanachanagama
-He sees septic suppositories as a result.
+[APZ 98.3] (#apz98 .3) {#apz98 .3.ref .apz} "pleased" is a shaded
+Ready. 'Brahmins' are the Sophen Paraenic Brahmins.
 
-[APZ 83.3] (#apz83 .3) {#apz83 .3.ref .apz} "StageKnow"
-Incarnate. This was declared by the chasers. Chunya.
-Not Past or Absent by the Puppies, and Awarts
-Yamecveda does not claim it as well. Chunya, Nostalgia (ii) Happened
-(iii) Chunda, whether there are no pains.
-(iv) There is justice in the sense of overlapping and resolving the issues
-It knows the time to put it to it.
+[APZ 98.4] (#apz98 .4) {#apz98 .4 .ref .apz} tells the wisdom of "what". (Great
+In the niche (3-1) 3 should be applied. 1572 out)
 
-[APZ 83.4] (#apz83 .4) {#apz83 .4 .ref .apz} "Chundia is Prophet (here 3 (ii)
-Applicable.) If the chanda is prophet (here 3 (iv) shall be applied.)
+[APZ 98.5] (#apz98 .5) {#apz98 .5 .ref .apz} "By Pensch Chakun They
+They are the four pharaan Brahmins who please the Soventy Paraan Brahmins
+The invitation was made, the invitation was made. Pleasant and happy.
 
-[APZ 83.5] (#apz83 .5) {#apz83 .5 .ref .apz} "Chunya, Not Existing Time
-There is something that brings unfettered danger, and it does not promulate itself. Chunya,
-Is the shower that occurred at the existing time? It is also in the same way
-Not stated. Chunya, in the sense of the shower that occurred during the existing period
-Yamecveda knows the time to resolve such questions. Chunya,
-Wanahi was the third time of the doctrines belonging to past future existing times
-Geographically, the interpretation was righteous and disciplined Wei. Hence
-Thalagatha says. 'Chunya with some heroin, having the marrow of the locker with God
-A God with a bumbun saw and heard, touched, knowed, of the community of men
-Arrived, searching for everything was done by heart. Therefore, it says that
+[Msdiv 99] (#msdiv99) {#msdiv99 .ref .msdiv}
 
-[APZ 83.6] (#apz83 .6) {#apz83 .6 .ref .apz} "Chunya was raised some night
-Whether a reviled tradition comes to the Samples, a certain night's reproach
-Do you say something in the meantime, from Nibbanasadhara, and all that
-So. Not from anatomy. Therefore, it says that "Chunya, ThatalaThou shalt say, and do so. Do it say so. Thus
-The realist is the reality of the reality. Therefore, it says that
+[APZ 99.6] (#apz99 .6) {#apz99 .6 .ref .apz} "Trusts have an eye
+Since the eyes are true (Mahanidadesa (14-7) 1 from the place of 'pausses'
+Must.) If they have eyes, whereas the spouses have an almighty
+The 'Buddhia' is some of those people. (17-2) 1 From the place of 'Buddha'
+Should be applied.) Adithu Bandhu tells the sun. The sun is also
+Gauthi, Buddhist from the tribe, Gumuthi, Buddhist from the tribe
+He is a prey bonder of the sun. Gothara relative. Hence
+Budurajathemama is named Abudtuu Bandhu. 'BrahmachikhHasurunahaa in Riyawa
+Brahmecharia is that it does not go from unharmed or separation.
+Aryan tells the octonal road, Brahmecharia, in a similar way.
 
-[APZ 83.7] (#apz83 .7) {#apz83 .7 .ref .apz} "Chunya, in the locality with God
-Restaurant in the field of Brahmins with maroon buoons
-prevailed. The mutual can not die. Constant as mutual. Hence
-Thalagatha says.
+[APZ 99.7] (#apz99 .7) {#apz99 .7 .ref .apz} How is a perspective, a resource
+Concept, a word, an ascetic industry, an ascetic religion, an ascetic
+Business, a season week, a season, a season. 'Brahmechariya
+Husurunaha is a man who was in Brahmecharia, and there were others.
 
-[APZ 83.8] (#apz83 .8) {#apz83 .8 .ref .apz} "Know This" is
-This person is evil traits raised to death by the breaking of the boar
-The birth of the spoiled worm, which falls in the evils, is a boredom.
-Melotho also sees the facts. The prophets of this person by breaking the boar
-The beasts raised in death are born in the vagina in the boredom
-The facts are known. This same person is in the subject of death by the breaking of the boya
-Birth is known to the same facts as the number of booms. This same person
-The number of caprices is born among men who are killed by the break of the boar
-As Melowly, it is well. Thus the incarnated person is raised to death by the breaking of the boar
-In the world of heaven, the compassion is born in the world.
+[APZ 99.8] (#apz99 .8) {#apz99 .8 .ref .apz} "The Noble Pledges
+In close proximity" is a statement in which there are professed, prominent pledges
+The real one is in close proximity. "Near" is the proximity, the nuance, the nuance. This is
+It was said for that.
 
-[APZ 83.9] (#apz83 .9) {#apz83 .9 .ref .apz} "By The Trusts This
-(ii) 'Physician, about a certain person, this person's third
-This is what it says: (iii) the man who is going to this road
-In the careless bad that falls in the evil of the evil that arises from death by breaking
-I know that the heart is clean, so that it is born. I am a certain
-I know how clean the mind of a person. This same person is so adhered to
-So holds postures. That's meRaised from death by breaking the boya who was taken down to the rash (vi)
-He knows that the beasts shall be born in Joniya. (herein (ii) (iii)
-Should be applied.) Birth in the predisposes subject. (i) (iv) Applied herein
-Must.) People know how to birth among themselves. ((ii) shall be applied herein.)
-Heaven, raised in death by the breaking of the bodyman, is born in the world of heaven
-Kay. (ii) The application should be applied here.) Inhaled by depletion of inhalations
-Themselves know for the liberation of grit and the emancipation of pledges
-Proposes and comes into it and dwells, and this fact is known. Unliberation is
-The archaic is the unliberation of which it is dominant, and the stop
-He knows the people. From the image of this same person. (yard) by sound
-In the yard, the marrow is marred by the odor. Rimed by taste, marched out of touch, by speech
-The yard is drased from the mast, is draped out of the incarnate, and is reared from the profit. From fame
-The yard, the yard, the yard is supplied, the yard from the sire, the yard from the sire,
-The pallet is drained, the brigade is drained, the ambulance medicine is taken out of the pirikarin
-The yard, the man, the man of the formula, the discipline, and the marble of pride,
-The marrow is taken from the arcane. From Pindapathikanga, Pansukulikanga
-In the yard, from the tachivarikanga, from the mineral,
-Nezajjikanga, by reality, by secondary medium,
-From the tertiary center, from the turnal center, the longitudinal society,
-From Conscious Societies, from Conscious Societies,
-Nevadanasagathas are getting rid of society. Emancipation It Dependencies
-Segmented is the genitourinary name, it is deplorable, and it is segmented (iv) by deplorating kamma
-Segmented, Reward RangeSegmented. Karma is esteem. Replicates
-Segmented. Bad, he knows the spheres. Depend the image of this person
-Segmented. (Applicable here (iv)) Nevassannagna was a society dependant
-Readable.)
+[Msdiv 100] (#msdiv100) {#msdiv100 .ref .msdiv} (17-4)
 
-So did the bugger.
+[APZ 100.1] (#apz100 .1) {#apz100 .1 .ref .apz} "Is in the same question" is one
+Thissa of the same undefeated question, Punana Humanist, Metagu Dododaka, Subsewa
+Nanda, Hemaka, Wholesale, Ransom Humanist, Jathukanni, Bidharudha, Udaya, Posala,
+One of the two, Mogharaja, is also a question by Yamseh Buddha.
+Going,
 
-[Msdiv 84] (#msdiv84) {#msdiv84 .ref .msdiv} (14-4)
+[APZ 100.2] (#apz100 .2) {#apz100 .2 .ref .apz} "Buddha" is some of those who
+He is. "Designated by Yamze Buddha," is by Yamze Buddha
+Designated, Opened, Divised Proposed, Proposed, Proposed
+Replicable.
 
-[APZ 84.1] (#apz84 .1) {#apz84 .1 .ref .apz} "Karma that incarnates"
-It tells the Karkanachanagama editor. It is a cracker
-Knowing and knowing the bonding, knowing the shield, and deciding with the decision
-Propare
+[APZ 100.3] (#apz100 .3) {#apz100 .3.ref .apz} "So if anyone rejects," is
+Resource Resource, Resource Reverse, Nonchange Reverse, Alias
+The answer, the doctrine, is the statue, "If anyone so adheres
+There will go so far." Yaya Road (Ethara)tells Rawana.
+This says clayos, masses, and customeditors.
 
-[APZ 84.2] (#apz84 .2) {#apz84 .2 .ref .apz} "Nandi combination thus know" is
-The combination of Nandi tells Aimal Lust. Images are elbowed in that kamma. Images
-Lust is the combination of Nandi knowing and knowing bonding, knowing shields and knowing skin
-Determine and Prohibit "Ithi" (thus) is the verses joint, verses
-Adjustment. Filling the verses is to complete the letters. Words are siling. Verses
-The order is to show. "Knowing the Matter" is thus knowing this, and deciding
-Propare
+[APZ 100.4] (#apz100 .4) {#apz100 .4 .ref .apz} "Goes to Grow" is a Generation
+Come, the parter shall see, the parter shall be prophesy, the parter shall be prophesy.
+It shall be, he shall prophesy, and thence shall go therefrom. Therefore, this is
+says.
 
-[APZ 84.3] (#apz84 .3) {#apz84 .3.ref .apz} "The wall looks with its utmost"
-There is a birthplace in it, rising from it with the Arcchina, and its birthplace.
-Doctrines look inordinately, look at grievous, look at disease (1-8) 3
-Should be applied from where the disease goes.) Looks unaminably. SAYE, CHECKNE
-makes.
+[Msdiv 101] (#msdiv101) {#msdiv101 .ref .msdiv} (17-5)
 
-[APZ 84.4] (#apz84 .4) {#apz84 .4 .ref .apz} "This Consciousness is Truth
-The fact is that the perimeter is inverted. Brahmina is a Dhamma Sathak
-Because Brahmina name. (The Great Sleeper should apply (4-3) 1.) Celles Associate
-Not shaking by burning untreated ataloBecause Thai is the name Brahmama. Rain
-Finished is the presence of the unseen styles from the time of the late people
-Protoying that which was not redeemed in order to receive that which was not received.
-In order to be residing. The Rahatan shall have finished the rain, and the work shall be done.
-The weight is segmented, the good that came is, the combinations of depleted are segmented,
-Emancipation is preferable. Hence, there are habituated journeys (Great
-(3-7) 6 (ii) should be applied in Niddezee.) There is no revival of race deaths,
-Ready. So the prophets prophesy. Around the corner of the stanza (1-8)
-6 Should be applied.)
+[APZ 101.1] (#apz101 .1) {#apz101 .1 .ref .apz} "HERE GET THERE" is
+Classicos and masses, as well as editorials. Etheraya Nibbana
+says. Nibbana is the name of Nibbana, which is called the pause of the cravings.
 
-Posalamanawaputhaniddezno Chudzamo.
+[APZ 101.2] (#apz101 .2) {#apz101 .2 .ref .apz} "The Noble Way" is Aryan
+tells the octagonal road. (Here 17—3) 7 should be applied.) "Noble" is,
+The arched, the dominant one. What does the creak discomfort,
+Ready. The 'road' is the way, the temple, the path, the way, the way, the
+Constipation is coming after the constipation, the bitumen, the ion, the ship, the thereafter.
+In order, that Jara may cross the death, that he may be unto the parathy, the way is
+Ready.
+
+[APZ 101.3] (#apz101 .3) {#apz101 .3.ref .apz} "So Paradise"
+'So, 'is from that reason to the fact that it comes from sleep.
+The parathura is what tells Nibbana, the 'ion' tells the way. 'Saving '(This)
+is the adjustment of the tones. The order of the verses is indicated.
+
+Parayanaththuththugathanidadesno.
 
 [AP de Zoysa] {.author} edition.
 
 Permission to publish was kindly granted by Kumari Jayawardhana.
 
 Digital files were kindly supplied by Srisumana Godage of [Godage
-International Publishing] (http://www.godage.com/), who publish a print
+International Publishing] (http://www.godage.com/), who publish aprint
 edition of this text.
 
 Conversion from PDF was by Janaka of < http://pitaka.lk/ >.

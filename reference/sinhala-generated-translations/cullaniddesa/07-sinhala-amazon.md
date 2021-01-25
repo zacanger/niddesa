@@ -2,374 +2,236 @@
 - Chula Sleepings
 - Parayanawaganadzno
 
-# 7. Punana Humanistic Formulas
+# 10. Subsewa Humanistic Formulas
 
-[Msdiv 12] (#msdiv12) {#msdiv12 .ref .msdiv} (3-1)
+[Msdiv 38] (#msdiv38) {#msdiv38 .ref .msdiv} (6-1)
 
-[APZ 12.1] (#apz12 .1) {#apz12 .1 .ref .apz} "The beginning of the loss of craving"
-The name 'Ejawa' tells the craving. A certain lust, a lust
-A Lobby is a Lobby Akushalamulaka Adda A 'Aja'
-The Buddhism, originally Syndea. The latter is like a whale tree
-Deadly. Complete demise was met. Repeated into nouvedness.
-So the Buddha does not crave. The other, as the cravings are discarded
-Names
+[APZ 38.1] (#apz38 .1) {#apz38 .1 .ref .apz} "I am single
+I was a second person or not. Second to me
+A doctrine or no. Neither in the doctrine nor I have a second one. Because of a person or
+Because of doctrine, or I will cross the Mathew Carmogary Bhawagia, and I will cross,
+I will be, I will be, I will be. "Curse" refers to the Whips
+Names. Shakhia is an ordained part of the plant. Stop this
+No Dhamma was instilled with gold, and the great prongs were called Shakhaku.
+Stuck, fishery, wickedness, not afraid, not alarmed
+Numm, the lower Lomu catcher is.
 
-(ii) the profit is not shaken. Do not shake at the loss. Reputation shakes
-Not. Not shaken by stigma. It is not shaken in the blaze.
-Do not shake in the humiliation. The supply is also not shaken. The sadness is not shaken.
-(iii) The spouses are little at the beginning. Reason
-sighted. The redeeming is a minority. The presence is slight. food siper
-Minor. The purpose is small. Minor of the State. Incidence
-Minor.
+[APZ 38.2] (#apz38 .2) {#apz38 .2 .ref .apz} "Subsequent: Curations
+He was not the pleasure of the gentleman, and I could not cross." Going
+Neither the innate was the person or the innate was not the doctrine or the miracle was not
+I will not try. The mighty was not the Mathew Carmogidya Bhavodiya, Avizhoya,
+It will be possible to cross. To cross the incarnate
+No Hackchemy.
 
-[APZ 12.2] (#apz12 .2) {#apz12 .2 .ref .apz} 'Akushalamuyo' is the LOBY Akushala
-root. Malice is a root of the intestine. This is the Trusts
-by. Mahani, three notions for the presence of kamma. -Lobby
-The presence of kamma is a sleep. Malice is a sleep in the presence of kamma. brains
-The presence of kamma is a sleep. Karma or malice that arises from the Mahani world
-From a kamma which aroused, or from a whimsled kamma, or God does not appear. Intestinal
-Even if Sugathihe is not received. Karma, but born out of the lottery-born kammaKarma is born with hypnosis, the bad is the foaming. The bestial vagina lungs.
-Prethecular lungs. Some of that other is in the lungs. Beasts of the bad
-Yaniya, and also in the subject of premeditation, is a spirit. This is the original epileptic
-He knows the people. sees.
+[APZ 38.3] (#apz38 .3) {#apz38 .3.ref .apz} "The great of the Samantas,
+The purpose is to determine the purpose. The schedule will say. Dezzana
+Manurements of caranu. Manage, place, open and open. Divide
+Manuwi stated, "Samathas is the Samathas, tells the Almighty.
+The spouses are of the same omnivorous. (Great Niddeesa (14-7) 4
+Should be used from where the Buddha eye goes.) Whoever was inspiredThe farm is a certain
+A person or inspired in the doctrine or incarnated by the gentleman Carmogary Bhawagia,
+Destroy, unhath, cross, doer, thou hast. Swimming, rider,
+Ready. Therefore, Brahmana said:
 
-[APZ 12.3] (#apz12 .3) {#apz12 .3.ref .apz} This is the beginning of the brochure
-Indicate. Also indicate the occurrence. In the three chamomile roots are the root of the abyss. Experience
-flatulent. Amosis is a mucous root. Determining this by the Graduates
-was. These three points are called Kushal Roots. Mahani, abusid
-God of Karma, who came out of Karma, who was disgraced by Karma
-in the lungs. People are in the lungs. Yambanu and Sugathihua God among men
-The receiving of spirit is also in the lungs. He knows that these three chambers are root.
-sees. This is the beginning of the spheteries. The presence is unpalpable.
-This was disenchedited by the adepts. Mahaniyu, some vaginal dharms
-Whether there are people in Eda, all of them in the early place of apartheid
-True. The importer is placed in one place. The doctrines are incarnate.
-He knows the people. sees. The beginning of the Message
-Indicate. Causes of occurrence.
+[Msdiv 39] (#msdiv39) {#msdiv39 .ref .msdiv} (6-2)
 
-[APZ 12.4] (#apz12 .4) {#apz12 .4 .ref .apz}
-The root of the editors is the science, the root of the consciousness is the editor of the nameplate
-Will the root be consciousness, the root of the salient is the name image, and the root of the touch is the attacker
-Is the touch to pain is financial, craving for pain is financial and craving for synapse
-Deaths of financial, whether the nation is born (born), will the death of Jara
-The nation knows the financial people. IsikationSerament. Metallized Individuals
-He was at the beginning. The presence is inconspicuous. Stop Trusts
-It is known that the eye is the root of the disease. sees. Ear diseases are the root of the ear nasca
-Diseases of the nose, tongue to tongue diseases, body diseases
-May the mind go, let the mind go early to the choral grievances, and this he knows.
-sees. This is the beginning of the spheteries. The reason is inconient.
-The redeeming is undeniable. The presence is inconspicuous. Samurdation
-(from oneself) is inconspicuous. The diet is inconient. The purpose is to be knowed.
-The prostrate is pointy. The onset of the mucosa.
+[APZ 39.1] (#apz39 .1) {#apz39 .1 .ref .apz} "Archine is dreaming"
+It is a Brahman who is the most prominent archetyman. True
+Do not see the immovable. This is the certainty that the propyants also say.
+In remembrance of the Intellical Way of Matteya
+Arise in a dream and look at the gritty choral doctrines that have arisen there
+grieving, as disease, as brickly, as hull, as disorders, devastations
+As shaking breaks, transient, non-protection
+As, as unstabbed, as empty as zero as infested,
+Incentionally affected by flux, primarily due to irreparable
+Potentially, as inhalations, as names, maramisha, as racist,
+Jara as Dharma Dharma, Death Dharma, Dharma, Dharma
+Domanassa synapse, Samahara Dharma as Asthangama, Inspiration,
+Nickenly look at the same time and inspect. "Remembrance"
+Whether there is any mindfulness setting, there is an application according to unconscious,
+It is said that this unconscious is an unconscious. This mindfulness
+Wei. (1-8) 4 points should be applied from where four points go.) Remembrance
+Says it.
 
-[APZ 12.5] (#apz12 .5) {#apz12 .5 .ref .apz} "Hello said"
-(1-1) 1 (iv)
-The application should be applied.) "Hello Punanka, using the question
-came" was the consent of question, which came. Question Reviewer
-came willingly. Asking questions came in the same way. Stuck
-Visit, Forward, Incoming, Service of Asserts, Question Critics
-In fact, this question came in usedness. Stop you
-There is a question presence. Reviews by me, you need to solve and to lift that weight
-rich.
+[APZ 39.2] (#apz39 .2) {#apz39 .2 .ref .apz} "None" is the genitalia
+Societies. Nothing from which one is the AkikiClassicating society
+And the consciousness arose in a dream, in remembrance of the society.
+Respect consciousness, worms, disappoints. Sees that there is nothing. From that fact
+There is nothing to be packed because of the society, the Elbe, the Carmogayya Bavodiya
+Destroy, cross the Avigoy, swim the Ethra, and then go.
 
-[APZ 12.6] (#apz12 .6) {#apz12 .6 .ref .apz} "People and Myashivara Aluno"
-"Dirashihu", Koka Alunanoor, Koka Ghambuhano, Yashihu"
-There was a shameful of some agricultural community. Liveliousness is the nebum. Jatadura
-Thermosaoi. Man means people saws. "Legends Brahmins
-Gods" are some kamthriya nationalities.
-If Brahmins, some of themBamuno, who thinks seven. Going to the Godels
-Livials are twice as unto the liveliest. Niladors to the Niladors
-Two-time. Jatiles' to Jatiles' Servants
-The proctatals are two times. Unopposed to the unopposed, two times
-The heavyness is forty to Athene. Horses to the Horse
-Two-time. The cow is twice the cattle to the Athene. Zero to Athene
-The coders are twice as many as the two coders. Vasu God to Athene
-The god of power is the god of power to Aththians.
-"The fullness is the god of fullness to Athene. Mani Conditions
-Mani Bhadraya to Aththians is twice. Fire to the agony Athene twice
-Wei. Nagaya is given twice to Aththians. Superhero Athene
-Twenties. To the devil Athene, the devil is twice. Asura to Athene
-Asuraya passes twice. Gandharvaya is given to Aththians.
-The Maharaja and Athens have two High Kings. Chandrasa to Athene
-Chandraya passes twice. The solar system passes to Athene twice.
-Indraya is twice to Athene. Brahmama's action to Athene
-Brahmaya passes twice. God is the god to Athene twice. Directional
-The direction of the salient is twice. Does anyone accept someone's right?
-They go twice.
+[APZ 39.3] (#apz39 .3) {#apz39 .3.ref .apz} "Rooms are sceptical
+Separated," there is a room called "Kama". Object Rooms
+Rooms (In (1) 1 (ii) 2—3 shall be applied in the Great Desk.) Rooms are drenched
+What is the room of objects, and the room is discarded from the dandruity, and into the unpretinous
+Repeat. "Doubt" is what the scriptor says. Suspicion in Dukeem
+Suspicion Suspicion Duvik Neroda Gamini Reverse Suspicion Suspicion Suspicion
+Suspicion, the disturbed of the heart, the suspicion was disturbed,
+Separate, the niche dwels with unrestrained heart. Separated from this doubt
+Ready. And the twoty beasts separated from the speech, dissipated,
+The unrestrained heart dwells. This is a doubt detached.
 
-[APZ 12.7] (#apz12 .7) {#apz12 .7 .ref .apz} "Most votive in this locale"
-"Votive" tells what to give. Siuru, Pidapatha, Senasana, Ambulance
-Medicines, Food beverages, Flowers, Floral fragrances, Cosmetics, Cyan
-Awasa, lanterns, votive means (ii) robesPatha, Senasana, Ambulance
-Medication, Food and Beverage, Vestive Flowers, Cosmetic Lights
-(iii) Seek someone, and they are voyant, and someone is robes (hereinafter (ii)
-Should be applied) collect the voyages, and they are voted. Whoever robes
-Pindapatha (Should be used here (ii)) Days and Voices
-And the people, and they, they, are votive.
+[APZ 39.4] (#apz39 .4) {#apz39 .4 .ref .apz} "Cravings" is image craving sounds,
+Odors, tastes give the touch cravings. "Raththi" is the night 'Aho' is the luminaries
+Dandruing of night, dandruing lust, dandruing malice, brains
+Destroying, Debugging, Genesis, Replying Reaction,
+Dismantling the Bhatiya, behold, and behold, be inspected. Hence
+He made the pitists.
 
-[APZ 12.8] (#apz12 .8) {#apz12 .8 .ref .apz} "Many" are these or many
-These votive doers or many, these votive and votive doers are many.
-Teemers or Brahmins or holy doers or domestics or progenies or
-God or men or these votive and votive doers. Many of these are to know
-Most of the heavenly Brahmins and the poor are worthy of this.
-Margikaya, and Yachakioi, are worthy to know:
+[Msdiv 40] (#msdiv40) {#msdiv40 .ref .msdiv} (6-3)
 
-[APZ 12.9] (#apz12 .9) {#apz12 .9 .ref .apz} "Most of this" is human
-Lokayahei.
+[APZ 40.1] (#apz40 .1) {#apz40 .1 .ref .apz} "Whoever walks in all rooms
+There is" "all"All from the len are omnipous
+This' all 'is the word that is taken in full without remaining. 'All
+Rooms' is a two-part part of the Kama. Wetakamayos and Cleaner Rooms
+Ready. ((1) 1 (ii) 2—3 should be applied in the General Public Acts.)
 
-[APZ 12.10] (#apz12 .10) {#apz12 .10 .ref .apz} "I'll critique this fact.
-Commentaries of "I want to discern this"
-Three (ii) what is not known, the reviewer of the promulgation, the thing to see
-Question, query loss query, query. What did not see
-What is the reviewer of the promulation? Is it not to know the feature from the prosnoid, unseen
-Undecided Nodu, not to be reconciled, to see the prayder,
-In order to decide, in order to protruct, in order to grow up, in question, this
-What has not been seen is the critique of the proclaim.
+[APZ 40.2] (#apz40 .2) {#apz40 .2 .ref .apz} "Whoever walks in all rooms
+There is" there is a lower ragas, there is a separated ragas, there is a vomited raga
+There are, the rafters laid, the diameter of which is made.
 
-[APZ 12.11] (#apz12 .11) {#apz12 .11 .ref .apz} "Same Thing Seen
-What is the surface?" Is it a prayer characteristic of the prose, the skin seen
-Question reviews to equip with the incarnated Pandits, what this saw
-Comparison surfaces,
+[APZ 40.3] (#apz40 .3) {#apz40 .3.ref .apz} "Whoever in all rooms is the street
+There is that the archetyship packed and think except for it" is the Six Classicants under the
+Exhapted and exceeded, the alley of the anticorrhoids is approaching.
+Vimoccane sawing signs of sawing. Some Around Signs
+(ii) the society of the society from the head of the country,
+Emmukti, the great, the marble, the great and the great.
+Vimosique is the yard, its alley, it is characteristic, it is abundant, it is
+It is adored, bent to it, and it is glued to it.
 
-[APZ 12.12] (#apz12 .12) {#apz12 .12 .ref .apz} "Doubt Dispel Surface
-Which?" Were suspicious in the process, two comments inquired
-Breaking the query whether or not, how, whether or not, how
-The question is critiqued for order. This query is trimming surfaces. Commentations of these question
-Three. There are three unicu question. People's Question
-The question of the created (Buddha) is the same.
+[APZ 40.4] (#apz40 .4) {#apz40 .4 .ref .apz} "The Magnet of the Archina
+Do not be, 'stand' is the Sanga Pothara, Inquiry Pothara, Melhakara
+The other are the pullback, the other. Thus, what is not, and how
+'Is there, too, not being chuped in the hatchet. Stuck
+Afternosis is also the same. Therefore, Brahmana said:
 
-[APZ 12.13] (#apz12 .13) {#apz12 .13 .ref .apz} "What are people's question?"
-People have come to the Buddhist. Bhikkhu critiques.
-Bhikshunu critiques. Decosists are critique. The synactics are critique, kings are critique.
-The dynastics are critique. Gandarvio Critics, Bamuno Critics, Critics Critics,
-Holy Spirit critiques domestics. Paviddo critique, of these men
-Question. "Which are the untold question?" Amanushaya Buddha
-Going to question reviews, nagayo commentators, supernades (gurulo) commentators.
-The devils are critique. Packed reviews. Gandarvio critique. Diviyamaha Kings
-Critics, Strength Critics, Brahmayo Critics. Twenties critique this inconspesible
-Question.
+[Msdiv 41] (#msdiv41) {#msdiv41 .ref .msdiv} (6-4)
 
-[APZ 12.14] (#apz12 .14) {#apz12 .14 .ref .apz} "Created Question
-Which?" All components of GHCG have a fully optimally optimally designed design
-An image is the mother. A created image comes to Bhavath Buddha and cries the question.
-Solves the spheters. These are the surfaces that created this
-There are three quirtions.
+[APZ 41.1] (#apz41 .1) {#apz41 .1 .ref .apz} "Whoever in all rooms is the street
+Is it true, 'all' means all things omnivorous
+Do not save the omnipenceThe word is. All these 'rooms' are
+As a result, two kamas are the object rooms and the cleavage rooms. (Maharland (1) 1
+(ii) Section 2—3 shall apply. 1523—1524 pages)
 
-[APZ 12.15] (#apz12 .15) {#apz12 .15 .ref .apz}There are also three question points.
-The question that he asks to work, the question that he asks to work, the question that they are going to
-The question is asked for both parties to work. There are three reviews of Anicuru, in this world
-Commentaries on the Paradet Reviews of both worlds
-They are. Reviews are three. Correct defined surface straighter
-The surface is the pure defined surface. There are three reviews on the stop.
-Past surfaces are future surfaces present. Aniculoy Question
-There are three. Spiritual Surfaces External Surfaces Spiritual Exterior
+[APZ 41.2] (#apz41 .2) {#apz41 .2 .ref .apz} "Whoever in all rooms is the street
+What is" is the rag which is disempated, and the ragas are suppressed
+Ready. He packed the congregations, the hatchery, the heart of it except
+The Six Under Clomps are divided into, beyond, and separated
+Arkijangachanagatha was found in the alu, came, galu, and was there.
+Signs of the saws, the signs of the saws. Some signs are from the head
+Akijangachanagathatha society, Vimoxic and Arched, and Serve,
+(6-2) 3 (ii) shall be applied in the chief and high.)
+
+[APZ 41.3] (#apz41 .3) {#apz41 .3.ref .apz} "Heathetically undigearing
+Be there" there are seven thousand thousand people. "There" is a "chuta" in the anachine
+Not being" (ii) not shaken and changing, not disappearing,
+Notching, not being wicked, not being decompressed, not being wicked
+Ready. So did the bugger.
+
+[Msdiv 42] (#msdiv42) {#msdiv42 .ref .msdiv} (6-5)
+
+[APZ 42.1] (#apz42 .1) {#apz42 .1 .ref .apz} "Hem is not pun
+If" is said if there are a thousand people in it. It is
+Akijangachanayati Jehii. 'Not chuta, 'should be used 6—4-3 (ii))
+"Many years, O Almighty," is many hundreds of thousands of years
+Many, many hundreds of years, many thousands, many hundreds
+Many thousands, many thousands of thousands, many thousands of thousands.
+
+[APZ 42.2] (#apz42 .2) {#apz42 .2 .ref.apz} "Almighty of Samatas"
+It tells the Almighty. (Mahaniddesi (14-7) 4 Buddha Eye
+Should be used from where to go.) Heathly came to its preeminence
+The central thing was that if there were no changes, they were there. Stuck his
+If consciousness is chewed, it is called if the mucus is chewed. Re-joints
+If consciousness is born in the room or in the image current or in the image current or
+The Akijanachena criticises the tine of Upannahu and the reparation. Ebadunuwu
+It is to be such a kind of thing as they are. Therefore, Brahminatha
+.
+
+[Msdiv 43] (#msdiv43) {#msdiv43 .ref .msdiv} (6-6)
+
+[APZ 43.1] (#apz43 .1) {#apz43 .1 .ref .apz} Is the air dispersing rapidly
+"Flame" tells the flame of the flame. "If air is oriental
+Air, Inhaust Air, Northern Air, Southern Air, Ragless Air
+Air colder air temperature air air air air air air air air, verandair, party,
+Golden air, tarapernair, exhaust, etc. "Dispersion from air' is
+Dispersed places are dispersed. The congregations are the subpoena.
+"Goes to Asthma" is a reproach. Contrinsjes, is the same. "does not come to the number.
+Do not come for the sake. Do not come to the number and do not come to the prophecy. To the East-front
+Got to Abragm, went to the north, went south, went upward
+Got under, went into the plain, went in no direction, 'there is no such reason,
+There is no point, no point. "Thus the Muneen marched the namerers
+"Thus" is the preparation of the parable.
+
+"Muni" tells the wisdom what it is. (Big Sleeper (2-8) 10
+Must.) 'Namethen' is thatMuneen Prefering Images
+Exceeding from the element of the yard from the bodil was derived from the diameter
+Wei. The Munites came to the Whips and looked for the four Aryan ways
+They are. They know the name name and the image, as they have been figuring out the four Aryan path,
+Since the name name and the image is known, the names and the images will be in the yard.
+Machinery rates are drained by decoding. Got into meaning and not go to frequency
+is the ratio of Zhisha Nibbana from the host, which does not go to the number. To give up
+absent. Do not go to the prophecy. Goes or Brahmina or
+Doctor or holy or domesticity or prophecy or God or
+Ministri or Rupie or Arupey or Sagna or Sagna or Nevassava
+There is no nasal or such cause. No Reverse. There is no point. Hence
+He made the pitists.
+
+[Msdiv 44] (#msdiv44) {#msdiv44 .ref .msdiv} (6-7)
+
+[APZ 44.1] (#apz44 .1) {#apz44 .1 .ref .apz} "Was a Resurrection
+Whether or not" is the unpretentious, or destroyed, and again an air.
+"Or is it, whether it does not change, and is there all the time.
+
+[APZ 44.2] (#apz44 .2) {#apz44 .2 .ref .apz} "Or eternally from the game
+Be it, and proclaiming it to be the Munine."
+Is something critique, ask for something? Ready. "Muni" tells the wisdom what it is.
+(2—8) (10) should be used in the grand order.) Did the crazha network exceed
+Hemly Munimi. "Manuwi", say well, "Manuwi"
+Manage the carriage. Inact, place, open and open.
+
+[APZ 44.3] (#apz44 .3) {#apz44 .3 .ref .apz} "so known by you
+Dial"Rama" is a known, determined by you and determined by the
+It is this doctrine that is established. Therefore, Brahmana said:
+
+[Msdiv 45] (#msdiv45) {#msdiv45 .ref .msdiv} (6-8)
+
+[APZ 45.1] (#apz45 .1) {#apz45 .1 .ref .apz} "Image size
+"No" is the Ratiosha Nibbana relic to Puraniyahu
+No image size. No amount of pain. No amount of signals, editor
+No Size, No Conscious, Not College, Not Conscious, Conscious,
+Originally, the birth was born, the fire of the name of wisdom. Subsequent
+The propyants prodded.
+
+[APZ 45.2] (#apz45 .2) {#apz45 .2 .ref .apz} "By someone he is thus
+If it says" by some lust, by some malice, by some brainty
+If, in a certain dimension, in a certain outlook, in a certain inflation, a certain
+If you say in a deciphering, then by a certain number of successionals, by lust
+Rathua, or was corrusted by malice, or evoked by hypnosis
+There is no saying, or saying, or joined together, or went into being.
+Collections are the secret, because the collections are the secret, do not say some mushy.
+A man claiming to be a priest or a beasts, or a person of the subject of the prey
+Kia or a God, or a puppy, or a puppy, or a sassava
+or say a hearer or a nevassar or a nevasvagna
+There is no such reason to say or say in a nose, no statement, no matter
 Ready.
 
-[APZ 12.16] (#apz12 .16) {#apz12 .16 .ref .apz} is three re-quizers.
-The vaginal surfaces are unobsoluent surfaces. Stage Question
-Three. Mass surface relics are surface entities. Anicuru Question
-Three entries. Satipatana surfaces are the main surfaces of the Sammapathana.
-There are three unquashed question. Indral Surfaces Boddha
-Spots.
+[APZ 45.3] (#apz45 .3) {#apz45 .3.ref .apz} "in the Untold mass doctrines" is
+In all masses, in all institutions, in all bodies, in all gathes
+In Genesis, All EMSin the joints, in all the troops, in all the combinations,
+In all the discounts, the construction of the paving is associated with the fact that it is necessary to be born
+In Thokal, when the fire of the wisdom is burned, when everything is lost,
+All the contagtions are also deplorable,
 
-[APZ 12.17] (#apz12 .17) {#apz12 .17 .ref .apz} Anicure Questions
-Three. The maggapputer fruit is the pulmonary nibbana. What is in question
-I invite. Ask, it will be said. Yu 'Bhagawatha' is a word of honor. (Great
-In Niddeus (7-2) 1 should be applied. 1661) A Promised Imposition This
-Bhagawa
+[APZ 45.4] (#apz45 .4) {#apz45 .4 .ref .apz} "Loses all debating
+Classicos and masses are the editors of the "Dedeya". A
+Vedaries, Advocates, Authorized Pathways, Nirukthi, Nirukthi
+Pathways and prophecies were also removed. Quoted.
+Mentals were made. Regreed to be born. Burnt in a fire called Wisdom
+Ready.
 
-[APZ 12.18] (#apz12 .18) {#apz12 .18 .ref .apz} says "This will be said"
-Manuwi, Manuwi, Manuwi, Manuwi. Measure to be imposed. Constant
-Measure the openings. Divide manometer, prostheres. Therefore
-Brahmana himself said:
+The Brahman (1-8 (6) should be applied at the end of the stanza)
 
-[Msdiv 13] (#msdiv13) {#msdiv13 .ref .msdiv} [Msdiv 14] (#msdiv14) {#msdiv14
-.ref .msdiv} [Msdiv 15] (#msdiv15) {#msdiv15 .ref .msdiv} (3-2)
-
-[APZ 15.1] (#apz15 .1) {#apz15 .1 .ref .apz} "Hope" is (ii) Images
-Hope to receive. Odourous touches in hope of receiving noise
-Hopefully. Sons Receiving Fame Wealth
-Hopefully. Looking forward to the birth of the great genus of Kandriya.
-Looking forward to the birth of Brahmina Maasara. President of the Maasara Kandy
-Looking forward to birth. Chaturmaharajik Thathangsa Thushithu Veganarathi
-Hope to be born on God Parakananthu Waswarthi. Brahmama
-Hopefully to receive spiritfulness on the physical God. Favorance
-Desire.
-
-[APZ 15.2] (#apz15 .2) {#apz15 .2 .ref .apz} "Thank you" is a yacht or
-Thank you. Give or thanks to the plaque. Clockwise or thankfully. How to
-Thank you? Cleaning and giving preference to DENaladdy and giving preference to DENaladdy
-For the right men to be given in time to be given and given to the Dennaladdh, looking for the right to the Dennaladdh
-Rectified and shaded to the Denaladh frequently, rememberance. Saw,
-Shall glamour, and give thanks to the yacht. Thanks to how
-KART? This is due to the receipt of the rout. Receiving "to hope"
-" shall be used (3-2) 1 (ii) Brahmama Physiological God
-Self Benefit on Thanksgiving, Saws, glamour,
-How to thank you for the sake, how to thank you for the right?
-The right-wing people are the most healthy. Learn in Manthridharavana
-In science fiction with inconspicuous sputum spellings
-The fifth verses of history are written by the Lokayatha The Great MansCharacteristics also
-Arrived to the end, and dispel lust or practiced to dispel lust or
-or who has discarded malice or who has practiced to dispel malice or who has been brainful
-Adhered to dispel the hypnosis, or the cold, or
-Samadhi or proclaimed or liberated or liberated
-Thanks to the wise scene, saws, glamour, saws and glamour. Practicesa
-Kareth, thankful the right ones, and speak. Stories about receiving image
-Karate. Speak about sound benefit. Speak about the odor benefit. Taste
-It is used to talk about benefit, to 'hope' and to 'speak' about 'benefit
-(3-2) 1 (ii) shall be applied.) Spirit Benefits for Brahmama Physiological God
-Speak about. Speak in a sterile way, say. "The Trusts, the Spoons,
-"In the "Awarte", Two, Siuru Pidapatha Ambulance Medications
-Pirira, Food, Beverage, Vents, Liner Series, Perfume, Cyan, Crater, Lanterns
-Hope, and go.
-
-[APZ 15.3] (#apz15 .3) {#apz15 .3.ref .apz} "Profit (Receiving)
-Hopefully." Is that the image is received, so that the room is expected. Noise
-(3-1) 1 (ii) shall be applied for receipt.) Brahmama
-Komers hope for self-benefit on the physical God.
-
-[APZ 15.4] (#apz15 .4) {#apz15 .4 .ref .apz} "Alumed in Lust
-They did not make the nation jaars." They are votive doers saws.
-Yagaya Awano is the one who is the one who has been engaged in the application of the votive.
-Namuno it, and Atho adheres it, and Namuno it, and Aluno it is the Lord of it
-And what, you can do.
-
-[APZ 15.5] (#apz15 .5) {#apz15 .5.ref .apz} "Aluno,"
-Lust is a will, a bondage, a craving, a craving,
-There was a snare, a bouquet, a bouquet, a bouquet, a bouquet, a bouquet.
-There was an allusion of gardening from the lust, a gillet, a gilding, an evaporator
-It is the same.
-
-[APZ 15.6] (#apz15 .6) {#apz15 .6 .ref .apz} "Jewelery Alloy
-They say that they will not cross the nation's jaars" is the one who has been in the same way.
-They who are alerted in the lust, do not cross the races, nor shall they cross the death of the nation
-Nonikmuno from death. Inside the Nawo Unrest and Jara Deaths
-rolling. (ii) Reverse within the road of the nation (born)
-Jarrawen dispersed, Maduno from the business no protection from death
-I say that there is no place. Deshana. I'm going to see. I keep. Opening,
-Divide, promulate, promulate, promulate.
-
-[Msdiv 16] (#msdiv16) {#msdiv16 .ref .msdiv} (3-3)
-
-[APZ 16.1] (#apz16 .1) {#apz16 .1 .ref .apz} "The Yagama
-Do not cross" is the death of Aluno nation Jara in the Lagaya
-Even if not. Not exceeding. The death of the nation's jara did not exceed, the turmoil was left undisturbed
-And he did not, the nation overturn the death inside, and the congeal road is overturned inside. (3-2) 6
-(ii) The ballot should be applied.)
-
-[APZ 16.2] (#apz16 .2) {#apz16 .2 .ref .apz} "Niducaneni, the nation from the yachts
-Jharaways are from yachts, which are separate from many yachts.
-
-(ii) 'Nidukaneni' is the Favour Word, Honor is the Word of Respect.
-This is Marissa (Nidukanani). (iii) in the divine man's locality
-Behave crossed the nation and the jaars. Nidukaneni, is the aftermath of this
-The same thing with GodBrahmins with Bambun with Brahmins
-The race of the genus Jara crossed death, crossed Marissa, is (hereinafter (ii) applied
-Must.)
-
-[APZ 16.3] (#apz16 .3) {#apz16 .3.ref .apz} "It is from the spheters
-Commentations. Deshannu Manuwi," which is 'critique it', I critique it, it is
-Requested, it will be measured in a niche. I critique it. I will be able to deviate. 'Bhagawati '
-The word of honor is said. 'Deshana Mana' will be imposed
-Ready. Therefore said Brahman, thus:
-
-[Msdiv 17] (#msdiv17) {#msdiv17 .ref .msdiv} (3-4)
-
-[APZ 17.1] (#apz17 .1) {#apz17 .1 .ref .apz} "Who did not charge himself in locca
-'Know 'is what the souls know" tells the wisdom of a certain sign
-Pajana Names (From where 'some prophecy' at Mahaniddessa (2-8) 10) 14
-Should be used until the end of the jaundice.) A resource is the outlook. 'Are they?
-The others also say to their own spirit, 'O' (belonging to himself).
-"Road" tells the Spirit of the Mine Also 'Ora' with their own images.
-Numbers tell consciousness about the 'road' and other images of Pain Sagna
-tells consciousness. The academic institutions tell the Sh: 'Oran'. 'Road' exterioris
-Institutions tell the Sise. He tells the human world. The road tells the divine world.
-'Oran' tells the Kama host. The 'road' tells the image relic and the image relic
-'Those who have given him, and others, know spiritualities, and to others
-The Spirit of Charity is as an editorist grievance
-To be used in the Great Niddeesa (11-11) 5 (iv) where 'images are prophus'
-Must.) The decision will be made with the acquaintance of the exodus.
-
-[APZ 17.2] (#apz17 .2) {#apz17.2 .ref .apz} "Nowhere does anyone get to
-To one, no shock," is to the earthy alesnas.
-Ready. 'A shock' is a craving shock, vision shock, dimensional, vibration clesias
-There are no these shocks that the shock is kamma. Unabetted, Unborn, Continction
-Initially, there was a comparison. Efology to be born. Consciousness was burned by a bending fire
-Ready. 'Nowhere 'means any place in education or external or academic
-external or inordinate. 'Lokaya' is used in Hell Location (1-1) 1 (i)
-Must) 'Do not suffer in the impoverished and despise.
-Let's say the race crossed the shit. Since the lust is congruent to 'St.'
-The name of St. Malice is brainty, croquet, virtue and grafted hatred (in the Great Niddess (3-4)
-2 The lust should be applied from where it goes.) All the Akasal gathers have that of St.
-Because the symbony is twisted. The plant, the subplant, since the sun is twisted
-So in comparison, therefore, the name of St.
-
-[APZ 17.3] (#apz17 .3) {#apz17 .3.ref .apz} "No Smoke" is
-The bodiurist was burnt. dried. The comparison was made. Linguistique Manas
-The viscous burnt. Dried, lust, brainy malice, burnt. dried.
-Especially dry Croction, transplanted hatred virtue, virtues and skin
-doing, jealousy, meziness, deception, courteousness, tightness, doing one together,
-Dimension, esteem, mythology, size, all eloquences all persecution
-All the roofs, all the trays, all the unscrupulous collectors were burnt. dried.
-Constipated. The ceasefire process says the application.
-
-[APZ 17.4] (#apz17 .4) {#apz17 .4 .ref .apz} "Brahma, which supplies the food to the
-The house is. The process is the application. Mucosa is inferior. Tongue is sacrifice. VoicesThe place of birth
-is. Let the man who has given him well. Bast-BY CROCKRY
-(ii) I have done an accident. Could I be inconspicuously
-Birthplace. The crusades are born, which will make me an accident. To my favorite preferential
-(Friend) hath made an accident. The Dosage of the Dosage
-Birthplace. I have done a work unto my enemy, and the crusade is born.
-A Reaction of any mind's action that is born in the other place.
-Angry revocation of a malice campaign campaign
-It is this process that a weariness is unhappy in the heart, a duress is a tear
-says. The high and lowerness of the crusher must be tooth. NEVER CRRODY
-Only the mind is disturbed. As long as the face becomes unnoticed. no time
-Compression of the face of the crusher is only. As long as the jaws do not shrink.
-
-[APZ 17.5] (#apz17 .5) {#apz17 .5 .ref .apz} Some Time Crop Jaw Compression
-Exclusively. As long as evil words are not issued. Some time the action is evil words
-Releases are only. As long as it does not look at this hand. NEVER CRRODY
-It only takes this hand in hand. As long as a stick is not to take a weapon, no matter what
-The crusher is only a weapon. Pag-spraying a stick or a tool
-Not. In no time, the crusher will only be spraying a tool. Stick
-Or not throwing a weapon. Never throw a crusade stick or a weapon
-It is only possible to dismantling, but not to dismantling. NEVER CRROCK STICK
-A weapon is only cramps on the mast. As long as trimming breaks are not. no time
-The process occurs only with trimming breaks. Not so much pallings, etc. no time
-CROWDY RODGYThe rake is sprouted, etc. As long as the inch breaks, etc.
-Not. In no time, the action is only for an inch break, etc. AwC Survival
-Not dead (dead). In no time, the process is only surviving.
-As far as everything is not to be done. CROCUM MEDICUM
-The person committed himself and the crusher came into a very great
-Wei. Is it possible for someone to be born in the first place, and also to be born
-The fire called wisdom does not burn, but does not smoke. Croction Convinced
-Since the enemy to the crusher is known, smoke does not burn. Break the action
-Since put, there was no suffering, not desire, and the crusher was beyond malice, but the brains
-Exceeding (which is the value of which exceeds (3-4) 3 is used from where the course goes
-Must.) All the collection of the letter was exceeded initially.
-Fasting says that he was born with a fire called wisdom.
-"Desire" tells the craving. Any lust is glued
-Eadda is a Lobby a Lobby, a root for a person, if he desires this craving craving
-The fire called wisdom to be born in the first place, and in the first place.
-It says, too, that he desires to go without persecution.
-
-[APZ 17.6] (#apz17 .6) {#apz17 .6 .ref .apz} "Birds" is that of those beings
-Any birth in animal denominations, there is a draining of the spindle,
-It is the presence of a drop in masses, which is the cause of inflammation of the masses.
-
-[APZ 17.7] (#apz17 .7) {#apz17 .7 .ref .apz} "shit" that is the same animal as that
-Creatures, a rash, a rash, a toothache, a hair tooth drop
-A Failure to Hello's Payment is a Maturation of the IndShit
-NAMI.
-
-[APZ 17.8] (#apz17 .8) {#apz17 .8 .ref .apz} "Smoke is not persecuted
-As the desire free heathen, the nation jara ran away the deaths. I say that I have been, promulations
-I, Deshana, I am. I leave, open, at the end of stanzas (1-8) 6
-Should be used.) Lord, worship the creepy spheteries, I
-A servant of the prophets said, Wemi.
-
-Punakamanawaputhaniddezno.
+Subsevamanawaputhaniddezno.
 
 [AP de Zoysa] {.author} edition.
 
