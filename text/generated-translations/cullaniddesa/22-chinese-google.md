@@ -4,7 +4,7 @@ Third product
      way has been obtained,
 
 I am a wise man who has arisen and will not be guided by others: I should walk
-alone like a rhino horn.
+alone like a rhinoceros horn.
 
 "The distorted view has been cast off": The distorted view is called the Twenty
 Dependent Views. Here, the unheard of ordinary people have never seen the
@@ -55,7 +55,7 @@ to others The guide, the one who does not depend on others, the one who is not
 due to others, and the one who has not been restrained by others, he who knows
 and sees truthfully is the one who is not ignorant, the one who knows right, and
 the one who remembers. "Because I am a wise man who has arisen and will not be
-guided by others: I should walk alone like a rhino horn.
+guided by others: I should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -63,13 +63,13 @@ Because of that, the single enlightened person said:
 has been obtained,
 
 I am a wise man who has arisen and will not be guided by others: I should walk
-alone like a rhino horn. "
+alone like a rhinoceros horn. "
 
 142. Those who do not have greed, deceit, or desire, those who do not hide evil,
      those who have eliminated evil and idiots,
 
 After        becomes the one who has left his wish in all the world, he should
-walk alone like a rhino horn.
+walk alone like a rhinoceros horn.
 
 "Those who are not greedy, who are not deceitful, and those who are not
 craving": "Greed is called craving, that is greed, greed (complete greed)...
@@ -187,7 +187,7 @@ of heaven, in the world of aggregates, in the world, in the world in the world.
 "Become the one who has no desire in all the worlds": "After all the worlds
 become the one who has no desires; become the one who departs from the thirsty;
 after becoming the one who departs from the desire." In order to become the one
-who departs from the desire in all the worlds, it should be like a rhino horn Go
+who departs from the desire in all the worlds, it should be like a rhinoceros horn Go
 alone.
 
 Because of that, the single enlightened person said:
@@ -196,13 +196,13 @@ Because of that, the single enlightened person said:
 those who have eliminated evil and idiots,
 
 After        becomes the one who has left his wish in all the world, he should
-walk alone like a rhino horn. "
+walk alone like a rhinoceros horn. "
 
 143. Evil companions should be avoided: those who see no benefit, those who are
      fixed above the wrong,
 
 Oneself should not make friends with enthusiasts and loosers, but should walk
-alone like a rhino horn.
+alone like a rhinoceros horn.
 
 "Should avoid evil companions": Anyone who has ten bases for evil views is
 called an evil companion: "There is no charity, no offerings, no offerings, no
@@ -273,7 +273,7 @@ friends; they should not make friends, should not engage in, should not
 participate, should not be used, should not be practiced, and should not It
 should be good practice (complete practice), and should not be turned around
 after holding it." For yourself, you should not make friends with enthusiasts
-and loosers, and should walk alone like a rhino horn.
+and loosers, and should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -281,13 +281,13 @@ Because of that, the single enlightened person said:
 fixed above the wrong,
 
 Oneself should not make friends with enthusiasts and loosers, but should walk
-alone like a rhino horn. "
+alone like a rhinoceros horn. "
 
 144. You should get close to people who hear a lot, those who hold the law, and
      excellent and debatable friends,
 
 After knowing all the benefits, one should dispel doubts and walk alone like a
-rhino horn.
+rhinoceros horn.
 
 "Should be close to those who hear more and those who hold the law": Friends are
 those who hear more, remember what they hear, accumulate what they hear, and
@@ -343,13 +343,13 @@ Because of that, the single enlightened person said:
 debatable friends,
 
 After knowing all the benefits, one should dispel doubts and walk alone like a
-rhino horn. "
+rhinoceros horn. "
 
 145. The entertainment, joy, desire and pleasure in the world, without
      decoration, become a person without expectations,
 
 Those who        the decoration state has separated and the truth-speakers
-should walk alone like a rhino horn.
+should walk alone like a rhinoceros horn.
 
 "Entertainment, joy and desire in the world": ""Entertainment": There are two
 kinds of entertainment: physical entertainment and verbal entertainment...
@@ -391,7 +391,7 @@ truthful, the reliable, the trustworthy, and the one who has no deception in the
 world. The decorative state has been separated, abstained, abstained,
 renunciation, renunciation, liberation, and renunciation, he lives with the
 heart of separation and restriction. Those who have separated their decoration
-status and who are truth-speakers should walk alone like rhino horns.
+status and who are truth-speakers should walk alone like rhinoceros horns.
 
 Because of that, the single enlightened person said:
 
@@ -399,7 +399,7 @@ Because of that, the single enlightened person said:
 without expectations without decoration,
 
 Those who        the decoration state has separated and the truth-speakers
-should walk alone like a rhino horn. "
+should walk alone like a rhinoceros horn. "
 
 146. Wife and parents, Caigu and relatives,
 
@@ -433,7 +433,7 @@ experiences, does not return, and does not return; all the pollution that is cut
 off by the Yilai Dao... (omitted) The pollution that is cut off by the
 non-returning Taoshe...Anyone who is polluted by the Arahat Taoshe will no
 longer experience, return, or return to the pollution." After giving up for the
-desires of the scope, you should walk alone like a rhino horn .
+desires of the scope, you should walk alone like a rhinoceros horn .
 
 Because of that, the single enlightened person said:
 
@@ -446,7 +446,7 @@ horn. "
      suffering here,
 
 Like this, this is a fishing hook. After knowing it, the wise person should walk
-alone like a rhino horn.
+alone like a rhinoceros horn.
 
 "This is dyeing: the little happiness here": ""Dyeing", or "crochet", or
 "tempting object", or "sticking", or "obstacle", which is synonymous with the
@@ -482,7 +482,7 @@ this is a fishing hook. The one who knows the wisdom knows it": "The one who
 knows the "hook" knows the "crochet", knows the "temptation", knows the
 "sticking", knows the "binding", knows After the "obstacles", he understands,
 weighs, judges, separates, and clarifies." Because this is a fishing hook, the
-wise person should walk alone like a rhino horn after he knows it.
+wise person should walk alone like a rhinoceros horn after he knows it.
 
 Because of that, the single enlightened person said:
 
@@ -490,12 +490,12 @@ Because of that, the single enlightened person said:
 suffering here,
 
 Like this, this is a fishing hook. After knowing it, the wise person should walk
-alone like a rhino horn. "
+alone like a rhinoceros horn. "
 
 148. After breaking the knots, like a fish in the water breaking the net,
 
 Return to the burned object like a fire without turning back, and should walk
-alone like a rhino horn.
+alone like a rhinoceros horn.
 
 "After breaking the knots": There are ten kinds of knots: desire knot, hate
 knot, slow knot, see knot, doubt knot, refrain from taking knot, have greed
@@ -526,14 +526,14 @@ those The pollution he no longer experiences, does not return, does not go back;
 being said... (slightly omitted) is not returned to the road... wherever the
 pollution is cut off by the Arahat, the pollution he no longer experiences, does
 not return, does not return." To return to the burned object like a fire, one
-should walk alone like a rhino horn.
+should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
 "After breaking the knots, like a fish in the water breaking the net,
 
 Return to the burned object like a fire without turning back, and should walk
-alone like a rhino horn. "
+alone like a rhinoceros horn. "
 
 149. Those whose eyes are downward and those who do not wander, those who guard
      the roots, those who protect the mind,
@@ -729,7 +729,7 @@ leakage.
 "Those who are not burned all over", those who are not burnt by the scorching
 heat of greed; those who are not burned by the scorching heat of anger; those
 who are not burned by the scorching heat of ignorance. Those who have no leakage
-and are not burned all over should walk alone like a rhino horn.
+and are not burned all over should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -742,7 +742,7 @@ horns. "
 150. After taking the mark of the family member, like a day tree covered with
      leaves,
 
-[着] After a monk, you should walk alone like a rhino horn.
+[着] After a monk, you should walk alone like a rhinoceros horn.
 
 "After taking the mark of the layman": hair, beard... (slightly) long and short
 white clothes (Thailand version), etc. are called the mark of the layman. "After
@@ -767,7 +767,7 @@ Because of that, the single enlightened person said:
 
 "After taking the mark of the resident, like a day tree covered with leaves,
 
-[着] After a monk, you should walk alone like a rhino horn. "
+[着] After a monk, you should walk alone like a rhinoceros horn. "
 
 The third product [completed].
 

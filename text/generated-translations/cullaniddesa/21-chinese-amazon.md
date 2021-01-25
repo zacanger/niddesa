@@ -42,7 +42,7 @@ After defeating all distress, the mindners should walk with him with pleasure."
 
 132. Without a wise companion: the companion, the good dwellers, the wise,
 
-If the king abandons national territory, he should be alone like a rhino horn.
+If the king abandons national territory, he should be alone like a rhinoceros horn.
 [Dph.23,329]
 
 "If there is not a wise companion": "If he has not received, received, obtained,
@@ -66,7 +66,7 @@ relatives, after cutting off the barriers of friends [, after cutting off
 storage barriers], shaving hair shaving, wrapped in a saddle, and from home,
 became non- After home life, start to become a state of nothing alone, live,
 act, turn up, guard, make survival, make survival." In order to abandon national
-territory as the king, he should be alone like a rhino horn.
+territory as the king, he should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -78,7 +78,7 @@ rhino."
 133. We do praise the companions who have enough, who should be close to the
      same and unique companions,
 
-Do not get these without fault eaters, should like a rhino horn alone.
+Do not get these without fault eaters, should like a rhinoceros horn alone.
 
 "We do praise our companions": "Indeed", this is the decisive (always) language,
 no doubt, a word of confidence, no bis, no doubt, the word of instruction、No
@@ -136,7 +136,7 @@ alone."
 
 134. saw the glory of gold: by forging good completion,
 
-The two rubbed each other on their hands, and should be alone like a rhino horn.
+The two rubbed each other on their hands, and should be alone like a rhinoceros horn.
 
 "After seeing the glory of gold": "After seeing, after seeing, after measuring,
 judging, after each, after figure out. "Gold" (Suvaassāti) is gold
@@ -155,17 +155,17 @@ in the world of heaven. They produce friction, fun and fun... past and past
 life... birth and birth... have and have... Reincarnation and reincarnation...
 flow and flow they produce friction, friction, friction each other, line, live,
 Action, turn, guard, make survival, make survival." For the two to rub each
-other on their hands, they should be alone like a rhino horn.
+other on their hands, they should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
 "After seeing the glory of gold: the well done by the forgings,
 
-Two in the hands of each otherRubbing, should be alone like a rhino horn."
+Two in the hands of each otherRubbing, should be alone like a rhinoceros horn."
 
 135. so if with my partner, there will be speech conversation or sticking,
 
-Watching the horror of the future should be like a rhino horn alone.
+Watching the horror of the future should be like a rhinoceros horn alone.
 
 "So if with my partner": "A partner with thirsty love or a man's partner. How is
 the partner of thirsty love? "Thirsty love", color thirst love... (medium)
@@ -205,19 +205,19 @@ livelihood, the horror of the The fear of fear in the group, intoxicated horror
 [, evil horror], the stiffness of terror, the erection of the hair, the fear of
 fear of the heart. "Watch the horror of the future": "This future horror he
 watched, saw, watched, watched, watched, watched, watched." To watch the horror
-of the future, you should be alone like a rhino horn.
+of the future, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
 "In this way, if with my partner, there will be words talking or sticking,
 
-Watching the horror of the future should be like a rhino horn alone."
+Watching the horror of the future should be like a rhinoceros horn alone."
 
 136. all kinds of desires are indeed like honey, pleasing, in a variety of ways
      they confuse the heart,
 
 After seeing the disease on all sorts of desires, you should be alone like a
-rhino horn.
+rhinoceros horn.
 
 "All sorts of desires are indeed as honey and pleasing": "Wills", there are two
 kinds of desires from praise: the desire of things and the desire to pollute...
@@ -316,7 +316,7 @@ is the cause.
 "After seeing the affliction in the kind of desire": "After he saw, after
 seeing, after seeing, after measuring, after judgment, after each, after the
 separation, after he figured it out." In order to see the disease on all kinds
-of desire, you should be alone like a rhino horn.
+of desire, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -367,19 +367,19 @@ horror.
 "After seeing this horror in all sorts of desires," "after he saw, after seeing,
 after seeing, after measuring, judging, after each, after he figured it out." In
 order to see this horror in all sorts of desires, you should be alone like a
-rhino horn.
+rhinoceros horn.
 
 Because then, the eloquent person said,
 
 "This is my catastrophe with tumors and scourges, diseases and thorns and
 terror,
 
-After seeing this horror in all sorts of desires, it should be like a rhino horn
+After seeing this horror in all sorts of desires, it should be like a rhinoceros horn
 alone."
 
 138. hot and cold thirst, as well as the wind wind fly fly,
 
-After enduring all this, you should be alone like a rhino horn.
+After enduring all this, you should be alone like a rhinoceros horn.
 
 "Cold and hot and thirst": "Cold" is cold for two reasons: cold due to internal
 agitation or cold due to external climate. "Heat" is hot for two reasons: heat
@@ -404,7 +404,7 @@ After enduring all this, you should be alone like a horn of rhino."
 
 139. If the dragon elephant abandons herds: the torso is lotus, excellence,
 
-Live in the forest as you like and should be alone like a rhino horn.
+Live in the forest as you like and should be alone like a rhinoceros horn.
 
 "Such as dragon elephant after abandoning herds": dragon elephant is called
 dragon elephant (elephant), but also for the dragon For what reason is the
@@ -473,12 +473,12 @@ Because then, the eloquent person said,
 
 "Such as dragon elephant abandon the herd: the torso of lotus, excellence,
 
-Live in the forest as you like, and should be alone like a rhino horn."
+Live in the forest as you like, and should be alone like a rhinoceros horn."
 
 140. That is impossible: anyone who is happy to meet can reach a temporary
      relief,
 
-After listening to the Sunman's language, you should be alone like a rhino horn.
+After listening to the Sunman's language, you should be alone like a rhinoceros horn.
 
 "That's not possible: those who are happy to meet can reach temporary relief":
 "This is said by Worldman [MN.122]: Anan! Indeed, "Where happy to party, better
