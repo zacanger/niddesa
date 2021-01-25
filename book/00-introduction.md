@@ -47,7 +47,7 @@ not to capitalize pronouns when referring to the Buddha, as I feel that creates
 too much of a god-like air; Christians capitalize pronouns when referring to
 their god, but the Buddha was not a god, he was a human teacher.
 
-For readability, I have omitted and abbreviated some stock passages which are
+For readability, I have omitted and omitted some stock passages which are
 repeated verbatim, as well as concluding sentences of each paragraph when they
 simply repeat the first sentence, and concluding repetitions after the
 explanation of each verse. Without these omissions, the book would be at least
