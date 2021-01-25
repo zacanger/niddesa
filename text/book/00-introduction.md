@@ -12,9 +12,8 @@ Sāriputta (Pāli; Sanskrit Sariputra). There are two parts:
 * The Cūlạ Niddesa (Nd 2), a commentary on the Pārāyana Vagga (Sn 5) and the
   Khaggavisānạ Sutta (Rhinoceros Sutta, Sn 1.3)
 
-It is assumed that the reader is already familiar with the Sutta Nipāta; if not,
-put this book down, find a copy of that one, read it, and come back to this one
-later.
+While this text is a commentary on sections of the Sutta Nipāta, there's no need
+to be familiar with work first, as the verses commented on are translated here.
 
 ## About This Translation
 
@@ -35,10 +34,7 @@ and may inform future corrections and revisions.
 This translation prefers Pāli over Sanskrit terms (Dhamma vs. Dharma, kamma vs.
 karma, etc.). To paraphrase Engels, changing the words we use a bit won't change
 the things themselves. I have also omitted and abbreviated stanzas which were
-repeated verbatim. The repetitious style is common in the ancient sources
-because it was an aid for memorization and recitation, but does nothing (in the
-translator's opinion) to improve the text when in print. This results in a
-significantly shorter version than the transliterated Pāli editions.
+repeated verbatim for readability.
 
 Included verse numbers are numbers of the verses as presented in the two parts
 of the Niddesa itself. Including separate verse numbers for each sutta, their
@@ -49,37 +45,22 @@ translations of the Sutta Nipāta should be straightforward for the reader.
 
 I have also chosen to use the term 'Rhinoceros' rather than 'Rhinoceros Horn';
 there is some debate about this, but a decision had to be made one way or the
-other. The meaning behind the verses is the same either way (unless, maybe,
-you're a rhinoceros expert).
+other. The message in the verses is the same either way.
 
 ## Credits and Licenses
 
 ### Text
 
-The Chinese was translated by [Zhuang Chunjiang](https://agama.buddhason.org/);
-no copyright notice was found.
+The Chinese was translated by [Zhuang
+Chunjiang](https://agama.buddhason.org/Ni/Ni1.htm); no license copyright notice
+was found.
 
-The Sinhala used to cross-check the translation from the thinese was sourced
+The Sinhala used to cross-check the translation from the Chinese was sourced
 from [Sutta
 Central](https://github.com/suttacentral/sc-data/tree/5c060c479f4cb17a0891011d57d4933c81918ead/html_text/si/pli/sutta/kn)
-and was originally translated by A. P. de Zoyza. The original notice is included
-here:
+and was originally translated by A. P. de Zoyza.
 
-> AP de Zoysa edition.
->
-> Permission to publish was kindly granted by Kumari Jayawardhana.
->
-> Digital files were kindly supplied by Sirisumana Godage of Godage International
-> Publishing, who publish a print edition of this text.
->
-> Conversion from PDF was by Janaka of http://pitaka.lk/.
->
-> The assistance of Amaradasa Liyanagamage, Ven Mettavihari and Maithri Panagoda
-> is gratefully acknowledged.
->
-> Prepared for SuttaCentral by Ayya Kathrin Vimalañāṇī.
-
-In addition, the translations of the Sutta Nipāta by V. Fausboll and Bhikkhu
+In addition, the translations of the Sutta Nipāta by Viggo Fausböll and Bhikkhu
 Bodhi have been valuable references, as well as various Pāli dictionaries and
 glossaries.
 
