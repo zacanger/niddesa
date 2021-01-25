@@ -1,7 +1,3 @@
-16. Statement of the Shalifer
-
-Secondly, the statement of the Scripture of Sharif will say
-
 190. [Like this, His Holiness Shariffer:] I had not seen it before, or no one
      had heard of it,
 
@@ -2074,28 +2070,3 @@ Because then, Worldman said:
 
 Appropriate and rightly consider the law, to become the exclusive he should kill
 the darkness. [Like this Worldman (said)]"
-
-Sixteenth [completed] statement of the Scripture of Sharif.
-
-Eight sets of products sixteen classic instructions have been complete.
-
-Great interpretation classic has been completed.
-
-
-
-
-
-Excerpt:
-
-1. live in a quiet place should have the resistance and morality.
-
-2. whenever the mind is cloudy (all bad work) shouldKnowing that should be
-   evicted.
-
-3. unclear, not as well as rational/I am slow/shameless, shameless, fall is the
-   root of anger and very slow.
-
-4. meditators should cut off their intention and regret.
-
-12/15/2020 16:20
-

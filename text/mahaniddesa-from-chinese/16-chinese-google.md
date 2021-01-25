@@ -1,6 +1,4 @@
-16. Explanation of the Sariputra
-
-Secondly, the description of the Sariputta will say:
+### 16. Explanation of the Sariputra Sutta
 
 190. [Venerable Sariputta like this:] Before this, no one had seen me or heard
      of anyone,
@@ -2310,28 +2308,8 @@ free heart,
 deliberate the law in a timely and correct manner, he should kill the darkness
 when he becomes a single person. [Like this Blessed One (say)]"
 
-The sixteenth explanation of the Sariputra [Completed].
+---
 
 The description of the sixteen classics in groups of eight is complete.
 
-The interpretation of the classics has been completed.
-
-
-
-
-
-Summary:
-
-1. The ability and virtue to live in a quiet place with no one.
-
-2. Whenever the mind is cloudy (all unwholesome contrived) should beKnowing it,
-   it should be driven away.
-
-3. Ignorance/Not as good as reason/I am slow/no shame/no shame/rejection is the
-   root of anger and extreme slowness.
-
-4. The meditator should stop thinking and regret.
-
-12/15/2020 16:20
-
-
+The interpretation of the great classics has been completed.
