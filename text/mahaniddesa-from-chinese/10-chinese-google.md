@@ -489,60 +489,49 @@ collection of dhammas is extinguishing dhamma". The one who knows the Dhamma by
 himself, self-proven, does not believe in any other Samana, or Brahman, or
 heaven, or man, or Brahma.
 
+This was said by the Blessed One [SN.48.44]: "Sariputra! You have [this] faith:
+when the root of faith has been practiced and practiced more, is is an immortal
+foothold, an immortal shore, an end of immortality?; when the root of
+vitality..., the root of mind..., the root of concentration..., when the root of
+wisdom..., ?"
+
+"Great Virtue! Here, I do not believe in the Blessed One(??): when the root of
+faith... , when the root of vitality... , when the root of mind... , when the
+root of concentration..., when the root of wisdom ..., great virtue! If this is
+not known, not seen, not discovered, not testified, not touched by wisdom,
+there, they will come to other people with faith: when the root of faith has
+been practiced..., there is an immortal foothold, an immortal other side, and an
+immortal end; but, great virtue! Those who have known, seen, discovered,
+testified, and touched with wisdom, where they are confident and undoubtful: the
+root of faith...., and an end of immortality. Great Virtue! For me, this has
+been known, has been seen, has been discovered, has been testified, has been
+touched with wisdom, where I am confident and undoubted: when the root of
+faith..., there is a foothold...."
+
+"Good! Well! Sariputra! Sariputra! If this is not known, unseen, undiscovered,
+untested, untouched by wisdom, there, they will come to others with faith: when
+the root of faith..., when the root of wisdom has already been practiced and
+practiced more, there is an immortal foothold, an immortal shore, and an end of
+immortality."
+
+"The unbelievers and those who are not known, and those who have cut off
+    reincarnation,
+The person who destroys the opportunity and the person who has spit out, he is
+    indeed the best person." [Dhp. 97]
+
+"The unbelievers will not be tainted": "All ignorant ordinary people are
+tainted, good ordinary people, including the seven kinds of learned, they are
+tainted, and the Arahant is neither tainted nor away from being tainted: he who
+is detached from the staining, the extinction of greed becomes the state of
+freedom from greed; the extinction of anger becomes the state of freedom from
+anger; the extinction of delusion becomes the state of freedom from delusion, he
+is the person who has descended into the state, has practiced the behavior...
+(omitted), the cycle of life and death, without his rebirth." An unbeliever who
+is not tainted.
+
 ---
 checkpoint
 ---
-
-This was said by the Blessed One [SN.48.44]: "Sariputra! You have [this] faith:
-when the root of faith has been practiced and more practiced, there is an
-immortal foothold, an immortal shore, an end of immortality; when the root of
-vitality ...Being the root of mind...when the root of concentration...when
-Huigen practices and practice more, is there an immortal foothold, an immortal
-shore, and an end of immortality?"
-
-"Great Virtue! Here, I do not believe in the Blessed One: when the root of
-faith... when the root of vitality... when the root of mind... when the root of
-concentration... when the root of wisdom has been practiced and practiced more,
-there is an immortal foothold The place, the other side of the immortality, the
-end of the immortality, great virtue! If this is not known, not seen, not
-discovered, not testified, not touched by wisdom, there, They will come to other
-people with faith: when the root of faith has been practiced and practiced more,
-there is an immortal foothold, an immortal shore, and an end of immortality;
-when the root of vitality...the root of thought...the root of determination...
-…When Hui Gen has practiced and practiced more, there is an immortal foothold,
-an immortal other side, and an immortal end; but, great virtue! Those who have
-been known, seen, discovered, testified, and touched with wisdom, where they are
-confident and undoubted: be the root of faith...the root of vitality...the root
-of mindfulness... …When the roots are fixed...When the wisdom root has been
-practiced and practiced more, there is an immortal foothold, an immortal other
-side, and an end of immortality. Dade! For me, this has been known, has been
-seen, has been discovered, has been testified, has been touched with wisdom,
-where I am confident and undoubted: when the root of faith... when the root of
-vitality... Niangen... When the root of concentration... When Huigen has already
-practiced and practiced more, there is an immortal foothold, an immortal shore,
-and an end of immortality. "
-
-"Okay! Okay! Sariputra! Sariputra! If this is not known, unseen, undiscovered,
-untested, untouched by wisdom, there, they will come to others with faith: When
-the root of faith... (slightly omitted) When the root of wisdom has already
-practiced and practiced more, there is an immortal foothold, an immortal shore,
-and an end of immortality."
-
-"The unbelievers and those who are not known, and those who have cut off
-reincarnation,
-
-The person who destroys the opportunity and the person who has vomited, he is
-indeed the best person. "[Dhp. 97]
-
-"Unbelievers, he will not be tainted": "All ignorant ordinary people are
-tainted, good ordinary people, including the seven kinds of learned, they are
-tainted, and the Arahant is neither tainted nor lied to be tainted: he who is
-detached from the tainted is greedy The extinction of the person becomes the
-state of freedom from greed; the extinction of anger becomes the state of
-freedom from anger; the extinction of delusion becomes the state of freedom from
-delusion, he is the person who has fallen into the state, has practiced the
-behavior... (omitted) the cycle of life and death, Without his rebirth." As an
-unbeliever, he is always infected.
 
 89. Learning to gain, and getting angry when there is no gain,
 
