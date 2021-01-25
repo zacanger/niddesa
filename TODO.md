@@ -1,4 +1,3 @@
-* Fix issues marked with `??`
 * When a first edition is ready:
     * Unignore the assets dir and index.html and turn on GH pages
     * Comment on related forums, wikipedia, etc
