@@ -31,8 +31,12 @@ with time.
 
 This translation prefers Pāli over Sanskrit terms (dhamma vs. dharma, kamma vs.
 karma, etc.). If you're used to the Sanskrit terms — to paraphrase Engels,
-changing the words we use a bit won't change the things themselves. For
-readability, I have also omitted and abbreviated some stock passages which are
+changing the words we use a bit won't change the things themselves. The Chinese
+variously translates Bhagavā as _Lord_, _World-Honored One_, and _Blessed One_,
+and other English translations will also sometimes just write _Bhagavāt_; I've
+chosen to use _Blessed One_ because I like the feel of it.
+
+For readability, I have omitted and abbreviated some stock passages which are
 repeated verbatim, as well as concluding sentences of each paragraph (which
 usually repeat the first sentence), and concluding repetitions after the
 explanation of each verse. Without these omissions, the book would likely be
