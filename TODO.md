@@ -1,4 +1,5 @@
 * Fix verse lines — most of them put two lines on the same line
+  * cnd done
 * Fix issues marked with `??`
 * When a first edition is ready:
     * Unignore the assets dir and index.html and turn on GH pages

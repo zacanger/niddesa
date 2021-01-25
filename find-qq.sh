@@ -1,10 +1,13 @@
-#!/bin/sh
+#!/usr/bin/env bash
+set -e
 
 # Finds remaining occurrences of '??' and displays matching files sorted
 # by the amount of occurrences
 
-echo Total lines:
-ag -Q '??' book | wc -l
+count=$(ag -Q '??' book --count | sort --field-separator=: -g  -k2)
+total=$(echo "$count" | cut -d: -f2 | awk '{ sum +=$1 }; END { print sum }')
+
+echo "Total occurences: $total"
 echo
 echo Per file:
-ag -Q '??' book --count | sort --field-separator=: -g  -k2
+echo "$count"
