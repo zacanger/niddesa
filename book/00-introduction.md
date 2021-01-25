@@ -45,8 +45,9 @@ not to capitalize pronouns when referring to the Buddha, as I feel that creates
 too much of a god-like air; Christians capitalize pronouns when referring to
 their god, but the Buddha was not a god, he was a human teacher. Capitalization
 of the word _dhamma_ is more or less at my discretion — this is always difficult
-since _dhamma_ could refer to a method, a fact, anything that exists, the Truth,
-a law, the Law, etc.; hopefully I haven't made too many mistakes here.
+since _dhamma_ could refer to a method, the Method, a fact, anything that
+exists, the Truth, a law, the Law, etc.; hopefully I haven't made too many
+mistakes here.
 
 The Niddesa uses the same lists of synonyms and similes to explain similar or
 identical phrases and passages, sometimes several times within the same chapter.
