@@ -1,4 +1,5 @@
-* Correct names, especially in cnd — use Fausboll or B. Bodhi to check against
+* Correct names and other proper nouns in cnd — use Fausboll or B. Bodhi to check against
+* Add accents and diacritics to Pali words
 * Fix major passages marked with `TODO`
 * Fix minor issues marked with `??`
 * Check everything against the generated Sinhala translations for any more inconsistencies
