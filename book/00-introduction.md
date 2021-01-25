@@ -15,7 +15,11 @@ years after his death. There are two parts:
 
 While this text is a commentary on sections of the Sutta Nipāta, there's no need
 to be familiar with that work first, as the verses commented on are translated
-here.
+here. At the same time, if you are just a casual reader interested in the early
+suttas, I would recommend reading one of the translations of the Sutta Nipāta
+instead; this is a somewhat technical commentary intended for scholars and
+deeper understanding of the suttas, and may be too detailed and dry for the
+casual reader.
 
 ## About This Translation
 
@@ -44,6 +48,8 @@ of the word _dhamma_ is more or less at my discretion — this is always difficu
 since _dhamma_ could refer to a method, a fact, anything that exists, the Truth,
 a law, the Law, etc.; hopefully I haven't made too many mistakes here.
 
+The Niddesa uses the same lists of synonyms and similes to explain similar or
+identical phrases and passages, sometimes several times within the same chapter.
 For readability, I have omitted some stock passages which are repeated verbatim,
 as well as concluding sentences of each paragraph when they simply repeat the
 first sentence, and concluding repetitions after the explanation of each verse.
