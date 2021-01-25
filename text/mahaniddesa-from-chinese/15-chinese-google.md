@@ -1237,7 +1237,7 @@ Anything that seems to him, feeling, thinking, behavior, consciousness, "this is
 mine, or this is someone else's." To be grasped, grasped He is not lost to those
 who are attached to, taken, and trusted. This is also said [SN.2.18]: "Samoan!
 Are you happy?" "Friend! What did you get?" "In that case, Sandamon! Are you
-sad?" "Friend! What did you lose?" "In that case? , Shaman! Are you neither
+sad?" "Friend! What did you lose?" "In that case? , Samana! Are you neither
 happy nor sad?" "Yes, friend!"
 
 "After a long time, finally, I saw the Brahman of ParNibbana,

@@ -1,6 +1,4 @@
-4. Explanation of the Pure Eight Groups
-
-Secondly, the explanation of the Pure Eight Groups will say:
+### 4. Explanation of the Pure Octad
 
 23. I see purity: the highest disease-free, which is completely pure by seeing
     and human beings,
@@ -154,7 +152,7 @@ the Samana who cannot overcome them. Which four? Homeowner! Here, he does not
 act as evil deeds, does not speak evil words, does not intend with evil
 intentions, does not live a life of evil, the owner! I have established that the
 man who possesses these four methods is the one who has goodness, the supreme
-one who is good, the one who is supremely attained, and the unsurpassable Shaman
+one who is good, the one who is supremely attained, and the unsurpassable Samana
 [MN.78]. Similarly, some Samanas and Brahmins regard precepts as pure. They
 believe that the degree of precepts, the degree of [self] inhibition, the degree
 of self-control, the degree of non-violation are pure, pure, and pure;

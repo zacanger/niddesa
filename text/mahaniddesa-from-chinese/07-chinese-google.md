@@ -293,7 +293,7 @@ reputation declined, declined, lost, declined, disappeared, and shattered. "For
 Fan's previous glory and praise, his one may even be abandoned.
 
 "After seeing this, he should learn, he should give up his lust": "This", the
-glory and praise in the previous state of Shaman, later, when he gave up the
+glory and praise in the previous state of Samana, later, when he gave up the
 Buddha, Dhamma, Sangha, learned and returned to the vulgar, there is no glory
 and no reputation, this It is to achieve failure. "After seeing", "after seeing,
 after measuring, after judging, after separating, after clarifying." This is

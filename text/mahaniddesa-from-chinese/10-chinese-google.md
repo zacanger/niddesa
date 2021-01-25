@@ -456,7 +456,7 @@ needs and medical necessities! Van Samana should be medicine with fermented cow
 urine or crushed halil, which is appropriate. After grasping that, he wears
 coarse clothes; receives coarse food; lives in coarse dwellings; uses coarse
 patients' necessities and medical necessities. The homeowners knew him this way:
-"This Shaman is a person with little desire, a contented person, a lonely
+"This Samana is a person with little desire, a contented person, a lonely
 person, a person who is away from the masses, a person whose vitality has been
 activated, and a talker. "They used more and more invitations with clothes,
 food, shelter, patients' necessities, and medical necessities." He said: "The
@@ -770,7 +770,7 @@ talented.
 
 "The unbeliever, he will not be tainted": "The unbeliever," who has been
 personally proven by himself, the Dhamma of self-representation does not believe
-in any other Shaman, or Brahman, or heaven, or man, or Brahma: "All actions are
+in any other Samana, or Brahman, or heaven, or man, or Brahma: "All actions are
 impermanent "I've proved it by myself... (slightly omitted) "All actions are
 suffering"... "All Dhamma is selfless"... "Act is based on ignorance"...
 (Omitted) "Being based on life Old death"..."Death by ignorance leads to
@@ -782,7 +782,7 @@ gathering, extinction, pleasure, trouble, detachment of the touch... the
 gathering of the five aggregates... (omitted) the four major gatherings,
 disappearance, pleasure, trouble, detachment are justified by oneself Knowing...
 (omitted) "Any collection of dhammas is extinguishing dhamma." The dhamma that
-is self-proven and self-proven does not believe in any other Shaman, or Brahman,
+is self-proven and self-proven does not believe in any other Samana, or Brahman,
 or heaven, or man, or Brahma.
 
 This was said by the Blessed One [SN.48.44]: "Sariputra! You have [this] faith:

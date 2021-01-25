@@ -100,7 +100,7 @@ The master of such witty words: the masters who came from the sky from Doust. "
 drives away all darkness and gains joy alone.
 
 "The world including the gods": "The world including the gods, the demons, the
-Brahma, the generations including the Shaman and the Brahman, the heavens, and
+Brahma, the generations including the Samana and the Brahman, the heavens, and
 the people." It is the world including the gods.
 
 "If someone with eyes sees": ""When the Blessed One is sitting under the yellow
@@ -609,7 +609,7 @@ medical necessities for Samana! "[Fan Samana should use cow urine fermented
 medicine or crushed holile, which is appropriate. After clinging to that, he
 wears coarse clothes; receives coarse food; lives in coarse dwellings; uses
 coarse patients' necessities and medical necessities. The homeowners knew him
-this way: "This Shaman is a person who has few desires, a contented person, a
+this way: "This Samana is a person who has few desires, a contented person, a
 lonely person, a person who is away from the masses, a person whose vitality has
 been activated, and a talker. "They used more and more invitations with clothes,
 food, shelter, patients' necessities, and medical necessities." He said: "The

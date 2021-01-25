@@ -153,7 +153,7 @@ four? Homeowner! Here, he does not act as evil deeds, does not speak evil words,
 does not intend with evil intentions, does not live a life of evil, the owner! I
 have established that the man who possesses these four methods is the one who
 has goodness, the supreme one who is good, the one who is supremely attained,
-and the unsurpassable Shaman [MN.78]. Similarly, some Samana and Brahmans are
+and the unsurpassable Samana [MN.78]. Similarly, some Samana and Brahmans are
 the supreme scepters of precepts. They regard the degree of precept, the degree
 of [self] restraint, the degree of self-control, and the degree of non-violation
 as pure, pure, and pure; detachment, liberation, and pervasiveness. Separation,

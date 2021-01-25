@@ -110,7 +110,7 @@ became ashamed when he was rebuked, and became a fault seeker when [being]
 rebuked.
 
 "The yoke is talked about among the masses": "Among the Kshatriya crowd, or the
-Brahman crowd, or the homeowner crowd, or the Shaman crowd, they are talked
+Brahman crowd, or the homeowner crowd, or the Samana crowd, they are talked
 about yoke, strong yoke, toward the upper yoke, and completely toward the upper
 yoke. , Talk about yoke completely." Putting on the yoke to be talked about
 among the crowd.
