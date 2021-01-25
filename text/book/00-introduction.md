@@ -38,12 +38,21 @@ because it was an aid for memorization and recitation, but does nothing (in the
 translator's opinion) to improve the text when in print. This results in a
 significantly shorter version than the transliterated Pāli editions.
 
-I have also chosen to use the term 'Rhinoceros' rather than 'Rhinoceros Horn';
-there is some debate about this, and maybe when I can read the Pāli I'll feel
-differently, but the meaning of the sutta is the same either way (unless you're
-a rhinoceros expert, maybe).
+Included verse numbers are numbers of the verses as presented in the two parts
+of the Niddesa itself. Including separate verse numbers for each sutta, their
+places in the Sutta Nipāta, and/or chapter their chapters, would lead to a
+confusing mess, so I've chosen to omit them. Most of the suttas are less than
+twenty verses, so correlating verses between the Niddesa and different
+translations of the Sutta Nipāta should be straightforward for the reader.
 
-### Credits and Licenses
+I have also chosen to use the term 'Rhinoceros' rather than 'Rhinoceros Horn';
+there is some debate about this, but a decision had to be made one way or the
+other. The meaning behind the verses is the same either way (unless, maybe,
+you're a rhinoceros expert).
+
+## Credits and Licenses
+
+### Text
 
 The Chinese was translated by [Zhuang Chunjiang](https://agama.buddhason.org/);
 no copyright notice was found.
@@ -72,13 +81,18 @@ In addition, the translations of the Sutta Nipāta by V. Fausboll and Bhikkhu
 Bodhi have been valuable references, as well as various Pāli dictionaries and
 glossaries.
 
-This translation was edited in
+### Software
+
+The initial translations were automated using [Python](https://www.python.org)
+and paid online services. This translation was edited in
 [Markdown](https://daringfireball.net/projects/markdown/) using
-[vim](https://www.vim.org) and built with [Pandoc](https://pandoc.org/)
+[vim](https://www.vim.org) and built with [Pandoc](https://pandoc.org/),
 initially using [this project](https://github.com/wikiti/pandoc-book-template)
 (MIT licensed) as a template. The typeface is
 [Cardo](https://www.fontsquirrel.com/fonts/cardo) (SIL v1.10 licensed). Original
 code used in this project is licensed LGPL-3.0.
+
+### License
 
 This translation is licensed under the [Creative Commons
 Attribution-NonCommercial-ShareAlike 4.0
@@ -88,3 +102,5 @@ as long as you provide attribution (give credit back to this work) and share
 your changes under the same license. Under this license you may not use this
 translation for commercial purposes (you can't sell it). See the link for the
 full version of the license.
+
+\newpage

@@ -7,6 +7,7 @@ CHAPTERS = text/book/*.md text/book/mahaniddesa/*.md text/book/cullaniddesa/*.md
 TOC = --toc --toc-depth 4
 METADATA_ARGS = --metadata-file $(METADATA)
 TEMPLATES = $(shell find templates/ -type f)
+PAGEBREAK = -L templates/pagebreak.lua
 # COVER_IMAGE = cover.jpg
 
 # Chapters content
@@ -19,7 +20,7 @@ CONTENT_FILTERS = tee
 # DEBUG_ARGS = --verbose
 
 # Combined arguments
-ARGS = $(TOC) $(METADATA_ARGS) $(FILTER_ARGS) $(DEBUG_ARGS)
+ARGS = $(PAGEBREAK) $(TOC) $(METADATA_ARGS) $(FILTER_ARGS) $(DEBUG_ARGS)
 
 PANDOC_COMMAND = pandoc
 
