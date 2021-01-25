@@ -21,21 +21,17 @@ here.
 There has never been a complete English language translation before. After
 asking around online, I got [an
 answer](https://buddhism.stackexchange.com/a/43712/19522) that pointed me to a
-Sinhala translation; I also later found a Chinese translation. While it would
-surely be valuable to learn Chinese, Sinhala, and Pāli, that seemed like a
-larger project than I wanted to take on.
-
-So I automated translations from both the Sinhala and the Chinese using the
-wonders of modern technology and a bit of code, and took these four (two sources
-times two passes at translation), and wrangled them into the first English
-translation. There will likely be many errors, inaccuracies, and inconsistencies
-in this early translation. Several transliterations of the Pāli are available,
-and may inform future corrections and revisions.
+Sinhala translation; I also later found a Chinese translation. Not knowing
+Sinhala or Chinese, I automated translations using a bit of code, and took these
+translations and wrangled them into this translation. There will likely be many
+errors, inaccuracies, and inconsistencies in this early edition. Several
+Romanizations of the Pāli are available, and may inform future corrections and
+revisions.
 
 This translation prefers Pāli over Sanskrit terms (Dhamma vs. Dharma, kamma vs.
 karma, etc.). To paraphrase Engels, changing the words we use a bit won't change
-the things themselves. I have also omitted and abbreviated stanzas which were
-repeated verbatim for readability.
+the things themselves. I have also omitted and abbreviated, for readability,
+stanzas which were repeated verbatim.
 
 Included verse numbers are numbers of the verses as presented in the two parts
 of the Niddesa itself. Including separate verse numbers for each sutta, their
@@ -43,10 +39,6 @@ places in the Sutta Nipāta, and/or chapter their chapters, would lead to a
 confusing mess, so I've chosen to omit them. Most of the suttas are less than
 twenty verses, so correlating verses between the Niddesa and different
 translations of the Sutta Nipāta should be straightforward for the reader.
-
-I have also chosen to use the term 'Rhinoceros' rather than 'Rhinoceros Horn';
-there is some debate about this, but a decision had to be made one way or the
-other. The message in the verses is the same either way.
 
 References to other texts are in square brackets and use the common
 abbreviations (Jat., Dhp., etc.); statements of who is speaking a given stanza
@@ -67,8 +59,10 @@ Central](https://github.com/suttacentral/sc-data/tree/5c060c479f4cb17a0891011d57
 and was originally translated by A. P. de Zoyza.
 
 In addition, the translations of the Sutta Nipāta by Viggo Fausböll and Bhikkhu
-Bodhi have been valuable references, as well as various Pāli dictionaries and
-glossaries, and Sutta Central's full offline archive.
+Bodhi have been valuable references (if I had known about Bhikkhu Bodhi's
+translation before starting this project, I may have never committed to it!), as
+well as various Pāli dictionaries and glossaries, and Sutta Central's full
+offline archive.
 
 ### Software
 

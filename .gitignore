@@ -17,7 +17,7 @@
 .vscode
 /tags
 __pycache__/
-/build
+/assets
 core
 venv
 /x/

@@ -1,8 +1,8 @@
 # Niddesa
 
-[Read Online](https://zacanger.com/niddesa/build/niddesa.html) &middot;
-[PDF](https://zacanger.com/niddesa/build/niddesa.pdf) &middot;
-[EPUB](https://zacanger.com/niddesa/build/niddesa.epub) &middot;
+[Read Online](https://zacanger.com/niddesa/assets/niddesa.html) &middot;
+[PDF](https://zacanger.com/niddesa/assets/niddesa.pdf) &middot;
+[EPUB](https://zacanger.com/niddesa/assets/niddesa.epub) &middot;
 [Repository](https://github.com/zacanger/niddesa)
 
 [![Support with PayPal](https://img.shields.io/badge/paypal-donate-yellow.png)](https://paypal.me/zacanger)

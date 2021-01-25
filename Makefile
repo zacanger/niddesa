@@ -1,5 +1,5 @@
 # Build configuration
-BUILD = build
+BUILD = assets
 MAKEFILE = Makefile
 OUTPUT_FILENAME = niddesa
 METADATA = metadata.yml
