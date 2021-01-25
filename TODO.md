@@ -1,4 +1,5 @@
 * Correct names and other proper nouns in cnd — use Fausboll or B. Bodhi to check against
+* Remove trailing sentences from explanations (the last sentence repeating the first)
 * Add accents and diacritics to Pali words
 * Fix major passages marked with `TODO`
 * Fix minor issues marked with `??`
