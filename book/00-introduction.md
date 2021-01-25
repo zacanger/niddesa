@@ -2,12 +2,6 @@
 
 # Introduction
 
-I have never been clear on the difference between a preface, a forward, and an
-introduction, so all of this miscellaneous information that comes before the
-main body of text is being included in a section called Introduction.
-
-## About the Niddesa
-
 The Niddesa is an ancient part of the Pāli Canon, the traditional texts of
 Theravāda Buddhism, from the Khuddaka Nikāya (the 'small' or 'miscellaneous'
 collection) in the Sutta Piṭaka (the basket of discourses). It is a commentary
@@ -45,13 +39,15 @@ and other English translations will also sometimes just write _Bhagavāt_; I've
 chosen to use _Blessed One_ because I like the feel of it. I have also chosen
 not to capitalize pronouns when referring to the Buddha, as I feel that creates
 too much of a god-like air; Christians capitalize pronouns when referring to
-their god, but the Buddha was not a god, he was a human teacher.
+their god, but the Buddha was not a god, he was a human teacher. Capitalization
+of the word _dhamma_ is more or less at my discretion — this is always difficult
+since _dhamma_ could refer to a method, a fact, anything that exists, the Truth,
+a law, the Law, etc.; hopefully I haven't made too many mistakes here.
 
-For readability, I have omitted and omitted some stock passages which are
-repeated verbatim, as well as concluding sentences of each paragraph when they
-simply repeat the first sentence, and concluding repetitions after the
-explanation of each verse. Without these omissions, the book would be at least
-twice as long as it is now.
+For readability, I have omitted some stock passages which are repeated verbatim,
+as well as concluding sentences of each paragraph when they simply repeat the
+first sentence, and concluding repetitions after the explanation of each verse.
+Without these omissions, the book would be at least twice as long as it is now.
 
 Included verse numbers are numbers of the verses as presented in the two parts
 of the Niddesa itself. Including separate verse numbers for each sutta, their
@@ -67,7 +63,7 @@ clarifications, and marks of unclear passages in parentheses.
 
 ### Publication History
 
-First edition: Vesak 2021.
+First edition: March 2021.
 
 ### Dedication
 
