@@ -29,10 +29,10 @@ The auto-generated translations were done using Google and Amazon's translation
 services. The Yandex and IBM Watson translations were terrible, not worth trying
 to use.
 
-./text/book contains the contents. If you find a problem or want to help, please
-feel free to [submit an
+./book contains the contents. If you find a problem or want to help, please feel
+free to [submit an
 issue](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc).
-See ./TODO.md for current tasks. ./text/pali is for future reference.
+See ./TODO.md for current tasks. ./reference is for future reference.
 
 ### The Code
 
