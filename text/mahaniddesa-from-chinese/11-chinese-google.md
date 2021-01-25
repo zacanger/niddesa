@@ -1,200 +1,112 @@
-11. Explanation of the quarrel
+### 11. Explanation of Quarrels and Arguments
 
-Secondly, the explanation of the quarrel and argument will say:
-
-97. Where are there many quarrels and arguments, weeping, sadness and
+87. From where are there many quarrels and arguments, weeping, sadness, and
     stinginess?
-
-slow, extremely slow, and divorce, where are there many? come on! Please tell me
-about that.
+Conceit, arrogance, and divisiveness, where are they many? Come! Please tell me
+    about that.
 
 "Where are there many quarrels and arguments": "Quarrels" are quarrels based on
-one behavior, and "arguments" are the same. Anyone who argues is a quarrel;
-whoever argues is a quarrel. Or, in another way, arguing is called the first
-part of the quarrel. King arguing with king, Kshatriya arguing with Kshatriya,
-Brahman arguing with Brahman, homeowner arguing with homeowner, mother arguing
-with son, son arguing with mother, father arguing with son, son arguing with
-father, brother arguing with brother , Brothers argue with sisters, sisters
-argue with brothers, friends argue with friends [MN.13], this is an argument.
-What is a quarrel? Those who are keen on clubs at home quarrel with their bodies
-and words, and those who violate precepts quarrel with their bodies and words.
-This is a quarrel.
+one behavior, and "arguments" are the same. Anyone who argues, it is a quarrel;
+whoever argues, it is an argument. Or, in another way, arguing is called the
+first part of the quarrel. King arguing with king, Kshatriya arguing with
+Kshatriya, Brahman arguing with Brahman, homeowner arguing with homeowner,
+mother arguing with son, son arguing with mother, father arguing with son, son
+arguing with father, brother arguing with brother, brothers argue with sisters,
+sisters argue with brothers, friends argue with friends [MN.13], this is an
+argument. What is a quarrel? Those who are keen on clubs at home quarrel with
+their bodies and words, and those who violate precepts quarrel with their bodies
+and words. This is a quarrel.
 
 "Where are there many quarrels and arguing": "Where are there many quarrels and
-quarrels? Where are they born? Where are they born? Where are they born? Where
-are they born? Where are they born? What are their causes? What It is the
-collection? What is its birth? What is its root?" "He inquired about the root of
-quarrel and argument; he inquired about the reason; he inquired about the cause;
-he inquired about the arising; he inquired about the generation; he inquired and
-waited; he inquired about food; he Inquiring about the fate; he inquiring about
-the fate; he inquiring about the collection, he forcibly inquired, begged,
-requested, and made it clear." There are many quarrels and quarrels.
+quarrels? Where are they born? Where are they arising? Where are they generated?
+What are their causes? What is the collection? What is its birth? What is its
+root?" "He inquired about the root of quarrel and argument; he inquired about
+the reason; he inquired about the cause; he inquired about the arising; he
+inquired about the generation; he inquired and waited; he inquired about food
+(??); he inquired about the fate; he inquired about the collection, he
+forcefully inquired, begged, requested, and asked for it to be made clear."
+Where there are many quarrels and quarrels.
 
-"Weeping, sorrow and stinginess": "Weeping, being touched by the loss
-(unfortunate) of the relatives, or touched by the loss (loss) of property,
-disease, guilt, or sight, possessing (encountering) certain losses, contacting
-certain A sufferer has the state of lamenting, weeping, weeping, weeping,
-lamenting, weeping, speech, useless words, muttering, weeping, tearing, and
-weeping. "Sorrow" is touched by the loss of the relatives. , Or the loss of
-property, disease, vows, or sights is touched, and those who have (encountered)
-certain losses, contact with certain sufferings have a state of sorrow, sorrow,
-sorrow, internal sorrow, internal sorrow, internal burning, The internal
-burning, the heart burning, sorrow, and sorrow. There are five kinds of
-stinginess: [to] stinginess of residence, stinginess of home, stinginess of
-gain, stinginess of praise, stinginess of law, everything like this This is
-called stingy, stingy, stingy appearance, stingy state, greedy, stingy, petty,
-and heart-clutched state. This is called stingy. In addition, stingy is also
-stingy; world stingy is also stingy; stingy is also stingy, which is called
-stingy Be stingy." For weeping, sadness and stingy.
+"Weeping, sorrow and stinginess": "Weeping, ...(omitted, see previous
+sections)." "Sorrow", ...(omitted, see previous sections). "Stinginess",
+...(omitted, see previous sections). Weeping, sadness and stinginess.
 
-"Slow and extremely slow with divorce": ""Slow", here, some are born, or by
-surname, or by good family, or as beautiful as a lotus, or by property, or by
-research (acquisition), or Karma, or craftsmanship, or illuminating (academic),
-or hearing, or arguing, or something to slow down its production. "Extremely
-slow", here, a certain type of people may be born, or By surname... (omitted) or
-scorn others with something. "Separated language", here, a certain type of
-person is a divorced speaker. After he heard it from here, he would say there to
-separate these people, or, from where he After I heard it, I said here in order
-to divorce those people, like this, he is the destroyer of harmony, the spreader
-of division, the disagreeable, the disagreeable, the disagreeable, the
-disagreeable speaker, This is called a divorced speaker. In addition, divorced
-words are produced for two reasons: to be cute with desire, or to split desires.
-How to produce divorced from desire to be cute? "For this one, I will Be cute, I
-will be desirable, I will be close, I will be close friend, and I will be kind."
-In this way, desire to become cute produces divorced language. How to produce
-divorced language from split desire? How will these become all kinds of, will
-become separation, will become split, will become two kinds, will become
-contradictions, will become two factions, breaking, not meeting, living in
-suffering and restlessness." This is the desire for division. Produce divorce."
-means slow, extremely slow and divorce.
+"Conceit and arrogance with slander (divisive speech)": ""Conceit", ...(omitted,
+see previous sections). "Arrogance", ...(omitted, see previous sections).
+"Divisive language", ...(omitted, see previous sections). Conceit, arrogance,
+and slander.
 
-"Where are there many of those from? Come on! Please tell about that": ""Where
-do the eight kinds of pollution, "quarrel, argument, weeping, sadness, stingy,
-slow, extremely slow, and divorce", come from a lot? Where do they get born?
-Where are they born? Where are they born? Where are they born? Where are they
-born? What is its cause? What is its collection? What is its birth? What is its
-root?" "He asked about the roots of these eight kinds of pollution ; He asks the
-reason; he asks the reason; his question arises; his question arises; he asks
-and waits; He inquired about food; he inquired about fate; he inquired about
-fate; he inquired about collection, he inquired, begged, requested and made it
-clear. "Where do those come from? Come on! Please tell that": "Come on! Please
-tell, please explain, please teach, please inform, please build, please uncover,
-please analyze, Please clarify, please clarify." Where are many of those from?
-come on! Please tell me about that.
+"From where are there many of these? Come! Please tell me about that": ""Where
+do these eight kinds of pollution, "quarrel, argument, weeping, sadness,
+stinginess, conceit, arrogance, and divisive speech", come from a lot? Where are
+they born? Where do they arise? ...(omitted). What is its root?" "He asked about
+the roots of these eight kinds of pollution; he asks the reason;
+...(omitted).... "Where do those come from? Come! Please tell that": "Come!
+Please tell, please explain, please teach, please inform, please build, please
+uncover, please analyze, please clarify." Where are many of those from? Come!
+Please tell me about that.
 
-Because of that, Huaren said:
+98. From what is lovely, there are many quarrels and arguments, weeping,
+    sadness, and stinginess,
+Conceit, arrogance, together with divisive speech, quarrels and arguments are
+    (with??) stinginess on the yoke(??), and there is divisive speech when disputes
+    arise.
 
-"Where are there a lot of quarrels and arguments, weeping, sadness and
-stinginess?
+"From what is lovely there are a lot of quarrels, weeping, sadness and
+stinginess": "Lovely", there are two kinds of lovely: ...(omitted, see previous
+sections).
 
-slow, extremely slow, and divorce, where are there many? come on! Please tell me
-about that. "
+They quarrel when lovely things are suspected of being robbed, they also quarrel
+when they are robbed, and they also quarrel when they have been robbed;
+...(omitted, see previous sections). They guard, protect, take, cherish, and
+save the lovely things.
 
-98. Lovely, there are many quarrels and arguments, weeping, sad and stingy,
+"Conceit, arrogance, and divisive words": "Depending on lovely things makes them
+conceited; depending on cute things makes them arrogant. How does depending on
+lovely things make them conceited? "We are the recipients of desirable forms,
+sounds, smells, tastes, and touches." This is the production of conceit with
+lovely things. How does reliance on lovely things produce arrogance? "We are the
+recipients of the desired forms, ..., and these other people are not the
+recipients of the desired forms, ...." This is reliance on lovely things making
+them arrogant. "Divisive speech", ...(omitted, see previous sections). This is
+conceit, arrogance, and divisiveness.
 
-Slow, extremely slow, together with divorce, quarrels and arguments are stingy
-on the yoke, and there are divorces when disputes arise.
+"Quarrels, arguing, and yokes are yoke(??)": ""Quarrel, arguing, weeping,
+sorrow, conceit, arrogance, and divisive speech" These seven pollutions are (on
+the stinginess??) yoke, strong yoke, and yoke completely (??)." Being miserly
+(is a ??) yoke for arguing (??).
 
-"Lovely has a lot of quarrels, weeping, sadness and stinginess": "Lovely", there
-are two kinds of cuteness: beings or deeds. What are lovely beings? Here,
-wherever they are a mother, or father, or brother, or sister, or son, or
-daughter, or friend, or colleague, or relatives who want to be beneficial to
-him, or who want to be beneficial, or who want to stay away from the yoke, Or
-those with blood, these are lovely beings. What are cute lines? Desirable
-colors, desirable sounds, desirable smells, desirable flavors, desirable
-touches, these are lovely behaviors.
+"And when a dispute arises, there are divisive words": "When a dispute arises,
+when it is born, when it appears, it produces a divide: He hears from here and
+speaks there in order to separate these people, ...(omitted, see previous
+sections)." Divisiveness arises from disputes.
 
-They quarrel when cute things are suspected of being robbed, they also quarrel
-when they are robbed, and they also quarrel when they have been robbed; they
-quarrel when cute things are suspected to change, and they quarrel when they
-change. They also quarrel when changing. They argue when cute things are afraid
-of being robbed, they also argue when they are robbed, and they also argue when
-they have been robbed; they argue when they are afraid of change, they also
-argue when they change, and they also argue when they change. . They weep when
-cute things are suspected of being robbed, they cry when they are robbed, and
-they cry when they have been robbed; they mourn when cute things change, and
-they cry when they change, and they cry when they change. . They are sad when
-cute things are suspected to be robbed, they are also sad when they are robbed,
-they are also sad when they have been robbed; they are sad when cute things are
-changed, they are also sad when they are changed, and they are also sad when
-they are changed. . They guard, protect, take (control), cherish (as their own)
-and save the cute things.
+99. Where is the cause of the loveliness in the world, where the greedy moving
+    around in the world?
+Where is the cause for wish and fulfillment, anyone who has a next life?
 
-"Slow, extremely slow and divorced words": "Depending on cute things makes them
-slow; depending on cute things makes them very slow. How to depend on cute
-things to make them slow? "We are Desirable colors, sounds, smells, tastes, and
-touches." This is to slow down the production of cute things. How can we rely on
-the cute things to produce extremely slow? "We are the desired color? , Sounds,
-smells, tastes, touched recipients, and these other people are not desirable
-color, sound, smell, taste, touched recipients." This is to rely on cute things
-and make them very slow." Here, a certain type of people are divorced speakers.
-After he heard it from here, he would say there in order to divorce these
-people... (Omitted) This is the desire for division to produce divorced {...
-(Omitted)} "." Is slow, extremely slow and divorced.
-
-"Quarrels, arguing, and yokes are yoke": ""Quarrel, arguing, weeping, sorrow,
-slow, extremely slow, and divorce" These seven pollutions are yoke, strong,
-yoke, and yoke completely . "Being miserly yoke for arguing.
-
-"And when a dispute arises, there are divorced words": "When a dispute arises,
-when it arises, when it is born, when it is born, when it appears, it produces a
-divorce: He hears from here and speaks there in order to separate these people,
-or, After he heard from there, he said here in order to divorce those people,
-like this, he is the destroyer of harmony, the spreader of division, the
-disagreeable, the disagreeable, the disagreeable, the disagreeable. The speaker,
-this is called the divorced speaker. In addition, divorced speech is produced
-for two reasons: to be cute with desire, or to split desires. How to produce
-divorced with desire to be cute? "For this one , We will become lovely, we will
-become desirable, we will become intimate, we will become close friends, we will
-become gracious." This way, the desire to become lovely produces the separation
-language. How to produce separation with the desire to divide "How can these
-become all kinds of things, separation, separation, two kinds, two kinds of
-contradictions, two kinds of factions, breakup, no reunion, suffering and
-uneasiness." SplitDesire produces divorce. "For and when disputes arise, there
-are dilemmas.
-
-Because of that, the Lord said:
-
-"Lovely, there are a lot of quarrels and arguments, weeping, sad and stingy,
-
-Slow, extremely slow, together with divorce, quarrels and arguments are stingy
-on the yoke, and there are divorces when disputes arise. "
-
-99. Where is the cause of the loveliness in the world: Where are the greedy
-    people walking around in the world?
-
-Where is the reason for wish and fulfillment: Anyone who has an afterlife?
-
-"Where does the cuteness in the world come from?": "Where does the cuteness come
-from? Where does it come from? Where does it come from? Where is it born? Where
-does it come from? Where does it appear? What is The reason? What is its
-collection? What is its life? What is its root?" He asked about the lovely
-root... (Omitted) He asked, he asked, begged, requested, and made it clear."
-Where is its cuteness?
+"Where does the loveliness in the world come from?": "Where does the loveliness
+come from?  Where is it born? ...(omitted). What is its root?" He asked about
+the loveliness... (omitted)." Where is the cause for loveliness?
 
 "Everyone who is greedy walks around in the world": "The "what..." are
 Kshatriya, Brahman, Vaisha, Sudra, lay family, monk, heaven, and person.
-"Greed", the state of all greed, greed, and greed , The state of being greedy,
-tainted, and tainted, greedy, greedy and unwholesome. "Walk", walk, live, act,
-turn, guard, survive, and survive. "In the world": In the world of suffering,
-The world of mankind, the world of heaven, the world of aggregates, the world of
-realms, the world of places." For the greedy people walk in the world.
+"Greed", the state of all greed, desire, and thirst, the state of being greedy,
+tainted, and stained, and unwholesome. "Walk", walk, live, act, turn, guard, and
+survive. "In the world": In the world of suffering, the world of mankind, the
+world of heaven, the world of aggregates, the world of realms, the world of
+places." The greedy people walk in the world.
 
 "Where is the cause of desire and fulfillment?": "Where is the cause of desire
-and fulfillment? Where do they arise? Where do they arise? Where are they born?
-Where are they born? Where do they appear? What is it? Cause? What is its
-collection? What is its birth? What is its root?" He asked about the root of
-desire and fulfillment... (omitted) He asked about the collection, he asked,
-begged, requested, and made it clear." Where it is done is the cause. "Anyone
-who has an afterlife": "Anyone who has an afterlife, a refuge, a refuge, a place
-of refuge, completion and an afterlife." For all people who have an afterlife.
+and fulfillment? Where do they arise? ...(omitted). What is its root?" He asked
+about the root of desire and fulfillment... (omitted)." Where is the cause for
+wish and completion. "Anyone who has a next life (alt: 'afterlife'??)": "Anyone
+who has a foundation, a shelter, a refuge, a place of return, completion and a
+next life." All people who have a next life.
 
-Because of that, Huaren said:
-
-"Where is the cuteness in the world? Where is the reason: where the greedy walks
-in the world?
-
-Where is the reason for wish and fulfillment: Anyone who has an afterlife? "
+---
+checkpoint
+---
 
 100. The cuteness in the world is its cause: everyone who is greedy walks around
      in the world,
