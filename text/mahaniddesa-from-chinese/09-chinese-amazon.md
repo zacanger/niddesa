@@ -1,170 +1,814 @@
 9. Description of the Mathendiasia
- Secondly, the description of the Scripture of Mathatia will say
- 70. when I saw thirsty love, displeasure and greed, I had no desire in desire,
- Why [should] this urine feces are full of? Feet contact also do not want.
- "After seeing thirsty love, displeasure and greedy, I have no desire in lust": "After seeing and seeing the devil's daughter thirst, displeasure and greed, I have no desire in the law of desire, or greed, or love." I have no desire in desire to see thirsty love, displeasure and greed.
- "Why [should] this urine feces are full of? "Why [should] this urine full, sputum filled, sputum filled, blood-filled, bone tendon link, flesh-coated, endothelial coated, covered by the epidermis, more than one hole And the body which seeded down, inhabited by the worms of all sorts of filth, will not want to be near his feet, and from where is there to dwell, or cohabitation?" For: Why [should] this urine feces are full of? Feet contact also do not want. {"This is incredible: those who want the desire of heaven will not want the desires of the earth, or the desire of the earth will not want heaven desire, whoever you both do not want, do not want, do not want, do not desire, do not pray, what is What do you have to see "He asks?"}
- Because then, Worldman said:
- "When I saw thirsty love, and displeasure, and greed, I had no desire in lust,
- Why [should] this urine feces are full of? Feet contact does not want."
- 71. If you do not want such treasures: a woman who is sought by the king of many,
- Like what kind of evil opinion, withdrawal and forbidden, life, survival and past life do you say?
- "This is incredible: those who seek the desire of heaven will not want the desires of earth, or those who seek the desires of the earth will not want heaven desires, whoever you both do not want, do not want, do not want, do not desire, do not pray, what is Which behold thou hast of thy sight?" He (Madatia) asked. [The Roman Pinyin version will put this paragraph here]
- [For then, Mathatia said,] "If you do not want such treasures: a woman whom the king of many has sought,
- Like what kind of evil, quantum and forbidden, life, survival and life do you say? [Roman Pinyin Edition]
- 72. [Worldplace: "Magendia!"] "I say this" does not exist for him, and was held firmly after being chosen by law.
- But after the sight does not pick up, when brief, see the silence within themselves.
- "'I say this' does not exist for him": "'I say this', I say this; I say so; I say so much; I say it on the scope; I say this evil opinion: 'The world is everlasting. ' ) or "After death neither exists nor does it exist." "It doesn't exist for him." It doesn't exist for me. "I say it's the scope" doesn't exist for him." For "I say this" does not exist for him.
- "Mathendiah," Worldman named the Brahman by name. "Worldworld", synonyms of respect... Anrat (Kana), the testimony of Worldworld. For [Worldhotel: "Maadathea!"].
- "Clenched after being chosen in law": "In law, "in law," in the wickedness of 62. "After selection", after decision, after decision, after selection, after selection, after measurement, after judging, after each, after separation, clear, limited grip, partial grip, top grip, fixed grip, accumulate grip, fully accumulate Clenching: "This is true, truthful, true, true, correct, upside down" is held, executed, clenched, taken, tracked, believed, he has no, does not exist, not known, not found, has been cut off 、Be severed, calmed down, stopped, can not be born, be burned by wisdom fire." To be clenched after being selected in law.
- "But the Seeing of the Seeing does not pick up": When I see the oversuffering in all eyes, I do not hold, do not hold, do not obsession, or, should not hold, do not hold, do not persist. This is but seen in all times do not pick up after.
- Or, "The world is constant, this is true, the rest is empty." This is evil, jungle, desert, distorted, shaken, bitterness, despair, irritated, irritated, irritated, irritated, not directed to hate, away from greed, silence, wisdom, righteousness, Nibbana. I do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not persist. This is also but seen in all times do not pick up after。
- Or, "The world is very constant... the world is borderless... life is the body... life is one body is another...... after death... Su lai does not exist after death... after death as to exist and does not exist... After death is neither there nor non-existent, this is true, the others are empty." This is evil, jungle, desert, distorted, shaken, bitterness, despair, irritated, irritated, irritated, irritated, not directed to hate, away from greed, silence, wisdom, righteousness, Nibbana. I do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not persist. This is also but seen in all times do not pick up after。
- Or, "Those who see such holders, and those who are so entertaining, and so intriguing, they will have such a coming life." I do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not persist. This is also but seen in all times do not pick up after。
- Or, "This is Hell-oriented, to the animal world, to the evil world." I do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not persist. This is also but seen in all times do not pick up after。
- Or, "This see is a constant, productive, born, is extinction, dissipation, fading, extinction." I do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not persist. This is also but seen in all times do not pick up after。
- "When simple to see the silence within themselves": "The silence within itself is the silence of their own greedy; the silence of the silence of silence; the silence of the devil; angry... resentment... hidden evil... arbitrary... jealous... of... hypocrisy... cunning... stubborn... passion... slow... slow... slow... relax... all polluted... all evil deeds... all annoying... all the burnt... ... all annoying... all unrighteous silence, silence, calmness down, cooling, stopping, silence. "When brief", when simple; when selected; when strong selection; when measured; when judging; when separately; when figuring out: 'Everything is confine' when simple; when selected; when strong selection When measuring; when judging; when differentiated; when figuring out, "everything is bitter"... 'All law is no me' when simple; when selection; when strong selection... "Any set method is extinct." When simple; when selected; when strong selection; when measured; when judging; when separately; when figuring out. "See", see, see, see, through. To see the silence inside itself when simple.
- Because then, Worldman said:
- [Worldplace: "Magendia!"]
- "'I say thing' does not exist for him, and he was held firmly after being chosen in law,
- But after the Seekers do not pick up, they see the silence of themselves when they are brief."
- 73. [Like this Mathadiah:] Whomever is the judgment, Muni! You do not pick up those after saying,
- How can the truth of "silence within itself" be proclaimed by the wise?
- "Judgment of all opinions": "Judgment is called the judgment of 62 evil opinions. "Defined (all over)", the built, stereotypical, created, made, made of cohabiting, or, "the immutable, of prominently, of the fate, is the method of extinction, dissipation, fading, decimation, the law of mutation." "Defined." For the judgment of any fixed (pervasive).
- "Like this Mathatia": "Like this", the continuation of the sentence; the link of the sentence; the success of the sentence; the combination of words; the connection of words; this is the second sentence, "like this." "Madatia," the name, name, name, and name of the Brahman, Anli (kana), was "[like this Mathatia:]".
- "Muni! Indeed, you do not pick up those and say, "The silence in yourself' is the truth": "Indeed - those" are 62 evil. "Muni," "Muna is called wisdom... (middle) beyond the dyed net after he is Muni." "After I do not pick up," say, "When I see the affliction in all the eyes, I do not hold, do not hold, do not hold, not obsession." And you say, "The silence in itself." "All this," all the supreme reason. For Muni! You do not pick up those after saying, "the silence within itself" this truth.
- "How does it be proclaimed by the wise": "How?" "The question of doubts, the question of confusion, the question of doubt, the question of doubt, more than one question sentence, such as the anti-question, the opposite question, why, in the end Why?For how it is. The wise is the wise, the wise, the wise, the wise, the feeling, the wise, the difference, the wise. "Proclaimed," is percepted, preached, taught, taught, built, uncovered, parsed, articulated, illustrated. How does it be declared by the wise?
- Because then, the Brahman said:
- [Like this Mathatia:] "All the judgments, Muni! You do not pick up those after saying,
- How can the truth of "silence in itself" be proclaimed by the wise?
- 74. [Worldplace: "Magendia!"]
- For those who are not seen or heard of them, or with wisdom, nor do they say that they are cleansed with abstination
- Neither because of ignorance, insane, insanity, in a state of unrestraint, in a state of unrestraint,
- But after giving up, do not pick up these, the silence will not stop after no enthusiasm.
- "Not to see, do not smell, not wisdom": "Seeing is pure, clean, all pure; detach, release, all out, he does not say, talk, do not talk, do not say, do not say, do not say, do not say; to what is known as pure, Clean, all pure; disengagement, relief, disengagement, all over, he does not say, do not talk, do not talk, do not say, do not say; to see and what is known as pure, clean, all pure; detach, release, all over, he does not say, Do not tell, do not talk, do not explain, do not speak; to wisdom as pure, clean, all pure; detach, release, all out, he does not say, do not talk, do not talk, do not say, do not say, do not say, do not say, do not say For those who are not seen, not of the smell, or wisdom.
- "Mathendiah," Worldman named the Brahman by name. "Worldworld", synonyms of respect... Anrat (Kana), the testimony of Worldworld. For [Worldhotel: "Maadathea!"].
- "Nor to mention the withdrawal and prohibition as clean": "Take the ring as pure, clean, all pure; detach, release, all out, he does not say, do not talk, do not speak, do not say, do not say, do not say, do not say; to ban as pure, clean, All pure; disengagement, relief, disengagement, all over, he does not say, do not talk, do not talk, do not say, do not say, do not say, do not say, do not say, do not say, do not say, do not say, do not say, do not say, do not say, Don't talk, do not explain, do not speak." Not to mention the withdrawal and prohibition as purification.
- "Neither because of the ignorance, in the insane, in a state of injustice, in a state of injustice, in a state of unrestrained": See should be wanted, ten things for the truth: "There is a provision, a provision, a good work, a wicked The fruit and the news, there is this world, and the mother, the Father, and the biological life, in the world there are rightly, Samana, and Brahmen proclaiming this world, after testifying with their own wisdom. Hearing should also be wanted: the voice of the other side, Shutara, the night, the remembered, Gatore, Utona, such as the language, the Honson, did not have the law, and Pifura. Wisdom should also be wanted: the industry's own wisdom, follow the true wisdom, wisdom, etc. The ring should also be wanted: homemade poloti wooden fork. Forbidden should also be wanted, the Octopus: "Forest wild branch, regular beg, manure sweep, but three clothes, the second second begging support, after eating without food support, often sitting [not lying], live everywhere."
- "Neither because of ignorance, insane, insanity, in a state of unrestrained state": "not only to see; not only to hear; also not only by wisdom; and not only by restraint; and not only by forbidden The silence within itself is not not not not to get their own silence, but with these laws as food can get, can reach, reach, and testify to their own silence." For not because of ignorance, insane, insanity, in a state of unrestraint, in a state of unrestraint.
- "But after giving up, not picking up these": "These," from the root of the mafia law, can be wanted to be cut off; in the three realms of good law is not equivalent to each other can be desired. When the Mafia law is cut off by the root, the root has been cut off, like a rooted palm tree, become inhabited for the future, and the state of no equivalency in the Trans of Good Law, this situation is that he does not Hold, do not hold, do not persist. Or, [these] should not be held, not carried out, and should not be persisted." This is but give up、Do not pick up these after。 "When thirst love and seeing and slowly being cut off, the root has been cut off, like a palm tree without roots, become a non-living thing for the future, this situation is also that he does not hold, does not hold, do not persist." This is also but give up、Do not pick up these after。
- "When blessing and non-blessing and inaction are cut off, and the roots are cut off, like a palm tree without roots, and become a living for the future,This situation is also that he does not hold, does not hold, do not persist." This is also but give up、Do not pick up these after。
- "The silence does not stop after no enthusiasm": "The silence", "the greedy has calmed state for the silence; the silence of the silence of the demented state; angry... resentment... ... hidden evil... arbitrary... jealous... hypocritical... cunning... stubborn... passionate... slow... slow... uncomfortable... everything polluted... everything. Evil... all troubled... all burnt... all irritated... all mismade silence, quenched state, calmed down state, extinguished state, cooled state, left The state of the stop is Silent, Stopped, Calm Down, Cooler, Stopper. For the Silent.
- "After not stop", there are two kinds of stops: the stop of thirsty love and the stop of seeing... (middle) This is the stop of thirst for love... (medium) This is the stop of seeing. "After relying on the thirst of love; after the discernment is not stop the eye; do not stop the ear; do not stop the nose; do not stop the tongue; do not stop on the body; all colors... all the sounds... all smells... Taste... all touches [... legal]... family... groups (public)... shelter... benefits... reputation... praise... music... clothes... food... shelter... patient needs and medicine Necessities... want... color circles... colorless... want to have... colorless... want to have... do not want to have... I want to have... The future... now... see, smell, feel, be able to be based on the methods of knowledge; after not holding, after not holding, after not performing, not persisting." For the silence does not stop after. "No enthusiasm to have", will not desire; will not want color; he will not want colorless, he will not ask; he will not pray." For the silence will not stop after no enthusiasm there.
- Because then, Worldman said:
- [Worldplace: "Magendia!"]
- "What is not seen, nor is he who is heard of it, nor with wisdom, nor to say that it is cleansed with ab
- Neither because of ignorance, insane, insanity, in a state of unrestraint, in a state of unrestraint,
- But after giving up, do not pick up these, the silence will not stop after no enthusiasm."
- 75. [As such, Mathatia:] If it is true that he is not seen or heard of it, nor by wisdom, nor to say that it is cleansed with abstination and forb
- Neither because of ignorance, insane, insanity, in a state of unrestraint, in a state of unrestraint,
- I think it is confusion, some people come back to see as clean.
- "If indeed do not see, not to be heard, not wisdom": "Seeing is pure, clean, all pure; detachment, release, all out, you do not say, do not talk, do not talk, do not speak, do not speak, speak, speak, speak; For purity, purification, all pure; detachments, relief, disengagement... to see and what is known as pure, clean, all pure; detach, release, from all over... to wisdom as pure, clean, all pure; detachments, release 、From all over, you do not say, do not tell, do not talk, do not explain, do not say." For if it is true that he is not seen, the smell of the truth, or wisdom.
- "Like this Mathendia": "Like this", the continuation of the sentence... (medium omitted). "Mathendiah," the name of the Brahman... (middle), is "[like this Mathatia:]".
- "Do not say to ring and ban as pure": "Ring as pure, clean, all pure... (medium), the prohibition is pure, clean, pure... (medium), to quit and forbidden as pure, clean, all over Purity; detach, release, and disengage, you do not say, do not talk, do not talk, do not explain, do not say." Not to mention the withdrawal and prohibition as purification.
- "Neither because of ignorance, insane, insanity, in a state of indifference, in a state of unforbidden": "So to say, 'See should be wanted. ' To say, 'Hearing should also be wanted. ' So, 'Wisdom should be wanted. ' It cannot always be allowed (consistently), nor can it always be opposed." For not because of ignorance, insane, insanity, in a state of unrestrained, unrestrained state.
- "I think it is the law of confusion": "'This is your law of confusion, foolishness, ignorance, deception law. ' I think so; I know so; I know so; I do not; I know so well; I am so through." For me I think it's confusing method.
- "Some people returned to see as clean": "Some Samana, Brahmen returned to the clean view as pure, clearNet, all pure; detachment, relief, disengagement: some Samana, Brahmen returned to "The world is constant, this is true, the others are empty." The opinion is pure, clean, all pure; disengagement, relief, disengagement; the world is very constant... (medium) some Samana, Brahmen back to "death as neither exists nor does not exist, this is true And the rest are empty. ' The view is pure, clean, all pure; disengagement, relief, disengagement." For some people back to see as clean.
- Because then, the Brahman said:
- "[like this Mathatia:] If it is true that he is not seen, the smell of the truth, or the wisdom, nor to say that it is cleansed with abstination and for
- Neither because of ignorance, insane, insanity, in a state of unrestraint, in a state of unrestraint,
- I think it is confusion. Some people come back to see as clean."
- 76. [Worldplace: "Magendia!"] After seeing it repeatedly questioned, in a tight hold came to Meng,
- But you don't see a subtle thought from here, so you put (see) as confused.
- "Requested repeatedly after the stop": "Mathendia Brahmen stopped to see after questioning, after sticking after questioning the sticking, after the bondage questioning bondage, after the barrier questioned the barrier. "Questioning repeatedly", repeatedly questioning. I asked repeatedly after seeing it.
- "Mathendiah," Worldman named the Brahman by name. "Worldworld", synonyms of respect... Anrat (Kana), the testimony of Worldworld. For [Worldhotel: "Maadathea!"].
- "In the clenching hold came to the immense": "Where the see is you hold, take, persist, take, believe, you will become foolish, confused, obsessed; come to foolish, come to confusion, jump into Confused." To come in clenched hold.
- "But I did not see the subtle thought from here, from the silence of himself, or from the trajectory, or from the teaching of the law, he did not get the proper thought, the idea of arrival, the conjugation, the reason to think, the possibility (where) think And from where is wisdom?" This is but I did not see a subtle thought from here. Or, "He does not get the infinity or permissive; bitterness or miserable; without me or without what I want; only thinking of being born or only cognitive, where is wisdom?" This is also but I did not see a subtle thought from here.
- "So you set (see) as confused": "So, therefore, that reason; that reason; that's because you set, see, see, see, observe, observe as confusion, foolish law, foolishness Law, no wisdom, deception." So you put (see) as confused.
- Because then, Worldman said:
- "[Worldman: "Mahardea!"] After seeing it repeatedly questioned, in a tight hold came to Meng,
- But you don't see a subtle thought from here, so you set (see) as confused."
- 77. equal or peculiar or despicable, whoever he thinks he will argue because of that.
- When he does not shake on three, he doesn't want to be "equal, winning."
- "He who thinks he will argue because of that." "Whosoever thinks that "I am the same" or "I am the winner" or "I am the inferior" see him with that slow Who would quarrel, argue, dispute, dispute, dispute, and disregard: 'You have no knowledge of this law and the law; I know it; you know it, and what it is! You are an evil walker, and I am a positive man; mine is the same, and your one is inconsistent: what should be said first and later, and what you have been proficient for a long time is reversed; and your theory has been broken. Go and save [your] theory; you have been broken down, please disassemble, if you can. '" For equal or special or despicable, whoever He thinks, he will argue for that.
- "When he does not shake on the three, he does not want to be "equal, the winning": "Whoever for him is cut off, cut off, calmed down, stopped, unable to be born, and burned by wisdom fire, he is Three kinds of unwavering, unshaking, and becoming unshakable: 'I am the equivalent, 'or 'I am the winner' or 'I am the infer'. "He doesn't think," is 'I don't think. '" When he does not shake on three, he doesn't think, "equal, winning."
- Because then, Worldman said:
- "The equal or the vulgar or the despicable, whosoever he thinks he will argue in that way,
- When he does not shake on the three, he doesn't think of 'equal, victor'."
- Why would Brahman say "real", or who would he argue with "falsehood"?
- WhereWho will he dispute with when there is no same or different person?
- "Why did Brahmen say "true": "Brahmen", the excluded state of the seven laws is Brahmen... (middle) does not stop, something like this can be called Brahmen. "Why did Brahmen say "true": "Why did Brahmen say, why talk, why talk, why they say, why they say, 'The world is constant, this is true, and others are Empty. ' The world is very constant... Why did Brahmen say, why he talked about, why talks, why would he explain, why he said, "After death neither exists nor does it exist, this is true? The rest is empty. '?" Why did Brahmen say "real"?
- "Or who he will argue with "falsehood": "'My is true, and thine is false. ' By what slow, and what see who Brahmen will quarrel, argue, dispute, argue, and disregard: 'You have no knowledge of this law, the law... (medium) please disassemble, if you can. '" For or who would he argue with "falsehood"?
- "Whoever is not the same or different": "Whoever is..." whoever is a man, an arohan, a man who is exhausted, a slow man without "I am the same", the slow man without "I am the winner", no "I am a winner" The slow man of the inferior, he does not exist, is not known, not found, has been cut off, cut off, calmed down, stopped, unable to be born, and burned by the wisdom fire. For whoever is not the same or different.
- "Who he will be in dispute with": "He will be able to connect with whom he will be able to contend with, will argue, argue, argue, argue, will be dissident: 'You don't know this law, Law... (medium) please disassemble if you can. '" Who would he be in dispute with?
- Because then, Worldman said:
- "Why would that Brahman say 'real' or who would he argue with 'false'?
- Whoever is not the same or different, who will he dispute with?"
- 79. After breaking off their homes, become homeless travellers, and in the villages Muni do not interact intimately.
- Those who wish to be dismissed, and those who do not have hope, will not talk with others.
- At that time, the owner of the house went to His Holiness Mahajayan. Upon arrival, ask His Holiness Mahajjeyan and sit on the side. After sitting on the side, the owner of the house said to His Holiness Mahajayan [SN.22.3]:
- "Gajendade! In this group of eight [Scriptures] that Mathatia, which worldly said,
- "After the break home became a no-habitable traveler, in the village Muni do not make intimate interaction.
- Those who wish to be dismissed, and those who do not have hope, will not talk with others.
- Jayendade! How should Worldworld be understood in detail?"
- "Owners! Color circles are the home of knowledge, and they know who are bound by color circles are called "home-travel"; homeowners! The world is the home of knowledge... homeowners! Think about... homeowners! The industry is the home of knowledge, and it is known to be bound by the world of greedy bondage is called "home travel", homeowners! This is a home-travel.
- Home Owner! How is the homeless person? Home Owner! For color desires, greedy, joy, thirst, love, climbing, execution, heart, hold, worry potential trend: these have been cut off, the roots have been cut off, like no root palm tree, become nothing, for The future is not born, so it is called "homeless people." Home Owner! To the subject... homeowners! To think about the world... owners! On the line... homeowners! For the desires of the realm, greedy, joy, thirst, climb, perform, heart, hold, worry potential trend: these have been cut off, the roots have been cut off, like a rooted palm tree, become nothing, for The future is not born, so it is called "homeless people." Home Owner! This is homeless.
- Home Owner! How is there a place to travel? Home Owner! In Hue Dwellings are called "habteers"; in the sound phase... in the smell phase... in the phase of taste... in the touch... in the flattering... in the French residence is called "habteers" "Owner! This is where there is a place to travel.
- Home Owner! How is a non-habiceless person? Home Owner! Ease and bondage in hue dwellings have been cut off, the roots have been cut off, like a rooted palm tree, become a non-living thing for the future, so as to be called "nowhere walker"; in the sound Phase... in the smell phase... in the phase of taste... in the touch... in the French residence has been cut off, and the root has been cut off.Cut off, like a rootless palm tree, becomes non-existence, for the future, so as to be called "no place to go", the owner! This is no place to travel.
- Home Owner! How is an intimate interviewer born in a village? Home Owner! Here, a certain kind of Bichu lives in communication with his family, with joy and sorrow: when they are happy, and suffer in their bitterness, he is involved in the affairs of {you} [them] with himself (came to work) {you} [them] and Obligations, homeowners! This is an intimate interviewer born in the village.
- Home Owner! How is an intimate interviewer not born in a village? Home Owner! Here, a certain type of Bichu lives in not having interpersonal with his family, different joy, different sorrow: not when they are happy, not in their bitterness, he does not engage himself in the affairs and duties of {you} [them], the owner of the house ! This is not born in the village intimate interviewer.
- Home Owner! What is the one who desires not to be dismissed? Home Owner! Here, a certain kind of bichu in desire to be greedy, undepart from desire, not from love, not from desire, not from the thirst, not from thirst love, homeowners! Such is the one who desires not to be dismissed.
- Home Owner! What is the one who desires have been dismissed? Home Owner! Here, a certain type of Bichu has gone from greedy, away from desire, from love, from desire, from thirst, from anxious, from thirst from love, the owner! This is the one who desires have been discarded.
- Home Owner! How is it with the hope? Home Owner! Here, some kind of Bichu thought, "I will have this color in the future." There he is looking for joy [MN.132]; there will be such a subject... there will be such a thought... there will be such a line... 'I will have this knowledge in the future. ' He was there looking for joy. Home Owner! This is a person with hope.
- Home Owner! How are those who do not expect? Home Owner! Here, some kind of Bichu thought, "I will have this color in the future." He does not find joy there; there will be such a kind of thought... there will be such a line... 'I will have this knowledge in the future. ' He is not there looking for joy. Home Owner! This is not with hope.
- Home Owner! How are the interlocutors who argue with people? Home Owner! Here, a man is a talker of this: 'You have no knowledge of this law and the law; I know it, and thou knowest it, and what it is. You are an evil walker, and I am a positive man; mine is the same, and your one is inconsistent: what should be said first and later, and what you have been proficient for a long time is reversed; and your theory has been broken. Go to save [your] theory; you have been compromised, please disassemble, if you can. ' Home Owner! This is the interlocutor who argues with people.
- Home Owner! How are the talkers who do not argue with people? Home Owner! Here, someone is not a talker like this: 'You have no knowledge of this law, the law,... (medium) please disassemble, if you can. ' Home Owner! This is an interlocutor that does not argue with others. So, homeowners! In this group of eight [Scriptures] that Mathatia, which worldly said,
- "After the break home became a no-habitable traveler, in the village Muni do not make intimate interaction.
- Those who wish to be dismissed, and those who do not have hope, will not talk with others.
- Home Owner! The detailed rationale of Worldplace in brief should be understood in this way."
- Because then, Worldman said:
- "After breaking off their homes, become homeless travellers, and there is no intimate interaction in Muni in the village.
- Those who wish to be dismissed, and those who do not hope, will not talk about them with men.
- 80. from those far from the world can do, dragon elephant will not pick up after saying those,
- Such as aquatic thorns water lotus, not contaminated by water and mud,
- Like this, Muni is a silence theist, no covenant, and is not polluted in the world.
- "From those who are far from in the world": "From those," from those evil. "Far from," those who have done nothing, far away, and have been separated; wicked in words... wicked in evil... with greed... (middle) to make the empty, far away, and separated. "Can do", can live, act, turn, protect, survive, enable survival. "In the world", in the world of mankind." For those who are far from the world can do.
- "Dragon elephant will not pick up and say those": "dragon elephant", "do not sin" for the dragon elephant; "do not go" for dragon elephant; "do not come" How is "no crime" for a dragon elephant? Crimes are called the law of evil: polluted, re-existing, fearful, bitter, future life and death.
- [Worldworld] [Sn.3.6, 527]
- Do not commit any crime in the world, after leaving all bondages and bondages,
- No adhesion to everything, freedA person like this is truly called a dragon elephant.
- This is "no crime" for the dragon elephant.
- How is "Don't Go" for Dragon Elephant? Don't want should not go everywhere; do not go unobsession should not be everywhere; do not go horror should not go everywhere; do not go by greed; do not go because of obsession; not because of slow; not because of seeing And go; do not go out of the move; do not go for doubt; do not worry about potential trends and go; do not be quarrel (not and legal) law carry away, take away, carry, carry, carry. So is "not going" for the dragon elephant.
- How is "not coming" for the dragon elephant? Whoever is to be cut off the pollution, those polluted he no longer experience, do not return, do not go back; by a way... is not returned... where the pollution is cut off by Arrohan Road, those polluted he no longer experience, do not return, Do not go back. Such is "not coming" for the dragon elephant.
- "Dragon elephant will not pick up and say those": "dragon elephant will not hold, grasp, hold, perform, persist in those evil opinions after saying, tell, talk, explain, say; [will not hold, grasp, hold, carry, persist ] "The world is constant... after death neither exists nor does it exist, this is true, the others are empty." After saying, tell, talk, explain, say, say. For dragon elephant will not pick up after saying those.
- "Such as aquatic thorns water lotus, not contaminated by water and mud": "Elais called water; ambuja( aquatic) is called lotus; thorns are called coarse stems; vāri is called water; vārija( aquatic) is called lotus, aquatic start; jalais called water; pako (mud) is called mud. Such as aquatic, aquatic lotus, it is not contaminated with water and mud, not strongly contaminated, not closely contaminated (not polluting), no pollution, no longer completely contaminated, has not been closely contaminated." As an aquatic thorn water lotus, not contaminated by water and mud.
- "Like this, Muni is a silence theist, no covenant, and is not polluted in the world": "Like this" is an analogical arrangement. "Muni", Munna is known as Wisdom... (in the middle) after he was a muni after dyed net. "Silence theist," "Muni is a silence theist, ambulance theist, refugeist, attribution theist, no terrorist, non-dead, undead, Nibbana." For like this Muni is a silence theist. "No covenant", "Greed is called thirsty love, that is greed, lust (total greed)... (medium) greed, greedy, bad root. Whoever for him is cut off, cut off, calmed down, stopped, incapable of being born, burned by wisdom fire, he is called no greedy, he is not greedy in color; in the voice... on the smell... ... in taste... at the touch... at home... in groups... in dwellings... in the interest... in fame... in the music... in clothes... on food... in the group... In the shelter... on the patient's needs and medical necessities... in the world of desire... in color... in colorless... on the color... on the color... on colorless... on the colorless... on the idea of having... I want to be on... in the past... in the past... in the future... in the present... in what we see, smell, feel, be known. The methods of knowledge are those who do not seek, those who are not bound, are not obsessed, innocent, deserted, no covenant, who has abandoned the greedy, the person who has been excluded, the person who has been freed from the greedy, the person who has discarded it, Conception of the greedy, the departed, the no greedy, the one who has abandoned it, has been ruled out, the liberated, the one who has dismissed it, the deceased, the one who is not hungry, the cooled, the cooled, the person who feels happy, Dwelve himself for the bereaved of Van." For like this, Muni is a silence theist, no covenant.
- "Not polluted in the world", "Wills", there are two kinds of desires from praise: the wills of things and the desire to pollute... (middle) these are called the desires of things... (middle) these are called the desires of pollution. "In the world": in the worlds of bitterness, in the world of mankind, in heaven, in the worlds of the world, in the world of worlds, in the world. There are two kinds of adhesion: [because of] love adhesion and [because] see adhesion... (medium) This is the adhesion of thirsty love... (medium) This is the sticking of see. Monischer's thirst after the adhesion of love, after the disbelief of the adhesion, in the sight is not contaminated; in the world do not pollute, not strong pollution, not closely contaminated, has not been polluted, is not closely contaminated. He has departed, departed, liberated, and has been bound, and he dwelt away from the restrained heart. To be like this, Muni is a silence theist, no covenant, in the worldThe room is not polluted.
- Because then, Worldman said:
- "Those who are far from in the world can do, and the dragon elephant will not pick up and say those,
- Such as aquatic thorns water lotus, not contaminated by water and mud,
- As such, Muni is a silence theist, no covenant, and is not polluted in desire and the world."
- 81. The Vedas who knew not to see and did not come slowly because he was not equal to each other,
- He is not guided by the profession, nor is he being guided by what is known, in his dwelling place.
- "The vedic who knows not come slow to see and do not feel slow": "No" is no. "Known the Vedas", Vedas are known in four ways of wisdom, wisdom, Wagan, witty, choice, study, Bisherna, positive, to those who have life and death have reached the ultimate (target); has reached The ultimate person, who has reached the end point, has reached the border (exactly); who has reached the border, has reached the terminator; has reached the terminator, has arrived at the ambulance, has arrived at the shelter ; those who have arrived at the refuge, have arrived at the place of return, has arrived no terror; has arrived without terror, has arrived no dead, has reached the undead; has reached the undead, has reached the undead, has arrived Nibbana; has reached the Nibbana, or 'Ultimate Veda' is the Vedas know, or 'Vedas to the Ultimate Veda' as the Vedas, or the known state of Seven Vedas: Have seen being Knowing, suspected to be known, forbidden is known, corrupt is known, known, obsession known, slowly known, its evil law is known: the polluted, re-there, the fear, bitter fruit, the future will live Old dead.
- [Worldworld] [Sn.3.6, 534]
- "Select all the Vedas, whosoever belongs to the Samana and Brahmen that exist here,
- He is a Veda-aware after everything feels away from greed, beyond all Vedas.
- For him, Sixty-two evil opinions have been cut off, cut off, calmed down, stopped, not born, burned by wisdom fire; he was not seen to be carried away, taken away, carried, transported, nor returned, Do not return to that evil see as the core." For the Vedas know not to see. "Not to feel," he does not come slowly, does not arrive, does not arrive, does not arrive, does not hold, does not hold, do not hold, do not persist, or with public permission. For the knowledge of Vedas do not see not come to feel slow.
- "For he is not equal to one another": "He is not equal to each other because of his thirst, because of his sight; he is the highest, and he is unto the other side. Thirst love and seeing and slow have been cut off for him, the root has been cut off, like a palm tree without roots, become a non-living thing for the future, this situation is not equal to each other, the highest, and the other is to the other side of." For {he came slow,} because he was not equivalent to each other.
- "Do not be guided by the profession or by the smell": "Not to be employed", "not carried away, taken away, carried, carried or moved by welfare or non-welfare or immovable business." Not to be employed. "It is not guided by the smell," is not cleanly heard, or by other voices, or by public permission to carry away, take away, carry or carry." To be guided without being heard of the profession.
- "In the residence he is not guided": "Traction": There are two types of traction: the hauling of thirsty love and the towing of seeing... (medium) This is the hauling of thirsty love... (medium) This is the traction of see. For him the traction of love has been cut off, see the traction has been dismissed, the state of the longing traction has been cut off, see the state of traction has been dismissed, not guided in residence, not polluted, not to be Approaching, not dyed, do not put the heart toward. He has departed, departed, liberated, and has been bound, and he dwelt away from the restrained heart. For in the dwelling he is not guided.
- Because then, Worldman said:
- "The one who knows the vedic does not see not come slowly as it feels, because he is not equal to each other,
- He is not guided by the profession, nor by the smell of his profession, and he is not guided in his place of residence.
- 82. There is no binding for the people who want to leave the dye, there is no idiot for the Hui freemer,
- Whoever holds those who want to meet, they do with friction in the world.
- "There is no tie to the people who want to leave the dye": "Where the luxury motha is the lead of the holy road practise, including the initial binding has been suppressive, at the time of reaching the state of Alohan, for Alohan, bound, To think, malice, harm, think, see want to be cut off, the root has been cut off, like a palm tree without roots, become a non-living thing for the future." There is no binding for those who want to disappear.
- "There is no idiot for the liberator": "Where the Bisha is the leading Holy Trainee, which includes the initial devil has been depleted, arrived at Alohan state, for Alohan, idiot, binding, all cover, want to think, malicious think, harm, see want to be cut off, root has been cut, like no root Palm trees, become inhabited, for the future." There is no idiot for the Hui freemer.
- "Whoever holds those who want to see, they produce friction and walk in the world": "Whoever holds the imagination: want to think, malice think, harm, they want to create friction, friction each other: kings and kings theory, Chateli Theory of Brahmen and Brahmen, Owners and Owners, Mother-Son Theory, Son and Mother Theory, Father-Son Theory, Son and Son Theory, Son and Father Theory, Brotherhood and Brotherhood Theory, Sister and Sister Theory, Brother and Sister Theory, Sisters and Brotherhood Theory, Friend and Friend Theory. As they quarrel, fight, argue, argue, attack each other with fists, blocks, sticks, swords, where they suffer death, or suffering like death [MN.13]. Whoever holds: "The world is constant"... (medium) or "neither exists nor does it exist", they create friction and friction with each other because of their seeing: friction between the master and the master, the narrator of the law and Friction between the Narrator of the Law, friction between groups and groups, between see and see, friction between trajectories and tracks, and friction between road and aisle.
- Or they argue, brawl, argue, argue, argue, argue, and disregard: 'You have no knowledge of this law and the law; I know it;... (medium) please disassemble, if you can. ' Their deeds are not cut off, and their actions are not cut off. They produce friction in the intrigues: in hell they produce friction, in the animal world they produce friction, in the world of hungry ghosts, In the world of men they produce friction, in the world of heaven they produce friction, fun and fun... past and past life... birth and birth... there and have... reincarnation and reincarnation... circulation and circulation they produce. Friction, rubbing each other, saying, walking, living, acting, turning, guarding, making survival "in the world", in the worlds of bitter worlds... To hold those who want to meet, they create friction in the world.
- Because then, Worldman said:
- "There is no binding for the people who want to leave the dye, and there is no idiot for the Hui liberator,
- Whosoever holds those who want to see, they do with friction in the world."
- Description of the Bible of Mathendiah ninth [Completed].
+
+Secondly, the description of the Scripture of Mathatia will say
+
+70. when I saw thirsty love, displeasure and greed, I had no desire in desire,
+
+Why [should] this urine feces are full of? Feet contact also do not want.
+
+"After seeing thirsty love, displeasure and greedy, I have no desire in lust":
+"After seeing and seeing the devil's daughter thirst, displeasure and greed, I
+have no desire in the law of desire, or greed, or love." I have no desire in
+desire to see thirsty love, displeasure and greed.
+
+"Why [should] this urine feces are full of? "Why [should] this urine full,
+sputum filled, sputum filled, blood-filled, bone tendon link, flesh-coated,
+endothelial coated, covered by the epidermis, more than one hole And the body
+which seeded down, inhabited by the worms of all sorts of filth, will not want
+to be near his feet, and from where is there to dwell, or cohabitation?" For:
+Why [should] this urine feces are full of? Feet contact also do not want. {"This
+is incredible: those who want the desire of heaven will not want the desires of
+the earth, or the desire of the earth will not want heaven desire, whoever you
+both do not want, do not want, do not want, do not desire, do not pray, what is
+What do you have to see "He asks?"}
+
+Because then, Worldman said:
+
+"When I saw thirsty love, and displeasure, and greed, I had no desire in lust,
+
+Why [should] this urine feces are full of? Feet contact does not want."
+
+71. If you do not want such treasures: a woman who is sought by the king of
+    many,
+
+Like what kind of evil opinion, withdrawal and forbidden, life, survival and
+past life do you say?
+
+"This is incredible: those who seek the desire of heaven will not want the
+desires of earth, or those who seek the desires of the earth will not want
+heaven desires, whoever you both do not want, do not want, do not want, do not
+desire, do not pray, what is Which behold thou hast of thy sight?" He (Madatia)
+asked. [The Roman Pinyin version will put this paragraph here]
+
+[For then, Mathatia said,] "If you do not want such treasures: a woman whom the
+king of many has sought,
+
+Like what kind of evil, quantum and forbidden, life, survival and life do you
+say? [Roman Pinyin Edition]
+
+72. [Worldplace: "Magendia!"] "I say this" does not exist for him, and was held
+    firmly after being chosen by law.
+
+But after the sight does not pick up, when brief, see the silence within
+themselves.
+
+"'I say this' does not exist for him": "'I say this', I say this; I say so; I
+say so much; I say it on the scope; I say this evil opinion: 'The world is
+everlasting. ' ) or "After death neither exists nor does it exist." "It doesn't
+exist for him." It doesn't exist for me. "I say it's the scope" doesn't exist
+for him." For "I say this" does not exist for him.
+
+"Mathendiah," Worldman named the Brahman by name. "Worldworld", synonyms of
+respect... Anrat (Kana), the testimony of Worldworld. For [Worldhotel:
+"Maadathea!"].
+
+"Clenched after being chosen in law": "In law, "in law," in the wickedness of
+62. "After selection", after decision, after decision, after selection, after
+selection, after measurement, after judging, after each, after separation,
+clear, limited grip, partial grip, top grip, fixed grip, accumulate grip, fully
+accumulate Clenching: "This is true, truthful, true, true, correct, upside down"
+is held, executed, clenched, taken, tracked, believed, he has no, does not
+exist, not known, not found, has been cut off 、Be severed, calmed down,
+stopped, can not be born, be burned by wisdom fire." To be clenched after being
+selected in law.
+
+"But the Seeing of the Seeing does not pick up": When I see the oversuffering in
+all eyes, I do not hold, do not hold, do not obsession, or, should not hold, do
+not hold, do not persist. This is but seen in all times do not pick up after.
+
+Or, "The world is constant, this is true, the rest is empty." This is evil,
+jungle, desert, distorted, shaken, bitterness, despair, irritated, irritated,
+irritated, irritated, not directed to hate, away from greed, silence, wisdom,
+righteousness, Nibbana. I do not hold, do not hold, do not hold, do not hold, do
+not hold, do not hold, do not hold, do not hold, do not persist. This is also
+but seen in all times do not pick up after。
+
+Or, "The world is very constant... the world is borderless... life is the
+body... life is one body is another...... after death... Su lai does not exist
+after death... after death as to exist and does not exist... After death is
+neither there nor non-existent, this is true, the others are empty." This is
+evil, jungle, desert, distorted, shaken, bitterness, despair, irritated,
+irritated, irritated, irritated, not directed to hate, away from greed, silence,
+wisdom, righteousness, Nibbana. I do not hold, do not hold, do not hold, do not
+hold, do not hold, do not hold, do not hold, do not hold, do not persist. This
+is also but seen in all times do not pick up after。
+
+Or, "Those who see such holders, and those who are so entertaining, and so
+intriguing, they will have such a coming life." I do not hold, do not hold, do
+not hold, do not hold, do not hold, do not hold, do not hold, do not hold, do
+not persist. This is also but seen in all times do not pick up after。
+
+Or, "This is Hell-oriented, to the animal world, to the evil world." I do not
+hold, do not hold, do not hold, do not hold, do not hold, do not hold, do not
+hold, do not hold, do not persist. This is also but seen in all times do not
+pick up after。
+
+Or, "This see is a constant, productive, born, is extinction, dissipation,
+fading, extinction." I do not hold, do not hold, do not hold, do not hold, do
+not hold, do not hold, do not hold, do not hold, do not persist. This is also
+but seen in all times do not pick up after。
+
+"When simple to see the silence within themselves": "The silence within itself
+is the silence of their own greedy; the silence of the silence of silence; the
+silence of the devil; angry... resentment... hidden evil... arbitrary...
+jealous... of... hypocrisy... cunning... stubborn... passion... slow... slow...
+slow... relax... all polluted... all evil deeds... all annoying... all the
+burnt... ... all annoying... all unrighteous silence, silence, calmness down,
+cooling, stopping, silence. "When brief", when simple; when selected; when
+strong selection; when measured; when judging; when separately; when figuring
+out: 'Everything is confine' when simple; when selected; when strong selection
+When measuring; when judging; when differentiated; when figuring out,
+"everything is bitter"... 'All law is no me' when simple; when selection; when
+strong selection... "Any set method is extinct." When simple; when selected;
+when strong selection; when measured; when judging; when separately; when
+figuring out. "See", see, see, see, through. To see the silence inside itself
+when simple.
+
+Because then, Worldman said:
+
+[Worldplace: "Magendia!"]
+
+"'I say thing' does not exist for him, and he was held firmly after being chosen
+in law,
+
+But after the Seekers do not pick up, they see the silence of themselves when
+they are brief."
+
+73. [Like this Mathadiah:] Whomever is the judgment, Muni! You do not pick up
+    those after saying,
+
+How can the truth of "silence within itself" be proclaimed by the wise?
+
+"Judgment of all opinions": "Judgment is called the judgment of 62 evil
+opinions. "Defined (all over)", the built, stereotypical, created, made, made of
+cohabiting, or, "the immutable, of prominently, of the fate, is the method of
+extinction, dissipation, fading, decimation, the law of mutation." "Defined."
+For the judgment of any fixed (pervasive).
+
+"Like this Mathatia": "Like this", the continuation of the sentence; the link of
+the sentence; the success of the sentence; the combination of words; the
+connection of words; this is the second sentence, "like this." "Madatia," the
+name, name, name, and name of the Brahman, Anli (kana), was "[like this
+Mathatia:]".
+
+"Muni! Indeed, you do not pick up those and say, "The silence in yourself' is
+the truth": "Indeed - those" are 62 evil. "Muni," "Muna is called wisdom...
+(middle) beyond the dyed net after he is Muni." "After I do not pick up," say,
+"When I see the affliction in all the eyes, I do not hold, do not hold, do not
+hold, not obsession." And you say, "The silence in itself." "All this," all the
+supreme reason. For Muni! You do not pick up those after saying, "the silence
+within itself" this truth.
+
+"How does it be proclaimed by the wise": "How?" "The question of doubts, the
+question of confusion, the question of doubt, the question of doubt, more than
+one question sentence, such as the anti-question, the opposite question, why, in
+the end Why?For how it is. The wise is the wise, the wise, the wise, the wise,
+the feeling, the wise, the difference, the wise. "Proclaimed," is percepted,
+preached, taught, taught, built, uncovered, parsed, articulated, illustrated.
+How does it be declared by the wise?
+
+Because then, the Brahman said:
+
+[Like this Mathatia:] "All the judgments, Muni! You do not pick up those after
+saying,
+
+How can the truth of "silence in itself" be proclaimed by the wise?
+
+74. [Worldplace: "Magendia!"]
+
+For those who are not seen or heard of them, or with wisdom, nor do they say
+that they are cleansed with abstination
+
+Neither because of ignorance, insane, insanity, in a state of unrestraint, in a
+state of unrestraint,
+
+But after giving up, do not pick up these, the silence will not stop after no
+enthusiasm.
+
+"Not to see, do not smell, not wisdom": "Seeing is pure, clean, all pure;
+detach, release, all out, he does not say, talk, do not talk, do not say, do not
+say, do not say, do not say; to what is known as pure, Clean, all pure;
+disengagement, relief, disengagement, all over, he does not say, do not talk, do
+not talk, do not say, do not say; to see and what is known as pure, clean, all
+pure; detach, release, all over, he does not say, Do not tell, do not talk, do
+not explain, do not speak; to wisdom as pure, clean, all pure; detach, release,
+all out, he does not say, do not talk, do not talk, do not say, do not say, do
+not say, do not say, do not say For those who are not seen, not of the smell, or
+wisdom.
+
+"Mathendiah," Worldman named the Brahman by name. "Worldworld", synonyms of
+respect... Anrat (Kana), the testimony of Worldworld. For [Worldhotel:
+"Maadathea!"].
+
+"Nor to mention the withdrawal and prohibition as clean": "Take the ring as
+pure, clean, all pure; detach, release, all out, he does not say, do not talk,
+do not speak, do not say, do not say, do not say, do not say; to ban as pure,
+clean, All pure; disengagement, relief, disengagement, all over, he does not
+say, do not talk, do not talk, do not say, do not say, do not say, do not say,
+do not say, do not say, do not say, do not say, do not say, do not say, do not
+say, Don't talk, do not explain, do not speak." Not to mention the withdrawal
+and prohibition as purification.
+
+"Neither because of the ignorance, in the insane, in a state of injustice, in a
+state of injustice, in a state of unrestrained": See should be wanted, ten
+things for the truth: "There is a provision, a provision, a good work, a wicked
+The fruit and the news, there is this world, and the mother, the Father, and the
+biological life, in the world there are rightly, Samana, and Brahmen proclaiming
+this world, after testifying with their own wisdom. Hearing should also be
+wanted: the voice of the other side, Shutara, the night, the remembered, Gatore,
+Utona, such as the language, the Honson, did not have the law, and Pifura.
+Wisdom should also be wanted: the industry's own wisdom, follow the true wisdom,
+wisdom, etc. The ring should also be wanted: homemade poloti wooden fork.
+Forbidden should also be wanted, the Octopus: "Forest wild branch, regular beg,
+manure sweep, but three clothes, the second second begging support, after eating
+without food support, often sitting [not lying], live everywhere."
+
+"Neither because of ignorance, insane, insanity, in a state of unrestrained
+state": "not only to see; not only to hear; also not only by wisdom; and not
+only by restraint; and not only by forbidden The silence within itself is not
+not not not to get their own silence, but with these laws as food can get, can
+reach, reach, and testify to their own silence." For not because of ignorance,
+insane, insanity, in a state of unrestraint, in a state of unrestraint.
+
+"But after giving up, not picking up these": "These," from the root of the mafia
+law, can be wanted to be cut off; in the three realms of good law is not
+equivalent to each other can be desired. When the Mafia law is cut off by the
+root, the root has been cut off, like a rooted palm tree, become inhabited for
+the future, and the state of no equivalency in the Trans of Good Law, this
+situation is that he does not Hold, do not hold, do not persist. Or, [these]
+should not be held, not carried out, and should not be persisted." This is but
+give up、Do not pick up these after。 "When thirst love and seeing and slowly
+being cut off, the root has been cut off, like a palm tree without roots, become
+a non-living thing for the future, this situation is also that he does not hold,
+does not hold, do not persist." This is also but give up、Do not pick up these
+after。
+
+"When blessing and non-blessing and inaction are cut off, and the roots are cut
+off, like a palm tree without roots, and become a living for the future,This
+situation is also that he does not hold, does not hold, do not persist." This is
+also but give up、Do not pick up these after。
+
+"The silence does not stop after no enthusiasm": "The silence", "the greedy has
+calmed state for the silence; the silence of the silence of the demented state;
+angry... resentment... ... hidden evil... arbitrary... jealous...
+hypocritical... cunning... stubborn... passionate... slow... slow...
+uncomfortable... everything polluted... everything. Evil... all troubled... all
+burnt... all irritated... all mismade silence, quenched state, calmed down
+state, extinguished state, cooled state, left The state of the stop is Silent,
+Stopped, Calm Down, Cooler, Stopper. For the Silent.
+
+"After not stop", there are two kinds of stops: the stop of thirsty love and the
+stop of seeing... (middle) This is the stop of thirst for love... (medium) This
+is the stop of seeing. "After relying on the thirst of love; after the
+discernment is not stop the eye; do not stop the ear; do not stop the nose; do
+not stop the tongue; do not stop on the body; all colors... all the sounds...
+all smells... Taste... all touches [... legal]... family... groups (public)...
+shelter... benefits... reputation... praise... music... clothes... food...
+shelter... patient needs and medicine Necessities... want... color circles...
+colorless... want to have... colorless... want to have... do not want to have...
+I want to have... The future... now... see, smell, feel, be able to be based on
+the methods of knowledge; after not holding, after not holding, after not
+performing, not persisting." For the silence does not stop after. "No enthusiasm
+to have", will not desire; will not want color; he will not want colorless, he
+will not ask; he will not pray." For the silence will not stop after no
+enthusiasm there.
+
+Because then, Worldman said:
+
+[Worldplace: "Magendia!"]
+
+"What is not seen, nor is he who is heard of it, nor with wisdom, nor to say
+that it is cleansed with ab
+
+Neither because of ignorance, insane, insanity, in a state of unrestraint, in a
+state of unrestraint,
+
+But after giving up, do not pick up these, the silence will not stop after no
+enthusiasm."
+
+75. [As such, Mathatia:] If it is true that he is not seen or heard of it, nor
+    by wisdom, nor to say that it is cleansed with abstination and forb
+
+Neither because of ignorance, insane, insanity, in a state of unrestraint, in a
+state of unrestraint,
+
+I think it is confusion, some people come back to see as clean.
+
+"If indeed do not see, not to be heard, not wisdom": "Seeing is pure, clean, all
+pure; detachment, release, all out, you do not say, do not talk, do not talk, do
+not speak, do not speak, speak, speak, speak; For purity, purification, all
+pure; detachments, relief, disengagement... to see and what is known as pure,
+clean, all pure; detach, release, from all over... to wisdom as pure, clean, all
+pure; detachments, release 、From all over, you do not say, do not tell, do not
+talk, do not explain, do not say." For if it is true that he is not seen, the
+smell of the truth, or wisdom.
+
+"Like this Mathendia": "Like this", the continuation of the sentence... (medium
+omitted). "Mathendiah," the name of the Brahman... (middle), is "[like this
+Mathatia:]".
+
+"Do not say to ring and ban as pure": "Ring as pure, clean, all pure...
+(medium), the prohibition is pure, clean, pure... (medium), to quit and
+forbidden as pure, clean, all over Purity; detach, release, and disengage, you
+do not say, do not talk, do not talk, do not explain, do not say." Not to
+mention the withdrawal and prohibition as purification.
+
+"Neither because of ignorance, insane, insanity, in a state of indifference, in
+a state of unforbidden": "So to say, 'See should be wanted. ' To say, 'Hearing
+should also be wanted. ' So, 'Wisdom should be wanted. ' It cannot always be
+allowed (consistently), nor can it always be opposed." For not because of
+ignorance, insane, insanity, in a state of unrestrained, unrestrained state.
+
+"I think it is the law of confusion": "'This is your law of confusion,
+foolishness, ignorance, deception law. ' I think so; I know so; I know so; I do
+not; I know so well; I am so through." For me I think it's confusing method.
+
+"Some people returned to see as clean": "Some Samana, Brahmen returned to the
+clean view as pure, clearNet, all pure; detachment, relief, disengagement: some
+Samana, Brahmen returned to "The world is constant, this is true, the others are
+empty." The opinion is pure, clean, all pure; disengagement, relief,
+disengagement; the world is very constant... (medium) some Samana, Brahmen back
+to "death as neither exists nor does not exist, this is true And the rest are
+empty. ' The view is pure, clean, all pure; disengagement, relief,
+disengagement." For some people back to see as clean.
+
+Because then, the Brahman said:
+
+"[like this Mathatia:] If it is true that he is not seen, the smell of the
+truth, or the wisdom, nor to say that it is cleansed with abstination and for
+
+Neither because of ignorance, insane, insanity, in a state of unrestraint, in a
+state of unrestraint,
+
+I think it is confusion. Some people come back to see as clean."
+
+76. [Worldplace: "Magendia!"] After seeing it repeatedly questioned, in a tight
+    hold came to Meng,
+
+But you don't see a subtle thought from here, so you put (see) as confused.
+
+"Requested repeatedly after the stop": "Mathendia Brahmen stopped to see after
+questioning, after sticking after questioning the sticking, after the bondage
+questioning bondage, after the barrier questioned the barrier. "Questioning
+repeatedly", repeatedly questioning. I asked repeatedly after seeing it.
+
+"Mathendiah," Worldman named the Brahman by name. "Worldworld", synonyms of
+respect... Anrat (Kana), the testimony of Worldworld. For [Worldhotel:
+"Maadathea!"].
+
+"In the clenching hold came to the immense": "Where the see is you hold, take,
+persist, take, believe, you will become foolish, confused, obsessed; come to
+foolish, come to confusion, jump into Confused." To come in clenched hold.
+
+"But I did not see the subtle thought from here, from the silence of himself, or
+from the trajectory, or from the teaching of the law, he did not get the proper
+thought, the idea of arrival, the conjugation, the reason to think, the
+possibility (where) think And from where is wisdom?" This is but I did not see a
+subtle thought from here. Or, "He does not get the infinity or permissive;
+bitterness or miserable; without me or without what I want; only thinking of
+being born or only cognitive, where is wisdom?" This is also but I did not see a
+subtle thought from here.
+
+"So you set (see) as confused": "So, therefore, that reason; that reason; that's
+because you set, see, see, see, observe, observe as confusion, foolish law,
+foolishness Law, no wisdom, deception." So you put (see) as confused.
+
+Because then, Worldman said:
+
+"[Worldman: "Mahardea!"] After seeing it repeatedly questioned, in a tight hold
+came to Meng,
+
+But you don't see a subtle thought from here, so you set (see) as confused."
+
+77. equal or peculiar or despicable, whoever he thinks he will argue because of
+    that.
+
+When he does not shake on three, he doesn't want to be "equal, winning."
+
+"He who thinks he will argue because of that." "Whosoever thinks that "I am the
+same" or "I am the winner" or "I am the inferior" see him with that slow Who
+would quarrel, argue, dispute, dispute, dispute, and disregard: 'You have no
+knowledge of this law and the law; I know it; you know it, and what it is! You
+are an evil walker, and I am a positive man; mine is the same, and your one is
+inconsistent: what should be said first and later, and what you have been
+proficient for a long time is reversed; and your theory has been broken. Go and
+save [your] theory; you have been broken down, please disassemble, if you can.
+'" For equal or special or despicable, whoever He thinks, he will argue for
+that.
+
+"When he does not shake on the three, he does not want to be "equal, the
+winning": "Whoever for him is cut off, cut off, calmed down, stopped, unable to
+be born, and burned by wisdom fire, he is Three kinds of unwavering, unshaking,
+and becoming unshakable: 'I am the equivalent, 'or 'I am the winner' or 'I am
+the infer'. "He doesn't think," is 'I don't think. '" When he does not shake on
+three, he doesn't think, "equal, winning."
+
+Because then, Worldman said:
+
+"The equal or the vulgar or the despicable, whosoever he thinks he will argue in
+that way,
+
+When he does not shake on the three, he doesn't think of 'equal, victor'."
+
+Why would Brahman say "real", or who would he argue with "falsehood"?
+
+WhereWho will he dispute with when there is no same or different person?
+
+"Why did Brahmen say "true": "Brahmen", the excluded state of the seven laws is
+Brahmen... (middle) does not stop, something like this can be called Brahmen.
+"Why did Brahmen say "true": "Why did Brahmen say, why talk, why talk, why they
+say, why they say, 'The world is constant, this is true, and others are Empty. '
+The world is very constant... Why did Brahmen say, why he talked about, why
+talks, why would he explain, why he said, "After death neither exists nor does
+it exist, this is true? The rest is empty. '?" Why did Brahmen say "real"?
+
+"Or who he will argue with "falsehood": "'My is true, and thine is false. ' By
+what slow, and what see who Brahmen will quarrel, argue, dispute, argue, and
+disregard: 'You have no knowledge of this law, the law... (medium) please
+disassemble, if you can. '" For or who would he argue with "falsehood"?
+
+"Whoever is not the same or different": "Whoever is..." whoever is a man, an
+arohan, a man who is exhausted, a slow man without "I am the same", the slow man
+without "I am the winner", no "I am a winner" The slow man of the inferior, he
+does not exist, is not known, not found, has been cut off, cut off, calmed down,
+stopped, unable to be born, and burned by the wisdom fire. For whoever is not
+the same or different.
+
+"Who he will be in dispute with": "He will be able to connect with whom he will
+be able to contend with, will argue, argue, argue, argue, will be dissident:
+'You don't know this law, Law... (medium) please disassemble if you can. '" Who
+would he be in dispute with?
+
+Because then, Worldman said:
+
+"Why would that Brahman say 'real' or who would he argue with 'false'?
+
+Whoever is not the same or different, who will he dispute with?"
+
+79. After breaking off their homes, become homeless travellers, and in the
+    villages Muni do not interact intimately.
+
+Those who wish to be dismissed, and those who do not have hope, will not talk
+with others.
+
+At that time, the owner of the house went to His Holiness Mahajayan. Upon
+arrival, ask His Holiness Mahajjeyan and sit on the side. After sitting on the
+side, the owner of the house said to His Holiness Mahajayan [SN.22.3]:
+
+"Gajendade! In this group of eight [Scriptures] that Mathatia, which worldly
+said,
+
+"After the break home became a no-habitable traveler, in the village Muni do not
+make intimate interaction.
+
+Those who wish to be dismissed, and those who do not have hope, will not talk
+with others.
+
+Jayendade! How should Worldworld be understood in detail?"
+
+"Owners! Color circles are the home of knowledge, and they know who are bound by
+color circles are called "home-travel"; homeowners! The world is the home of
+knowledge... homeowners! Think about... homeowners! The industry is the home of
+knowledge, and it is known to be bound by the world of greedy bondage is called
+"home travel", homeowners! This is a home-travel.
+
+Home Owner! How is the homeless person? Home Owner! For color desires, greedy,
+joy, thirst, love, climbing, execution, heart, hold, worry potential trend:
+these have been cut off, the roots have been cut off, like no root palm tree,
+become nothing, for The future is not born, so it is called "homeless people."
+Home Owner! To the subject... homeowners! To think about the world... owners! On
+the line... homeowners! For the desires of the realm, greedy, joy, thirst,
+climb, perform, heart, hold, worry potential trend: these have been cut off, the
+roots have been cut off, like a rooted palm tree, become nothing, for The future
+is not born, so it is called "homeless people." Home Owner! This is homeless.
+
+Home Owner! How is there a place to travel? Home Owner! In Hue Dwellings are
+called "habteers"; in the sound phase... in the smell phase... in the phase of
+taste... in the touch... in the flattering... in the French residence is called
+"habteers" "Owner! This is where there is a place to travel.
+
+Home Owner! How is a non-habiceless person? Home Owner! Ease and bondage in hue
+dwellings have been cut off, the roots have been cut off, like a rooted palm
+tree, become a non-living thing for the future, so as to be called "nowhere
+walker"; in the sound Phase... in the smell phase... in the phase of taste... in
+the touch... in the French residence has been cut off, and the root has been cut
+off.Cut off, like a rootless palm tree, becomes non-existence, for the future,
+so as to be called "no place to go", the owner! This is no place to travel.
+
+Home Owner! How is an intimate interviewer born in a village? Home Owner! Here,
+a certain kind of Bichu lives in communication with his family, with joy and
+sorrow: when they are happy, and suffer in their bitterness, he is involved in
+the affairs of {you} [them] with himself (came to work) {you} [them] and
+Obligations, homeowners! This is an intimate interviewer born in the village.
+
+Home Owner! How is an intimate interviewer not born in a village? Home Owner!
+Here, a certain type of Bichu lives in not having interpersonal with his family,
+different joy, different sorrow: not when they are happy, not in their
+bitterness, he does not engage himself in the affairs and duties of {you}
+[them], the owner of the house ! This is not born in the village intimate
+interviewer.
+
+Home Owner! What is the one who desires not to be dismissed? Home Owner! Here, a
+certain kind of bichu in desire to be greedy, undepart from desire, not from
+love, not from desire, not from the thirst, not from thirst love, homeowners!
+Such is the one who desires not to be dismissed.
+
+Home Owner! What is the one who desires have been dismissed? Home Owner! Here, a
+certain type of Bichu has gone from greedy, away from desire, from love, from
+desire, from thirst, from anxious, from thirst from love, the owner! This is the
+one who desires have been discarded.
+
+Home Owner! How is it with the hope? Home Owner! Here, some kind of Bichu
+thought, "I will have this color in the future." There he is looking for joy
+[MN.132]; there will be such a subject... there will be such a thought... there
+will be such a line... 'I will have this knowledge in the future. ' He was there
+looking for joy. Home Owner! This is a person with hope.
+
+Home Owner! How are those who do not expect? Home Owner! Here, some kind of
+Bichu thought, "I will have this color in the future." He does not find joy
+there; there will be such a kind of thought... there will be such a line... 'I
+will have this knowledge in the future. ' He is not there looking for joy. Home
+Owner! This is not with hope.
+
+Home Owner! How are the interlocutors who argue with people? Home Owner! Here, a
+man is a talker of this: 'You have no knowledge of this law and the law; I know
+it, and thou knowest it, and what it is. You are an evil walker, and I am a
+positive man; mine is the same, and your one is inconsistent: what should be
+said first and later, and what you have been proficient for a long time is
+reversed; and your theory has been broken. Go to save [your] theory; you have
+been compromised, please disassemble, if you can. ' Home Owner! This is the
+interlocutor who argues with people.
+
+Home Owner! How are the talkers who do not argue with people? Home Owner! Here,
+someone is not a talker like this: 'You have no knowledge of this law, the
+law,... (medium) please disassemble, if you can. ' Home Owner! This is an
+interlocutor that does not argue with others. So, homeowners! In this group of
+eight [Scriptures] that Mathatia, which worldly said,
+
+"After the break home became a no-habitable traveler, in the village Muni do not
+make intimate interaction.
+
+Those who wish to be dismissed, and those who do not have hope, will not talk
+with others.
+
+Home Owner! The detailed rationale of Worldplace in brief should be understood
+in this way."
+
+Because then, Worldman said:
+
+"After breaking off their homes, become homeless travellers, and there is no
+intimate interaction in Muni in the village.
+
+Those who wish to be dismissed, and those who do not hope, will not talk about
+them with men.
+
+80. from those far from the world can do, dragon elephant will not pick up after
+    saying those,
+
+Such as aquatic thorns water lotus, not contaminated by water and mud,
+
+Like this, Muni is a silence theist, no covenant, and is not polluted in the
+world.
+
+"From those who are far from in the world": "From those," from those evil. "Far
+from," those who have done nothing, far away, and have been separated; wicked in
+words... wicked in evil... with greed... (middle) to make the empty, far away,
+and separated. "Can do", can live, act, turn, protect, survive, enable survival.
+"In the world", in the world of mankind." For those who are far from the world
+can do.
+
+"Dragon elephant will not pick up and say those": "dragon elephant", "do not
+sin" for the dragon elephant; "do not go" for dragon elephant; "do not come" How
+is "no crime" for a dragon elephant? Crimes are called the law of evil:
+polluted, re-existing, fearful, bitter, future life and death.
+
+[Worldworld] [Sn.3.6, 527]
+
+Do not commit any crime in the world, after leaving all bondages and bondages,
+
+No adhesion to everything, freedA person like this is truly called a dragon
+elephant.
+
+This is "no crime" for the dragon elephant.
+
+How is "Don't Go" for Dragon Elephant? Don't want should not go everywhere; do
+not go unobsession should not be everywhere; do not go horror should not go
+everywhere; do not go by greed; do not go because of obsession; not because of
+slow; not because of seeing And go; do not go out of the move; do not go for
+doubt; do not worry about potential trends and go; do not be quarrel (not and
+legal) law carry away, take away, carry, carry, carry. So is "not going" for the
+dragon elephant.
+
+How is "not coming" for the dragon elephant? Whoever is to be cut off the
+pollution, those polluted he no longer experience, do not return, do not go
+back; by a way... is not returned... where the pollution is cut off by Arrohan
+Road, those polluted he no longer experience, do not return, Do not go back.
+Such is "not coming" for the dragon elephant.
+
+"Dragon elephant will not pick up and say those": "dragon elephant will not
+hold, grasp, hold, perform, persist in those evil opinions after saying, tell,
+talk, explain, say; [will not hold, grasp, hold, carry, persist ] "The world is
+constant... after death neither exists nor does it exist, this is true, the
+others are empty." After saying, tell, talk, explain, say, say. For dragon
+elephant will not pick up after saying those.
+
+"Such as aquatic thorns water lotus, not contaminated by water and mud": "Elais
+called water; ambuja( aquatic) is called lotus; thorns are called coarse stems;
+vāri is called water; vārija( aquatic) is called lotus, aquatic start; jalais
+called water; pako (mud) is called mud. Such as aquatic, aquatic lotus, it is
+not contaminated with water and mud, not strongly contaminated, not closely
+contaminated (not polluting), no pollution, no longer completely contaminated,
+has not been closely contaminated." As an aquatic thorn water lotus, not
+contaminated by water and mud.
+
+"Like this, Muni is a silence theist, no covenant, and is not polluted in the
+world": "Like this" is an analogical arrangement. "Muni", Munna is known as
+Wisdom... (in the middle) after he was a muni after dyed net. "Silence theist,"
+"Muni is a silence theist, ambulance theist, refugeist, attribution theist, no
+terrorist, non-dead, undead, Nibbana." For like this Muni is a silence theist.
+"No covenant", "Greed is called thirsty love, that is greed, lust (total
+greed)... (medium) greed, greedy, bad root. Whoever for him is cut off, cut off,
+calmed down, stopped, incapable of being born, burned by wisdom fire, he is
+called no greedy, he is not greedy in color; in the voice... on the smell... ...
+in taste... at the touch... at home... in groups... in dwellings... in the
+interest... in fame... in the music... in clothes... on food... in the group...
+In the shelter... on the patient's needs and medical necessities... in the world
+of desire... in color... in colorless... on the color... on the color... on
+colorless... on the colorless... on the idea of having... I want to be on... in
+the past... in the past... in the future... in the present... in what we see,
+smell, feel, be known. The methods of knowledge are those who do not seek, those
+who are not bound, are not obsessed, innocent, deserted, no covenant, who has
+abandoned the greedy, the person who has been excluded, the person who has been
+freed from the greedy, the person who has discarded it, Conception of the
+greedy, the departed, the no greedy, the one who has abandoned it, has been
+ruled out, the liberated, the one who has dismissed it, the deceased, the one
+who is not hungry, the cooled, the cooled, the person who feels happy, Dwelve
+himself for the bereaved of Van." For like this, Muni is a silence theist, no
+covenant.
+
+"Not polluted in the world", "Wills", there are two kinds of desires from
+praise: the wills of things and the desire to pollute... (middle) these are
+called the desires of things... (middle) these are called the desires of
+pollution. "In the world": in the worlds of bitterness, in the world of mankind,
+in heaven, in the worlds of the world, in the world of worlds, in the world.
+There are two kinds of adhesion: [because of] love adhesion and [because] see
+adhesion... (medium) This is the adhesion of thirsty love... (medium) This is
+the sticking of see. Monischer's thirst after the adhesion of love, after the
+disbelief of the adhesion, in the sight is not contaminated; in the world do not
+pollute, not strong pollution, not closely contaminated, has not been polluted,
+is not closely contaminated. He has departed, departed, liberated, and has been
+bound, and he dwelt away from the restrained heart. To be like this, Muni is a
+silence theist, no covenant, in the worldThe room is not polluted.
+
+Because then, Worldman said:
+
+"Those who are far from in the world can do, and the dragon elephant will not
+pick up and say those,
+
+Such as aquatic thorns water lotus, not contaminated by water and mud,
+
+As such, Muni is a silence theist, no covenant, and is not polluted in desire
+and the world."
+
+81. The Vedas who knew not to see and did not come slowly because he was not
+    equal to each other,
+
+He is not guided by the profession, nor is he being guided by what is known, in
+his dwelling place.
+
+"The vedic who knows not come slow to see and do not feel slow": "No" is no.
+"Known the Vedas", Vedas are known in four ways of wisdom, wisdom, Wagan, witty,
+choice, study, Bisherna, positive, to those who have life and death have reached
+the ultimate (target); has reached The ultimate person, who has reached the end
+point, has reached the border (exactly); who has reached the border, has reached
+the terminator; has reached the terminator, has arrived at the ambulance, has
+arrived at the shelter ; those who have arrived at the refuge, have arrived at
+the place of return, has arrived no terror; has arrived without terror, has
+arrived no dead, has reached the undead; has reached the undead, has reached the
+undead, has arrived Nibbana; has reached the Nibbana, or 'Ultimate Veda' is the
+Vedas know, or 'Vedas to the Ultimate Veda' as the Vedas, or the known state of
+Seven Vedas: Have seen being Knowing, suspected to be known, forbidden is known,
+corrupt is known, known, obsession known, slowly known, its evil law is known:
+the polluted, re-there, the fear, bitter fruit, the future will live Old dead.
+
+[Worldworld] [Sn.3.6, 534]
+
+"Select all the Vedas, whosoever belongs to the Samana and Brahmen that exist
+here,
+
+He is a Veda-aware after everything feels away from greed, beyond all Vedas.
+
+For him, Sixty-two evil opinions have been cut off, cut off, calmed down,
+stopped, not born, burned by wisdom fire; he was not seen to be carried away,
+taken away, carried, transported, nor returned, Do not return to that evil see
+as the core." For the Vedas know not to see. "Not to feel," he does not come
+slowly, does not arrive, does not arrive, does not arrive, does not hold, does
+not hold, do not hold, do not persist, or with public permission. For the
+knowledge of Vedas do not see not come to feel slow.
+
+"For he is not equal to one another": "He is not equal to each other because of
+his thirst, because of his sight; he is the highest, and he is unto the other
+side. Thirst love and seeing and slow have been cut off for him, the root has
+been cut off, like a palm tree without roots, become a non-living thing for the
+future, this situation is not equal to each other, the highest, and the other is
+to the other side of." For {he came slow,} because he was not equivalent to each
+other.
+
+"Do not be guided by the profession or by the smell": "Not to be employed", "not
+carried away, taken away, carried, carried or moved by welfare or non-welfare or
+immovable business." Not to be employed. "It is not guided by the smell," is not
+cleanly heard, or by other voices, or by public permission to carry away, take
+away, carry or carry." To be guided without being heard of the profession.
+
+"In the residence he is not guided": "Traction": There are two types of
+traction: the hauling of thirsty love and the towing of seeing... (medium) This
+is the hauling of thirsty love... (medium) This is the traction of see. For him
+the traction of love has been cut off, see the traction has been dismissed, the
+state of the longing traction has been cut off, see the state of traction has
+been dismissed, not guided in residence, not polluted, not to be Approaching,
+not dyed, do not put the heart toward. He has departed, departed, liberated, and
+has been bound, and he dwelt away from the restrained heart. For in the dwelling
+he is not guided.
+
+Because then, Worldman said:
+
+"The one who knows the vedic does not see not come slowly as it feels, because
+he is not equal to each other,
+
+He is not guided by the profession, nor by the smell of his profession, and he
+is not guided in his place of residence.
+
+82. There is no binding for the people who want to leave the dye, there is no
+    idiot for the Hui freemer,
+
+Whoever holds those who want to meet, they do with friction in the world.
+
+"There is no tie to the people who want to leave the dye": "Where the luxury
+motha is the lead of the holy road practise, including the initial binding has
+been suppressive, at the time of reaching the state of Alohan, for Alohan,
+bound, To think, malice, harm, think, see want to be cut off, the root has been
+cut off, like a palm tree without roots, become a non-living thing for the
+future." There is no binding for those who want to disappear.
+
+"There is no idiot for the liberator": "Where the Bisha is the leading Holy
+Trainee, which includes the initial devil has been depleted, arrived at Alohan
+state, for Alohan, idiot, binding, all cover, want to think, malicious think,
+harm, see want to be cut off, root has been cut, like no root Palm trees, become
+inhabited, for the future." There is no idiot for the Hui freemer.
+
+"Whoever holds those who want to see, they produce friction and walk in the
+world": "Whoever holds the imagination: want to think, malice think, harm, they
+want to create friction, friction each other: kings and kings theory, Chateli
+Theory of Brahmen and Brahmen, Owners and Owners, Mother-Son Theory, Son and
+Mother Theory, Father-Son Theory, Son and Son Theory, Son and Father Theory,
+Brotherhood and Brotherhood Theory, Sister and Sister Theory, Brother and Sister
+Theory, Sisters and Brotherhood Theory, Friend and Friend Theory. As they
+quarrel, fight, argue, argue, attack each other with fists, blocks, sticks,
+swords, where they suffer death, or suffering like death [MN.13]. Whoever holds:
+"The world is constant"... (medium) or "neither exists nor does it exist", they
+create friction and friction with each other because of their seeing: friction
+between the master and the master, the narrator of the law and Friction between
+the Narrator of the Law, friction between groups and groups, between see and
+see, friction between trajectories and tracks, and friction between road and
+aisle.
+
+Or they argue, brawl, argue, argue, argue, argue, and disregard: 'You have no
+knowledge of this law and the law; I know it;... (medium) please disassemble, if
+you can. ' Their deeds are not cut off, and their actions are not cut off. They
+produce friction in the intrigues: in hell they produce friction, in the animal
+world they produce friction, in the world of hungry ghosts, In the world of men
+they produce friction, in the world of heaven they produce friction, fun and
+fun... past and past life... birth and birth... there and have... reincarnation
+and reincarnation... circulation and circulation they produce. Friction, rubbing
+each other, saying, walking, living, acting, turning, guarding, making survival
+"in the world", in the worlds of bitter worlds... To hold those who want to
+meet, they create friction in the world.
+
+Because then, Worldman said:
+
+"There is no binding for the people who want to leave the dye, and there is no
+idiot for the Hui liberator,
+
+Whosoever holds those who want to see, they do with friction in the world."
+
+Description of the Bible of Mathendiah ninth [Completed].
+
+
 
 Excerpt:
- 1. not to see/hearting/wit/abstention and prohibition, nor to the noise/odd/wit/abstention and ban state as clean, but give up, do not pick up these (Mafia law/love slow/Fu Fu Fu do not act), The silence does not stop (love/see) will not want to have.
- 2. without me wait/I win/I inferior, he will be in dispute with whom? Whoever holds those who want to meet, they do with friction in the world.
- 3. family travel: color by want to travel is the home, know the color by the world greedy bondage.
- 4. intimate interaction: with it, with the same sorrow.
- 12/11/2020 16:37
+
+1. not to see/hearting/wit/abstention and prohibition, nor to the
+   noise/odd/wit/abstention and ban state as clean, but give up, do not pick up
+   these (Mafia law/love slow/Fu Fu Fu do not act), The silence does not stop
+   (love/see) will not want to have.
+
+2. without me wait/I win/I inferior, he will be in dispute with whom? Whoever
+   holds those who want to meet, they do with friction in the world.
+
+3. family travel: color by want to travel is the home, know the color by the
+   world greedy bondage.
+
+4. intimate interaction: with it, with the same sorrow.
+
+12/11/2020 16:37
+

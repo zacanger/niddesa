@@ -1,178 +1,366 @@
-2. cave eight sets of instructions
- Secondly, the cave eight a set of instructions will say:
- 7. stuck in the cave was covered by many comprehensive, the people who stayed have been sinking in fools,
- Indeed, he is far away from him, for it is not easy to disconnect in the world of desire.
- "The card is covered by many full cave": "is called "card", but only those caves can be said. Caves are called bodies, "body" or "cave" or "limbs" or "build-up (body)" or "boat" or "car" or "flags" or "ants" or "castles" or "nests" or "huts" or "tumors" or 'Urn' {or 'Dragon Elephant'}, which are synonyms for the body. "stuck in the cave" in which he is stuck, entangled, hung, hung, attached, hung, stuck, obstructed, such as a tumor stuck, entangled, hung, attached, hung, hung, hung, hung, hung, hung, hung, fastened, Obstacles. Similarly, in the cave he was stuck, entangled, hung, attached, entrenched, and obstructed. This is said by Worldhotel [SN.23.2, SN.23.3]
- Rhoda! Whoever in color desires, greedy, joy, thirst, love, climb, take, take, heart, hold, annoy potential trends, persist there, strong persistence there, so called "human beings"; Rhoda! Where in the subject... (in the slightly) Rhoda! Where to think on... Rhoda! Where on the line... Rhoda! Whoever is aware of desire, greedy, joy, thirst, crawling, carrying, carrying, holding, troubling potential trend, persistence there, strong persistence there, is called "human beings." "Staggy" is "synonyms for sticking" is stuck in the cave. "covered by many comprehensively", covered by many pollution; covered by greed; covered by obsession; covered by anger; covered by resentment; covered by hiding evil; overridden by jealousy; covered by jealousy; covered by skepness ; covered by fraud; covered by cunning; covered by stubborn; covered by passion; covered by slow; overridden slowly; covered by ease; all polluted, all evil, all annoyed, all coke , all annoying, covered by all bad creations, expanding coverage, covering, obstructing (blocking), wrapping, covering, covering, closing (covering), covering, covering, covering, covering. For the card in the cave is covered by many comprehensively.
- "The person who has stayed in an idiot": "When people stay, the corrupt person stays because of greedy (force); the angry person stays for the stupid; the foolish is stalled because of the stupid; the bondage is slow to stay; the executor because of seeing To stay; came to the scattered person to stay because of the move; did not come to the conclusion of the person who stayed because of doubt; came to the fortitude because of the potential trend and stayed, this is the person who stayed.
- This is said by Worldman, "The Bichu There is a color that can be known by the eye, cute, desirable, cute, cute look, accompanied by desire, greedy, if Bichu rejoice, welcome, and continue (stay) hold it... Bichu! There is a sound that can be known by the ear... the smell that can be known by the nose... taste that can be known by tongue knowledge... can be touched by the knowledge of the body... can be known by consciousness, cute, desirable, cute, cute Like, accompanied by desire, greedy law, if Bichu rejoice, welcome, continued (stay) hold it... [SN.35.98]" This is also a person who stays.
- This is said by Worldman, "The Bichu When recognizing the stand (stay), standing on the color of the climbing, the color of the edge, the color of the standing, there is a pouring of joy, you can come to growth, growth, expansion. Bichu! ... In the climbing of the subject... (medium) in the climbing want... Bichu! When you recognize the stand (stay), dwell in the climbing row, the row of the edge, the line of dwelling, there is a pouring of joy, you can come to grow, grow, expand. [SN.22.53] "This is also a person who is staying.
- This is said by Worldman, "The Bichu If there is greed in material food, there is joy, thirst love, knowledge where it establishes, grows, where there is the birth of fame; there are the births of fame, where there are lines of growth; there are The growth of the line, where there is future regeneration of birth; there are future regeneration births, where there are future life, old and dead; there are future life, old, dead, Bichu! And I said, There is sorrow, and there is despair. [SN.12.64] "This is also a person who stays.
- "Bichu! If on the touching... (medium) Picchu! If on the meaning of food... (in the middle) Picchu! If there is greedy in the knowledge, there are joy, thirst love, know where to establish, grow, where there is the birth of fame; there are fame births, where there are linesThere are lines of growth, where there are future regeneration births; there are future regeneration births, where there are future life, old and dead; there are future life, old, dead, Bichu! And I said, There is sorrow, and there is despair. [SN.12.64] "This is also a person who stays.
- "Sinking in the fool", fools are called five kinds of desires: can be the eye knowledge, the desired, cute, agreeable, cute look, accompanied by desire, greedy color; can be known by the ears of the voice... can be the nose The smell of knowledge... can be touched by the taste of tongue knowledge... can be touched by body knowledge, desirable, cute, desirable, cute, and greedy. What reason fools are called five kinds of desires? Most of the days, people become stupid, obsessed, confused in five kinds of desires, become stupid, obsessed, confused, foolish, obstructed (blocked), enclosed, impaired, closed (by Covered), covered, covered, foolish for that reason is called five kinds of desires. "Sinking in an idiot," has sunk, entered, sneaked into, caught in fools." For those who stayed have been sunk in fools.
- "A man like that he is indeed far away from": "Far from," there are three kinds of distances: away from the body, heart away, and from. What is body away? Here, Bichu is close to living alone: forest, under trees, mountains, caves, caves, cemeteries, forests, open land, straw piles, to live away from the body [to stay away from the body - Ni.14,150], He walked alone, standing alone, sitting alone, lying alone, alone in order to pouches into the village, return alone, sitting alone, alone, alone, live, act, turn, guard, make survival, make Survive, which is body away.
- What is Heart Away? Enter the heart of the first Zen has been far from the cover, into the heart of the second Zen from all seeking, into the heart of the third Zen has been far from joy, into the heart of the fourth Zen has been far from joy and bitterness, into the void of the endless The heart has thought from color, have to think, all kinds of want to stay away from, into the heart of the infinite sense of the infinity of the people want to be away from the void, into the heart of the infinite sense, into the heart of the people who want to be There is no place to want to stay away, the heart of the Suhuan has been removed from the presence, doubt, forbidden, see the potential trend of troubles, the potential trend of trouble, and with its persistence of pollution away, a person's heart has been from a rough desire to corrupt, Evil knot, from the rough desire to worry potential trend, the potential trend of wicked annoyance, and with its existing pollution away, not yet the heart has been from the residual desire to corrupt, evil knot, from residual greedy troubles potential trend 、Suspicious annoyance potential trend, as well as the existing pollution away, Alohan's heart has been colorless greedy, slow, lifeless, unclear, slow annoyance potential trend, potential trend of greedy troubles, unclear troubles potential trend , and the pollution that persists with it and the outside from everything, it is the heart away.
- What is Keep Away? According to the known as the pollution and all creations; from being called immortality, Nibbana, that is all done, all according to the conviction, thirst of love extinction, away from greed, extinct, Nibbana, this is by far from. The body is kept away from the body, happy to leave; heart away from the heart belongs to the pure, reach the highest whiteness; by far from belongs to the unrelying person, to leave (= Nibbana).
- "He is indeed far away", where he is so stuck in the cave, so covered by many comprehensive, so sunk in the fools, he is far away from the body; also in the distance of the heart; he is also in the distance of the heart; also by far from Far away, far away, far away, not near; not near; not near; not near; in not near; in being pulled away (Ceylon version). "Like those," who belong to the one who lives, that kind of, like that, he has sunk in fools." For those like that, he is indeed far away.
- "For indeed it is not easy to disconnect in the world of desire": "Wills", there are two desires from the filming: the desire of things and the desire to pollute. What are the desires of things? The color of the consensual, the sound of consensual, the smell of consensual, the sense of the touch, padding, clothing, maid servant, goat and sheep, chicken pigs, like cow mule, fields, homes, gold, gold coins, villages Town capital city, country, land, treasury, warehouse, any thing that will be corrupt is the desire of things. In addition, there are the desires of the past, the desires of the future, the desires of the present, the desires of themselves, the desires of the outside, the desires of the inner and the outside, the inferior desires, medium desires, the desire of the wills, the desire of the bitter, The desires that have been created, the desires that have been created, uncreated desires, areDesires created by others, desires that have been held, unoccupied desires, cherished desires, desires not to be cherished, all desires of the law of desire, all the desires of the law of color, all desires without color, based on thirst Thirst for love, for righteousness to want, to be corrupt and righteous, to be enchanted for righteousness, these are called the wills of things.
- What are the intentions of pollution? Wills, Greedy, Wills, Wills of Intent, Greed Wills, Intent Greedy Wills, Wills, Wills, Joy of Wills, Desiring Love, Willed Love, Wills The obsession, the desire to take, the flow of desire, the yoke of desire (bondage), the execution of the desire, the will cover.
- "Seeing the roots of desire, that thou shalt be created by thought,
- I will not think only thee, so that the desire will not exist." [Jat.8.421]
- These are known as polluting desires. "In the world": in the world of bitter worlds, in the world of mankind, in heaven, in the world of the world, the world of worlds, and in the world. "For it is indeed not easy to disconnect in the world of desire": "For in the world of desire is hard to disconnect, hard to give up, hard to give up, hard to break (conquer), hard to unravel, difficult to release, difficult to take off, hard The spent, hard to pass, difficult." For indeed it is not easy to disconnect in the world of desire.
- Because then, Worldman said:
- "The stuck in the cave was covered by many comprehensively, and the people who stayed had sunk in fools,
- Indeed, he is far away from him, for indeed in the world of desire is not easy to disconnect.
- 8. by the reason they want to be bound by pleasure, they are difficult to relive because they are not freed from others,
- Looking forward later or even above the previous, in those desires or above the previous ones.
- "To be bound by the joy of the reason you want": "Want to be called thirsty love, that is greed, lust (total greed), with greed, fit, joy, greedy, greedy, greedy, desire, obsession, take, greed, greedy, Dyeing, sludge, disturbing, hypocrisy, [reincarnation] root cause, [bitter] fertility, tailor (greedy), net, river, bound, rope, persistent, stacked, companion, desire, pipeline, wishu (forest) 、Love Lin (jungle)、Intimate interaction [santhavo?] , love, expectation, relationship, desire, desire, desire, state of desire, desire of color, desire of voice, desire for smell, desire of taste, desire to touch, desire to get, desire of wealth (human desires/ Ni.1,3), Son's desire, desire to live, desire, hope, prayer, greed, state of greed, greed, state of greed, state of greed, state of greed, asking [profit], wings for good , Illegal greed, bad greedy, desire, desire, hope, envy, complete hope, thirst for love, thirst for love, nothingness, color thirst love, colorless thirst love, quench thirst love, color thirst love, voice thirst , the smell of thirst love, the taste of thirst love, the touch of thirst love, burst, yoke (bondage), binding, execution, obstacle, cover, cover, bondage, with contamination, troubles potential trend, winding, mandarin, stingy , bitterness, bitterness, the occurrence of the magic catcher, magic fishing hook [, magic food], the territory of magic [, magic residence, magic bondage], thirst love river, thirst love network, thirsty love rope, thirsty sea of love, greed , greedy, bad root. "By reason of want", "want for its reason, want for its cause, want as its cause, want as its cause, want as its cause, and want as its root." For the reason you want.
- "Be bound by the joy", a kind of joy: pleasure, two kinds of joy: pleasure and satisfaction, three kinds of fun: young, sick, life, four kinds of joy: profit, fame, appreciation, peace ( Happiness), five kinds of fun: the desired color, the desired sound, the desired smell, the desired taste, the desired touch, six kinds of fun: eye, ear, nose, tongue, body, full of meaning . Bound by the joy of being bound: bound by pleasure, bound in satisfying things, being tied in young, in no disease, bound in life, bound in profit, bound in fame, in Appreciation is bound, bound in peace, bound on the desired color, in the sound... in the smell... in taste... bound at the desired touch, on the eyes and feet, in the ear and nose and tongue The meaning is bound, enlarged bound, bound (tightened), attached, fixed, obstructed." To be bound by the joy of the reason you want.
- "They are unreliably because they are not freed from others": "They are unreliably with joy, orIt is hard to relive here. How is it that things are hard to relive with them with pleasure? Pleasure is difficult to relieve, satisfying things are difficult to relieve, young is difficult to relieve, no disease is difficult to relieve, life is unsolvable, profit is difficult to solve, reputation is difficult to relieve, appreciation is difficult to relieve , ease is difficult to solve, the desired color is difficult to solve, the sound... smell... taste... the touch is difficult to reliably, eyes are difficult to reliably, ears and nose and tongue are difficult to solve, difficult to dissolve , difficult to dissolve, difficult to unlock, difficult to release, difficulty off, difficult to pass, difficult to pass, difficult to pass through. This is what they have with joy is hard to relive.
- How are living beings here difficult to relive? The joy of the living is difficult to relieve, from the satisfying things is difficult to relieve, living beings from young are difficult to relieve, from no disease is difficult, the living is difficult to relieve from life, and the benefit from life is difficult The liberation of the human beings from the fame is difficult to release, from the appreciation of the living is unreliably, from ease is unreliably, from the consensual color is difficult to release, from the sound of the consensual sound... from the smell... from taste ... from the touch is difficult to relive, human beings from the eye is difficult to relive, from the ear and nose and tongue is difficult to relive, difficult to pull out, difficult to pull out, difficult to rise up, difficult to solve, difficult Loosening, difficulty off, difficult to pass, difficult to pass, difficult. This is something that is hard to relive here.
- "Because they are not free from others," they can't pull out others who fall into the mud. This is said by Worldman, 'Pure! "He is a man who falls into the mud and will pull out the others in the mud." This is not possible. Pure Tuo! "He is undisciplined, untrained, un-Nibbana and will make others revolt, train, Nibbana." This is not possible. [MN.8] 'This is because it is not free from others.
- Or, you do not have any other reliever, if they can be freed by their own power (fortitude), with their own strength, with their own energy, with their own efforts (brave), to their own human forces. , with their own human power, to their own human vitality, to their own people's efforts, to their own right path, follow the road, not the opposite, according to the righteousness of the road, the law, when the implementation They can be freed, because they are not freed from others.
- This is also said by Worldman: [Ni.22]
- "For relief I will not be able to: Dudagor! Any doubter in the world,
- When you know the most winning method, you will get through this storm."
- This is also because it is not freed from others.
- This is also said by Worldman: [Dph.12,165]
- "Himself who has done evil, and they become polluted,
- And he who does not do evil himself, and he becomes clean,
- Clean and unclean are separate, not one can make the other clean. '
- This is also because it is not freed from others.
- This is also said by Worldman, 'Same, Brahmen! Nibbana lived, guided by the way of Nibbana, my advice to live, however, when my disciples were so admonished and so admonished, there were some Nibbana that reached the end, some did not arrive, Brahmen! What can I do here? Brahmen! As a guide. [MN.107] Buddha only tells (refers to) the way that they can be relied when they do it. ' This is also because it is not freed from others." For them is difficult to relive because they are not freed from others.
- "Expect later or even above the previous": "later called the future, formerly known as the past, in addition, after the past, the future and present are behind; after the future, the past and present are ahead. How to look forward to the previous one? "I had such a color in the past" there looking for joy [MN.132]; "I had this kind of experience in the past... I had this kind of thought in the past... I had such a line in the past... "The knowledge" is there to look for joy, so that it is to look forward to above the previous.
- Or, 'My eyes were like that, and the color was like that. ' There, knowledge is bound by desire, and when it is bound by greedy, rejoice it; and when it rejoice it, so is the expectation of the previous. "My ears were like that, and the sound was like that." ... "My nose used to be like that, and the smell was like that." ... 'My tongue was like that, and the taste was like that. ' ... 'My body was like that in the past, and touched it was like that. ' ... 'I mean, it was like that. The law was like that.That's it. ' There, knowledge is bound by desire, and when it is bound by it, rejoice it; and when it rejoice it [MN.133], so it is also expected above the previous.
- Or, whoever used to laugh, speak, and play with a woman, he tastes it, wants it, and because of it comes to happiness [AN.7.50], so it is also expected above the previous.
- How is it to look forward to later? "I will have this color in the future." Look for joy there, 'I will have this kind of suffice in the future. ... I think this way in the future. ... I will have this line in the future. ... I will have this knowledge in the future." Look there for joy, so that it is to be expected on top of the later.
- Or, 'My eyes will be like that in the future, and the color will be like that. ' Hope for the unacquired heart, because of the hope of the heart, rejoice it; when it rejoice it, it is expected in the back. "My ears will be like that in the future, and the sound will be like that." ... 'My nose will be like that in the future, and the smell will be like that. ' ... 'My tongue will be like that in the future, and the taste will be like that. ' ... 'My body will be like that in the future, and the touch will be like that. ' ... 'My future will be like that, and the jastias will be like that. ' Hope for the unobtained heart, because of the hope of the heart, rejoice it; when it rejoins it, it is also expected above the later.
- Or, 'I will become heavens, or one of the heavens with this forbidden, and miserable, and Van. ' Hoping for the unacquired heart, by the hope of the heart, rejoice it; when it rejoins it, it is also expected above the later." Looking forward to later or even above the previous.
- "In these desires or on top of the past": "In these desires," I want, accept, seek, pray, pray for the five kinds of desires. "Or eagerly looking forward to the past five desires, looking for, praying for, praying." To be eagerly looking at these desires or above the previous ones.
- Because then, Worldman said:
- "They are bound by the joy of the reason they want, because they are not free from others,
- I look forward to later or even before, in those desires or above the previous ones."
- 9. those who seek in desire, are fainted, and the stingers are fixed on the wrong,
- They cry when there are bitter results: where will we exist from here after death?
- "The desire of the desire and the enthusiasm is ignorant": "desire", "There are two kinds of desires from praise: the desire of things and the desire to pollute... (medium) these are called the desires of things... (medium) these are called polluted. To. Grave is called thirsty love, it is greed, lust... (medium) greed, greed, bad roots. The desire of pollution is greedy, greedy, tied, obsessed, dyed, attached, entrenched, obstructed, obstructed." For the desire.
- "Enthusiasant," whoever seeks, seeks, and seeks, that character, many, heavier, who targets it, toward him who strives, tilts to him, to the winner, to the overcoming, to that Those who increase, they are those who are keen in desire. Whosoever seeks, seeks in all colors because of thirst for love... in the voice... in the smell... in taste... in the touch... that person, the man who is more than that, the heavier, the heavier, It is also those who target, toward the hard, tilt to it, to the victorious, and add to it, they are also keen in the desire. Whosoever gets in all colors because of thirst for love... in the sound... in the smell... in the taste... in touch, that character, the person who hears that, the person who is the object of it, the person who works toward that. To the one who reclines, to him who overshadeth, to him, and they are enthusiastic in desire. Whoever is used in all colors because of thirst for love... in the sound... in the smell... in taste... in touch, that character, the person who hears that, the person who is the object of it, the person who works towards that. To the one who reclines, to him who overshadeth, to him, and they are enthusiastic in desire. Such as theaters are keen on theory, workers are keen to work, those who walk on the border are keen on the road, and the meditators are passionate about meditation. In the same way, whoever seeks, seeks, and seeks, that character, more than that, the heavier, the object of that, toward the striving, to the tilt to him, to the winner, and to the solver, and to that He, they are those who are keen in desire. Where in all colors because of thirsty loveSeeking, searching, seeking... in the sound... in the smell... on the taste... in the touch... (middle), the person who seeks, the person who hears, the person who hears it, the object of it, toward it. He who strives, to the tilt, to the triumph, to him, to him, and to him, they are keen in desire. Whosoever gets in all colors because of thirst for love... in the sound... in the smell... in the taste... in touch, that character, the person who hears that, the person who is the object of it, the person who works toward that. To the one who reclines, to him who overshadeth, to him, and they are enthusiastic in desire. Whoever is used in all colors because of thirst for love... in the sound... in the smell... in taste... in touch, that character, the person who hears that, the person who is the object of it, the person who works towards that. To the one who reclines, to him who overshadeth, to him, and they are enthusiastic in desire.
- "Fainty", most of the days, people become stupid, obsessed, confused in five kinds of desires, become stupid, obsessed, confused, with no clear as stupid, obstructed (blocked), wrapped, impaired, Closed (overridden), hidden, wrapped." For those who seek in desire are ignorant.
- "The stingers are fixed on top of their injustice": "The "skimps", "They go down" are stingers; "The stingers" are also known as the stingers; "words, lines, teachings, and teachings to Buddhist disciples "They don't care" for the stingers. How is 'they go down' for the stingers? They went to Hell; they went to the beasts; and they went to the evil world, so they went down for the stingers. How is the "stingy man" also called the skimp? There are five kinds of stingy: [right] of living, home saving, profit, praise of the stingy, law, where such a saving, saving stingy, stingy state, greedy, stingy, stingy, heart grip state, which is called stingy. In addition, stingy is also stingy; the world is also stingy; stingy is also stingy, which is called stingy. With this stingy, intolerant, people become relaxed, so that they are called the stingers. How is "words to Buddhist disciples, language, teaching, teaching and teaching them not to care" as a stingy person? "To Buddhist disciples words, words, teachings, teachings, and admonitions they do not care, do not want to hear, do not want to hear, do not take ear, do not know, they are disloyal, disobedient, and opposing deeds, do not turn their face to others, so The words of the Buddhist disciples, the way, teaching, and teaching them do not care. For the stingers.
- 'They are fixed on top of incorrect', fixed in the wrong profession; fixed in the wrong language; fixed in the wrong business; fixed in the uncorrect killing; taken in the unrighteous ungiving fixed; fixed on the unrighteous evil; fixed on the false falsehood; on the unrighteous disguise... on the unrighteous vulgar... in the unrighteous obscene language; on the unrighteous greed... in Incorrect malice is fixed; fixed on the wrong evil; fixed on the wrong lines; fixed on the wrong five kinds of desires; fixed on the wrong five covers, is fixed deeply (persuasive) [, by Stucked], Stopped, glued, entered, dyed, heart oriented, attached, stuck, obstructed." For the stingers they are fixed on top of the improper.
- "When there is a bitter result they grieve": "When the result of bitterness" has reached the bitterness, has reached the bitterness, has come to bitterness, has reached the devil, has reached the devil, has reached the devil, has reached death, and is near death. "They weep," they crumble, weeping (speak a lot), sorrow, tired, sad, sad, crying, and crying, came to confusion. For the bitter results when they cry.
- "Where will we exist after death from here": "Where will we exist from here after death? We will be the fallen hell; we will become the beasts; we will become devil; we will be men; we will be angels; we will become colourless; we will be colorless; we will Be thinkers; we will be unwittless; we will be unwittful, 'Do we exist in the future? Do we not exist in the future? What will our future world be? What about our future life? What is our future world, and what will [later] become?" Leap into the doubters, leapfrog into the skeptics, born of doubts, they cried, weeping (speaking a lot), sorrow, tired, weeping, crying, came to confusion." For where we will exist after death from here.
- Because then, Worldman said:
- "On the desireThose who seek and enthusiasm are ignorant, and the stingy are fixed on the wrong,
- They cry when they have bitterness: where will we exist after death from here?"
- 10. So here people should learn, should know any "wrong" in the world,
- That reason should not be wrong, because the wise men say that this life is less.
- "So here man should learn": "Therefore, 'for that reason, that cause, that cause, that cause, and that cause, when seeing this oversuffering on the desire. ' For that. "Should learn", there are three kinds of studies: add abduction, add heart, add Hui learning.
- What is Additions? Here, Bichu is a ring bearer who lives in the protection of the home-made porotty forks, is well on the way and the border, seeing horrible in micro-crime, learning after being held in the school. Small ring, big ring is the basis of stop, [self] suppression of behavior, homemade entrance, good law, etc. (reached) the top, which is added to the school.
- What is Addition Psychology? Here, Bichu from desire, from bad law, after entering into the search, servo, born joy, joy of the first Zen, to find and servo calm, self-confidence, one heart, into the infinity, serveless, born joy, joy Second Zen, the third Zen of joy fades and dwells in calm, mindfulness, with the body to feel joy, after entering the holy disciples to declare: "He is calm, mindful, and dwelt in the joy" of the third Zen, with the reluctance and bitterness of joy Broken, and before the extinction of joy and worry, enter after living in the unhappy, calm and read the fourth Zen, which is added to the heart.
- What is Adosted Wisdom? Here, Bichu is a man of wisdom, with a guide to birth and extinction; holy, insight, and the direction of bitterness completely extinct [the Wisdom], he knows, 'This is bitter. ' "This is a bitter set." "It is bitter." "This is the path that leads to bitterness." To be honest, 'These are troubles. ' To be honest: 'This is a set of troubles. ' To be honest: 'This is annoyance. ' To be honest: 'This is a guide to annoyance. ' This is the addition of Wisdom.
- These three studies, should learn when toward (notice); should learn when you know; should learn when seen; should learn when inspecting; be careful to establish (determination) should learn; when you win by faith should Learning; should learn when energetic efforts; When thinking, should learn when thinking; Be careful (focus) should learn; learn when knowing with Hui; Learn when testament should be known; Should be widely known, should learn when disconnected should be cut off; should learn when practicing should be practiced; should learn when testifying should be testified, should be practiced, should be good practice, After holding should turn up.
- "Here" belongs to this see; belongs to this love; to this hobby; in this law; in this law; in this law; in this law; in this teaching (teaching); in this teaching; in this Sanskh In the teachings of this master; in this individual; in this man's world, because that is called 'here. ' Man, human beings, human beings... (Central) the born of Monu." So right here people should learn.
- "It should be known that whosoever is unrighted' in the world": "Whosoever, all completely, in every aspect, completely, without residue, the whole land, this is the word of "whosoever." "Should know the "incorrect", you should know that the incorrect profession is "incorrect"; should know the incorrect language is "incorrect"; it should know that the incorrect intentions are "incorrect"; should know the incorrect Kill is "wrong"; should know that the wrong is not given and taken as "incorrect"; should know that the wrong evil is "incorrect"; it should know that the false falsehood is "incorrect"; should know the wrong Distinguistic words are "incorrect"; should know that the bad bad words are "incorrect"; you should know that the bad greed is "incorrect"; should know that the incorrect greed is "incorrect" Malicious is' incorrect '; it should know that the bad evil is' incorrect '; you should know about the wrong behavior "wrong"; should know about the five kinds of incorrectness is "incorrect"; should know about The five covers of the incorrect are "wrong": should know, should know, should be different, should know, should be through. "In the world," in the worlds of bitter worlds... For what should be known to be "incorrect" in the world.
- "By that reason should not do wrong": "[to] the cause of an incorrect career should not be wrong; the cause of the wrong language should not do itPositive; the cause of bad intentions should not do wrong; the cause of the wrong killing should not be wrong; the cause of the wrong failure to give should not do wrong; the wrong evil cause should not be wrong; not correct The cause of false words should not do wrong; the cause of the incorrect diversion should not be wrong; the cause of the bad bad words should not do wrong; the cause of incorrect greed should not be wrong; the cause of bad greed Should not do wrong; the cause of bad malice should not do wrong; the cause of the wrong evil should not do wrong; the cause of the wrong behavior should not be wrong; the five causes of injustice should not do wrong The cause of the wrong five covers should not be wrong; the cause of incorrect thinking should not be wrong; the cause of bad hope should not be wrong; the cause of an incorrect desire should not be wrong: should not practice, It should not be fully practiced, should not be held after turning." For that reason should not be wrong.
- "For the wise say that life is less": "Life" is the survival of life; life, survival, the turn of action; and the guardian of life, the root of life. In addition, life is less with two factors: the limited life of survival is less, or less with natural (self-flavored) finite life. How is the limited life of survival is less? In the past heart moment lived, [but] is not alive, will not live; in the future heart moment will live, [but] is not alive, in the past; in the present heart moment now live, [but] the past is not alive, The future will not live.
- "Life and the individual, all (only) music and bitterness,
- Take a single heart: can turn up quickly in a moment.
- All the heavens survive, eighty-four thousand robbers,
- But neither do they live by two hearts.
- And whosoever dies here, or surviving, is destroyed.
- All those who have gone are, the same cannot be restored.
- Whosoever is destroyed immediately, and whosoever will be destroyed,
- [And] in the midst of those who were destroyed, there was no inequality in the special phase.
- He is not born from what has not happened, and he lives now,
- The destruction of the heart becomes an anchored in the highest interest of death.
- They occur as the downward [flow], are intended to make changes,
- They turn [such as] a flow of water that is not cut off, with six edges.
- The destroyed came not stored, in the future there is no heap,
- And whosoever is born they survive, as mustard at the tip of the cone [moment]
- Destruction is placed before the laws that were born,
- The bad ways they remain, not mixed with the previous ones.
- And they came unseen, and they saw depart from the destruction,
- As lightning in the air, they are born and dissipated."
- This is the limited life of survival is less.
- How is the limited life of nature (self-flavored) is less? Life depends on income; Life as income dependence; Life is dependent on income; Life is [four] large species of dependence; Life is the dependence of food for the formation of food; Life as the dependence of life; Life as the sense Dependence: These fundamentals are weak; these genes are weak; whoever uses them for their origin is weak; whoever uses them as power is weak; these common bases are weak; these Connections are weak; these are innate weak; whoever is connected to them are weak; these are often weak; these are inconsistent; these do not stand on each other; they destroy each other (all familiar); not each other. of the asylum, and these do not make each other stand; nor is it found any of the creators.
- "No one has disappeared because of any man, and these are indeed all evil,
- These were born from before, and whosoever the producer they were dead before,
- The former and the latter did not see each other.
- This is a limited life of nature (self-flavored) is less.
- In addition, comparing the life of the four kings angjin, life is less, life is negligible, life is only some, life is instant, life is fast, life is short, life is not long, life is not long, life is not Long stay, thirty-three days Tenjin... (middle) night Tenjin... rate Tenjin Tenjin... Rakuten Tenjin... He is comfortable Tenjin... compared to the life of the Tenjin, for people life is less, life is Trivial, life is only some, life is instant, life is fast, life is short, life is not long, life is not long, life is soon to live.
- This is said by Worldman
- "Picchu! The life of a man is less, and shall come to the next life, and the wise shall awaken, and he who should do good, and repair his family. Living without death, Bichu! Where living elders he hasA hundred years or more."
- "The lifespan of a man is less, and the good should disregard it,
- Should be alive as the head is burned [because] no death does not come. [SN.4.9]
- Day and night passes, life is extinguished,
- The life of a dead person is exhausted, such as water in a small river." [SN.4.10]
- "For the wise say that this life is less": "The wise is the sage; the wise is the sage; the wise is the sage; the wise is the sage; the wicked is the sage, and wisdom is called Hui, that is wisdom, Understanding, Simple Selection, Study, Selection, Identification, Identification, Close Inspection, Xianzhi (Euthology), Skillful, Smart, Thinking, Thinking, Review, General (Comprehensive), Wisdom, Wisdom, Wisdom, Wisdom, Thorn, Wisdom 、Hui Gen、Wisdom、Wisdom、Hui Hall、Huiguang、Hui bright、Hui light、Hui Bao、Intriguing、Choosing method、Positive view [See no hindrance (1) talk of wisdom paragraph 109.], with that wisdom has The state is wise. In addition, the Sage of the Wins, the Sage of the World, the Sage of Origin, the Sage of Remembrance, Normal Sage, the Sage of God, the Root Sage, the Sage of Power, the Sage of the Word, the Sage of Fruit Nibbana sage, those sages say: "For men life is less, life is trivial, life is only some, life is a moment, life is fast, life is short, life is not long, life is not long, life It was soon to live." And they say so, tell it, and speak so, say so, and say so. For the wise say that this life is less.
- Because then, Worldman said:
- "So here people should learn and know that whoever is "wrong" in the world,
- That reason should not be wrong, for the wise say that this life is less."
- 11. I saw the world shaking: this generation came in the midst of all things,
- The inferior bears before death: those who do not leave thirst are in all sorts.
- "I saw the world shaking": "I saw," I saw in my naked eye, I also saw my eyes in heaven, I also saw my eyes, I also saw the Buddha eye, and I saw in all eyes, I saw, I saw, I watched, I watched, Quiet view、I observe。 "In the world": in the worlds of bitterness, in the world of mankind, in heaven, in the worlds of the world, in the world of worlds, in the world.
- "Trembling (all throbbing)", throbbing with thirst love throbbing; throbbing by seeing throbbing; throbbing with pollution; throbbing with effort; throbbing with fruit throbbing; with evil The throbbing and throbbing; with greedy dyed and throbbing; throbbing with anger and throbbing; with the stupid and throbbing; to see that was taken and throbbed; to the disruption And throbbing; throbbing with doubtful failure; throbbing with annoying potential trends; throbbing for profit; throbbing with no profit; throbbing with reputation; throbbing with no reputation; throbbing with no reputation; throbbing with no reputation; throbbing with praise; throbbing with rebuke; throbbing with joy; throbbing with bitterness; throbbing in life; throbbing old; throbbing with illness; throbbing with death; with sorrow, sorrow, despair ; throbbing with the bitterness of hell; throbbing with the bitterness of the dropping beasts; throbbing with the bitterness of evil worlds; throbbing with human suffering; throbbing by roots in the birth of the birth; to the roots of living in the fetus In the bitterness and throbbing; throbbing by the bitterness of the birth; throbbing with the suffering of the living; throbbing by the living by others; throbbing with the suffering of their own actions; to Others act and throbbing; with bitterness and throbbing; throbbing with bitterness; throbbing to become prone to pain; throbbing with eye disease; with ear pain and throbbing; with the pain of the nose... Tongue disease... to head disease... other than ear disease... to mouth disease... to tooth disease... to cough... to wheezing... other nasal disease... to fever... to old... to abdominal disease... to coma... following dysentery... Take abdominal pain... to cholera... leprosy... to tumor... to ringworm... to lungs... to epilepsy... with ringsoriasis... with scabies... to tack... to scratch (a kind of sickness)... Biliary disease... with diabetes... with hemorrhoids... with rash (boil blisters)... with hemorrhoid fistula (ulcer)... with gall equals... diseases with sputum... diseases of the wind... to [the three] Diseases of the collection... diseases that take place in time change... in an incorrect posture... in a sudden attack disease... the disease of the outcome of the industry...With cold... with heat... with hunger... with thirst... with fecal... to urine... to the bitterness of contact with the flies mosquitoes, the bitterness of the dead mother... the bitterness of the dead father... the bitterness of his dead brother The bitterness of the dead son... the suffering of the dead daughter... the loss of his family... the loss of wealth... with the loss of disease... the loss of the ring... throbbing, completely throbbing, expanding. Throbbing, trembling, trembling (strong trembling), big trembling (powerful trembling); I saw, I saw, I watched, I watched, I observed." For me saw the world trembling.
- "This generation has come to love in all things": "Generation (people)" is synonyms for all living beings. "Thirst love" is the color of thirst love, the voice of thirst love, the smell of thirst love, thirst love of taste, the thirst of the touch, the thirst "Come to thirsty love", come to thirsty love; followers by thirsty love; those who are approached by thirsty love; those who are overtaken by thirsty love, conquered, and the heart is overtaken. "In all there" is for the desire, color, colorless. For this generation come thirsty love in all things.
- "The inferior bears in front of death": "The inferior", the inferior "has a bad work" is the inferior; "has bad words" is the inferior; "have bad business" is the inferior ; "with bad death" is the inferior person; the inferior did not give and take... (medium) inferior evil... under bad false words... under bad bad words... bad bad words... under bad greed... Under bad malice... bad evil... underneath the bad evil... five kinds of wills, cover... inferior (intent)... Inferior hope... "have the bad desire" for the inferior, "inferior, inferior, inferior, inferior , low, inferior intentions, trivial" are the inferior. "In the mouth of death (in front of)", "In the mouth of death" is at the mouth of the dead; has reached death; has reached death; has reached death; has reached the devil; has reached the devil; approached the devil; has reached death; Death has come to death; they have come to confusion with whining, weeping, sadness, tiredness, weeping, and crying. For the inferior man in the mouth of death (in front).
- "Unthirsty lovers are in all kinds of things": "thirsty love" as the color of thirst love... (medium) the thirst love of the law. "Among the species," among the seed of the trade, in the desire to have, in the etiquity, in color; in the colourless, in colourless, in the colourless, in the colourless trade, in There are again and again; in the repeated fun, in the past, in the birth of repeatedly, in the birth of the individual, not from thirst, not from thirst love, not forgiving thirst love, not excluding thirst love, not ruled out thirst love, not relieve Those who thirst for love, who do not give out their thirst, and those who do not For those who have not quenched thirst in all sorts.
- Because then, Worldman said:
- "I saw the world shaking, that this generation came in the midst of all things, thirst and love,
- The inferior bears before death: those who are not desperate from thirst are in the breed.
- 12. you see! The throbbers treat things as their own, such as fish in a little water that is depleted,
- After seeing this, I should also do nothing: not being a follower in there.
- "Look! The throbbing bears things as their own": "I do", there are two kinds of things I do: I do the [because of] the thirst, which I do with the [cause] see. What is thirsty love I do? All are called as boundaries, as realms, as bounds, bounds, clutched, taken as their own: This is mine, this is mine, so much is mine, so much is mine, this is mine, so much is mine, and this is The range is mine; my color, voice, smell, taste, touching, spreading things, coats, maid and maid, goats and sheep, chickens and pigs, elephant, cattle and horses, mule horses, fields, homes, gold, gold, gold coins, Villages, towns, kings, places, warehouses, warehouses, all the earth, because of thirst for love and treat them as their own, all one hundred and eight kinds of thirsty love tide [AN.4.199], this is my thirst love Performs.
- What is seeing what I'm doing? There are twenty personal opinions, ten wickedness, ten sidelines, and ten sidelines, such as such see, evil opinion, jungle, desert, distorted, shaken, bound, seppling, acceptance, Hold, perform, clamp, upside down (vipariyesa) clamp, upside down (vipariyesa) clamp, upside down (vipallāsa) ) Clenchment of the wicked, the clasping of evil, "[seen] as true in non-true" clenched, all came to the place of 62 evil views, thisSee what I do. "Look! The throbbers treat things as their own": "They are throbbing when they are robbed, when they are robbed, when robbed, they also throb when they have been robbed; being treated as their own fear becomes easy When they are throbbing, they also throb when they become easy, and when they have become easy, they also throb, strong throbbing, throbbing completely, expand throbbing, trembling, trembling, trembling, big trembling, so, when throbbing, strong throbbing, completely When you expand throbbing, trembling, trembling, trembling, and trembling, behold, see you, see you, watch, and observe. For you guys to see! The throbbers treat things as their own.
- "If fish are in a little water that is depleted": "If fish are in a little water, little water, water depleted by crows or eagles or cranes attacked, raised, eaten, they throbbed, strong throbbing, completely throbbing, expanding Throbbing, trembling, trembling, trembling Similarly, people (generations) are treated as their own fears of being robbed, when they are robbed, when they are robbed, when they have been robbed, and when they are taken; when fears become their own things become easy. Throbbing, they also throb when it becomes easy, and when it becomes easy they also throb, strong throbbing, throbbing completely, expanding throbbing, trembling, trembling, trembling, trembling. For such as fish in a little water that is depleted.
- "I should do nothing after seeing this": 'This oversuffering: after I have seen him, after seeing, after seeing, after measuring, judging, after division, and after figuring it out. ' After seeing this. There are two kinds of things I do: [because of] the thirst of love I do with me, which I have seen. ... This is what I do with thirsty love... This is what I see. After giving off my thirst and love; after the discerning of what I do, he [holds] not eyes as his own; does not take ears as his own; does not take the nose as his own; does not treat tongue as his own; does not treat himself as his own Do not think of their own; all colors... sounds... smells... all tastes... all touches... family... groups (public)... shelter... reputation... praise... music... Clothes... food... shelter... patient's needs and medical necessities... desires... color circles... colorless... want to have... colorless... I want to have... ... one has... four has... five... the past... the future... now... does not see, smell, feel, can be known as his own, he [keep] not holding, not practicing, not persisting He should do, should live, should act, should turn, should guard, should make survival, should make survival." In order to see this, I should do nothing.
- "Not in there as a follower": "In there", in the middle of desire, in color, in colorless. Persistent is called thirsty love, that is greed, lust... (medium) greed, greedy, bad roots. "Do not be a beloved in there": "In there - obsession - not author; willed, love, greedy, like the unauthor, the person who does not make it born, not born, not born, not born." To be a follower who is not in there.
- Because then, Worldman said:
- "Look! The throbbers treat things as their own, such as fish in a little water that is depleted,
- And after seeing this, I should do nothing: not a follower in there."
- 13. on both sides of the revolt after the desire, all known after the touch of lush
- Whoever rebukes himself, he does not perform it, and the wise is not contaminated in what he saw and smell (Ceylon Edition).
- "On both sides": "side", touch as one side, touch set for the second side; the past is one side, the future is the second side; pleasure as one side, suffer for the second side; named side, color for the second side; six inside On one side, the six outside is the second side; there is a body, and a body set as the second. "Wills", which are the wills of the desire, greed, joy of desire, thirst love, the desire of love, the taking of desire, the scorching heat of desire, the obsession of desire, the flow of desire, the yoke of desire, the yoke of desire, the execution of desire, Desire will cover. "On both sides": "The desire on both sides shall be revolved, he should be expelled, should be cut off, should be discarded, should end, and should make it to absent." For after revolting on both sides.
- "Known after the touch of greedy": "Touch", eye touch, ear touch, nose touch, tongue touch, touch, touch, name touch, have a pair of touch [DN.15], can feel the touch of joy, can feel the touch of suffering, can feel not Bitter touch, good touch, bad touch, no touch, want to touch the situation, color of the situation touch, colorless, air touch, no touch, no touch, no touch, world touch, outWorld touch, past touch, future touch, present touch, where such touch, touch, touch, completely touched, touched state, this is called touch.
- "Known after the touch", in three widely known after the touch: known, measured, disconnected. What is known? "Know Touch: This is the eye touch, this is the ear touch, this is the nose touch, this is the touch of tongue, this is touch, this is the touch, this is the touch of the name, this is the touch of the touch, which is able to feel the touch of pleasure, this is the touch that can feel the pain Feel not bitter touch, this is good touch, this is bad touch, this is no touch, this is the desire of the situation touch, this is the color of the touch, this is colorless touch, this is no touch, this is no touch, this is unwilling to touch, This is the touch of the world, this is the touch of the world, this is the touch of the past, this is the touch of the future, and this is He knew and saw it, and it was known.
- What is Measurement Known? And after such knowledge, touching him is invulnerable, bitter, sick, tumor, arrow, woe, sickness, on the other side, the spoilt, calamity, evil, terror, evil, evil, terror, evil, the moving, vulnerable , not solid, no refuge, no refuge, no return [, no return], reluctant, hypocritical, empty, without me, overly, prone, false, unfortunate root, murderer, none, there Trouble, promising, magic food (bait), old disease law, death, grief and sorrow despair law, pollution law, he makes it measure is to gather, destroy, taste, overkill, too sick, out, this is a measure of all known.
- What is disconnection? And after this measure, the desire of the touch is cut off, discarded, and ended, and made it to be absent. This is said by Worldman, "The Bichu And whosoever is about the desire and greed of the touch shall be cut off, so that it shall be cut off, and the root shall be cut off, like a palm tree without roots, into a non-living thing for the future. [SN.22.25] 'This is disconnected all over the world. "Known after the touch", to these three widely known after the touch. "Unaccompanied greed", greedy is called thirsty love, that is greed, lust... (medium) greed, greedy, bad root. Whosoever for him is cut off, cut off, calmed down, stopped, incapable of being born, and burned by a fire of wisdom, he is called no covenant, and he does not seek in color; he does not seek in the voice; The smell is not greedy; in taste is not greedy; in the touch is not greedy; at home... in groups (public)... in dwellings... in the interest... in reputation... in praise... Music... in clothes... in group food... in the shelter... in the patient's needs and medical necessities, in the world of desire... in color... on the color... on the desires... on the desires... in Color has on... on colorless... in the past... in the past... in the future... In the present... the ways in which you see, heard, feel, can be known are not coed, not bound, not obsessed, sinless, away from the greedy, the one who has abandoned it, has been excluded. Seeking, freed from greed, those who have dismissed it, those who have dismissed it, those who have gone away from greedy, no greedy, who have abandoned greed, have been ruled out, freed from greedy, has dismissed the greedy, the The one that is extinguished, and has become cool, and feel joy, dwelt himself for the bereaved. For all known after the touch of greedy.
- "Whosoever rebukes himself does not do it": "Whosoever is all." "Rebuke Yourself," rebuke yourself for two reasons: what was done and what was not done. What is he rebuked himself for what was done and what was not done? "The evil deeds that I have done, not by me." He rebuked himself, "I did evil, and did not do good by my words." He rebuked himself, "The evil deeds which I did, and did not do good by what I did." He rebuked himself; for what I did to kill, not by which I did. He rebuked himself, 'Being taken not given by what I did, and not by what I did not give. ' He rebuked himself: 'The evil of which I did, and which I did not quit wickedness. ' He rebuked himself: "I have made the false words, and I have not forbened them." He rebuked himself: "I have made the disguise, and I have not been forbent from it." He rebuked himself: "The crude evil words which I made, which I made, have not been abused by me." He rebuked himself: "The unclean words which I made, and the unholy words which I made were not absent." He rebuked himself: "Greed by me, not greed by me." He rebuked himself, "The evil which I did, and not I did without evil." He rebuked himself; 'The evil that I made, did notI made the positive view. He rebukes himself, so that he rebukes himself for what was done and what was not done. Or, 'I'm not all branches on my ring. ' He rebuked himself, 'I am not a guardian of the root. ' He rebuked himself, 'I'm not the right amount of diet. ' He rebuked himself, 'I am not a sober man. ' He rebuked himself, 'I am not a man of reading and righteousness. ' He rebuked himself, 'Four thoughts were not practiced by me. ' He rebuked himself, 'Four is not practiced by me. ' He rebuked himself, 'The four gods were not practiced by me. ' He rebuked himself, 'Five were not practiced by me. ' He rebuked himself, 'Five forces were not practiced by me. ' He rebuked himself, 'Seven feusions were not practiced by me. ' He rebuked himself, 'Eight sacred paths were not practiced by me. ' He rebuked himself, 'Suffering is not known to me. ' He rebuked himself, 'The set was not cut off by me. ' He rebuked himself, 'The way was not practiced by me. ' He rebuked himself, 'I have not testified. ' He rebukes himself, so he rebukes himself for what was done and what was not done, so he rebuked his own heritage for not performing, not born, not born, not born, not born, not born." He does not perform it for whosoever rebukes himself. "The wise ones are not contaminated in what they see and smell": "There are two kinds of adhesion: [because] the adhesion of love [because] and [because] see... (medium) This is the adhesion of thirsty love... Adhesive. "Wise" is the wise, the wise, the wise, the wise, the different, the wise, the wise, the wise, after giving off the adhesion of his thirst, after the adhesion of the discernment, shall not be contaminated in sight; not contaminated in what they smell; in Feel not contaminated; in the sense of non-pollution, not strong pollution, not close (no pollution), no pollution, no pollution, no strong pollution, no close pollution. He has departed, departed, liberated, and has been bound, and he dwelt away from the restrained heart. The wise ones are not contaminated in what they see and smell.
- Because then, Worldman said:
- "On both sides of the revolt, they know that they have no desire behind the touch,
- Whoever rebukes himself, he does not perform it, and the wise is not contaminated in what he saw and smell (Ceylon version)."
- 14. know that after trying to get more plunge, in all things Muni is not polluted,
- Unleashed the thorn arrows, unleasing, do not want this world and the other.
- "Knowing that you can get more riot after thinking": ""Think", there is a desire, malicious thought, bad thought, no malicious thought, no harm, color thought, sound thought, smell, taste, thought, thought, thought, thought, all like This state of thinking, cognition, is known as thinking. "Known after thinking", there are three kinds of widely known: known, measured, disconnected.
- What is known? You know, "This is thinking, this is bad thought, this is bad thinking, this is no bad thought, this is no harm, this is no harm, this is the idea of color, this is the sound thought, this is the smell, this is the taste thought, this is what it is. Thinking、This is the idea。' He knew and saw it, and it was known.
- What is Measurement Known? "When he has been known so, he should measure it to be immutable, bitter, sick, tumor, arrow, woe, sickness, on the other side, the spoilt, calamity, evil, evil, terror, evil, the moving, easy Bad... (Medium) He made it measured by gathering, exterminating, fun, oversuffering, and departing. This is the measurement is well known.
- What is disconnection? When measured in this way, about desire, greed him off, departs, [to end,] to make it non-existent. For this is said by the Worldmen, "The Bichu And whosoever is about desire and greed, you shall be cut off, so that it shall be cut off, and the root is cut off, like a palm tree without roots, into a non-living thing for the future." [SN.22.25] This is cut off all over. "Knowing after thinking", these three kinds of know all over the thought. "The more the torrents", the torrents of desire, some of them, the torrents seen, the outflow of unknown, he can pass, can pass, can pass, can overcome." For all to think can be more torrents.
- "There are two types of belongings: [for] the thirst of everything and the [because] all things seen... (medium) This is the thirst loving thing... (cr.) This is the thirst loving thing... See all things. "Muni", "Mune is called wisdom, that is Hui, understanding... (medium) insane, choice of method, positive view, with that wisdom for Mune, to Mune." There are three types of Muni bits (perfect virtue): Muni-bit, Muni-language, imuni bit.
- What is a Muni-bit? Three kinds of evil deeds to be the Muni; three kinds of good deeds are the Muni; in the body of wisdom as the Muni; the body is known as the Muni; andThe road is the Muni bit; about the desire and greedy to be a Muni position; the fourth Zen of the [income] extinction of the fourth Zen to be the Muni bit, this is the Muni bit.
- What is the language Muni bit? The four words of evil deeds are the word Muni bit; four languages of good deeds; in the language of wisdom is the language of the Muni bit; the word is known as the muni bit; and the word is the muni bit; about the desire and greed The break is the word Muni bit; the word line [seek servo] extinguish the second Zen and so on to the word Muni, this is the language of the
- What is Imuni Bit? Three kinds of evil deeds are cut off for Munii; Three kinds of good deeds imony; in the heart of the wisdom of the Munii position; the heart is known as Munii position; and all know the way to Muni; About the desire and greedy of the heart The disconnection is meant to be the Muni; the desire of the heart of extinction is imuni, this is the imuni.
- "Muni, language Muni, Yimuni for no worries,
- Munies had a foot in the place of Munies, and they said they were all the
- Muni, language Muni, Yimuni for no worries,
- Muni is full of the place of Muni, and they say that evil is cleansed.
- Six types of Munii have these three methods: "Munii at home, homeless muni, learning Muni, no school Muni, no school Muni, and Muni [of the] Muni." Which are at home Muni? Those who saw the footsteps, and had known the commandments in their families, these were in the house of Muni. Which are homeless Muni? These are homeless Munies who see their footsteps and who have known the commandments. Seven kinds of learning to learn Munii, Arrohan for no school Muni, Buddha for a pig Muni, Muni [in] Muni is known as Rulaii, Alohan, all the positive feeling.
- "Not to Mune (silence) as a Mune, an unwise man of disshape,
- After lifting the scale, take the top and become a wise person.
- Avoiding the evil, that Muni became Munie because of that.
- Whosoever understands both [inside and outside] in the world, because that is said to be Muni.
- Knowing the law of the bad and the good in all the world, both inside and outside,
- He is Muni after being fed by heaven and man, and beyond the dyed net."
- There are two kinds of adhesion: [because of] love adhesion and [because] see adhesion... (medium) This is the adhesion of thirsty love... (medium) This is the sticking of see. Munier's thirst after the adhesion of love, after the disbelief of the adhesion, in all objects is not contaminated, not strong, not closely contaminated, has not been polluted, has not been polluted, has not been closely contaminated. He has departed, departed, liberated, and has been bound, and he dwelt away from the restrained heart. For all things Muni is not polluted.
- "Thorn arrows have been unleaved": "Thorn Arrows", "There are seven kinds of thorn arrows: Thorn Arrows, Thorn Arrows, Slow Thorn Arrows, Slow Thorn Arrows, Doubt Thorn Arrows. Whoever for him these thorns are cut off, severed, calmed, stopped, incapable of being born, burned by wisdom fire, he is known as the Thorn Unpulled, the Thorn has been pulled out, the stabbed has been pulled out, Arrows, Stabbbers Removed, Stabbinger Removed, Abandoned Thorn, Excluded Stabbinger, Unstabbed Arrows, Arrows Disconnected, Stabbinger Dismissed, Unhungry, Cooled For those who feel joy, live with himself as the bereaved of Van. Unplugged the Arrows.
- "Passer", when you go, live, act, turn up, while guarding, make survival, make survival. "Uncomfortable" is a respectful author, a regular author, a nonstop author, a person who has not been adhered to, who does not overlook his will, and do not neglect the responsibility in good law; "How can I complete the unfinished confinement, Or can the completed wreaver be funded everywhere?" Where he has the will, refinement, valor, hard, diligent, reckless, mindfulness, enthusiasm, diligent, establish, practice, do not relax in good law; "How can I complete the unfinished destinations, or what has been done? Can you fund with Hui everywhere? ... (Medium) in good law [not relax]; how I can complete the unfinished wisdom... "How can I complete the unfinished liberation of wisdom, or the completed emancipation of wisdom can be everywhere Funding? Whosoever has the will, refinement, courage, hard work, reckless, mindfulness, zealous, diligent, established, practiced, not to relax in good law; "How can I know the untold bitterness, or be able to dismiss the uninterrupted Contamination, can practise an unlearned path, or testify against the destruction of the untestified? Whosoever is there will, refinement, courage, hard work, do not want, reckless, mindfulness, zealous, diligent, established, practiced, and does not relax in good law." For the stabbing arrows, unleasing the Parker.
- "Do not want this world with the other": "He does not want this world: his own state, not other worlds: the state of others. Do not want this world: their own color, by, want, do, do, know, do not want other worlds: other people's color, subject, want, do, know. Do not want this world: the six inside, not the other world: six outside. Do not ask for this world: the world of men, not other worlds: the world of heaven. Do not want this world: desire, do not want other worlds: color, no color. Do not want this world: desire circles, color boundaries, do not want other worlds: no color. Again the fun, or the past, or born, or there (being), or reincarnation, or rotation he does not want, does not want, does not accept, does not pray, does not pray, does not pray." For not wanting this world with the other.
- Because then, Worldman said:
- "We all know that after the more plunge, in all things Muni will not be polluted,
- The stabbed arrows have been pulled out of the unleased, and did not desire this world and the other.
- The cave eight sets of instructions for the second [Completed].
+12. you see! The throbbers treat things as their own, such as fish in a little
+    water that is depleted,
+
+After seeing this, I should also do nothing: not being a follower in there.
+
+"Look! The throbbing bears things as their own": "I do", there are two kinds of
+things I do: I do the [because of] the thirst, which I do with the [cause] see.
+What is thirsty love I do? All are called as boundaries, as realms, as bounds,
+bounds, clutched, taken as their own: This is mine, this is mine, so much is
+mine, so much is mine, this is mine, so much is mine, and this is The range is
+mine; my color, voice, smell, taste, touching, spreading things, coats, maid and
+maid, goats and sheep, chickens and pigs, elephant, cattle and horses, mule
+horses, fields, homes, gold, gold, gold coins, Villages, towns, kings, places,
+warehouses, warehouses, all the earth, because of thirst for love and treat them
+as their own, all one hundred and eight kinds of thirsty love tide [AN.4.199],
+this is my thirst love Performs.
+
+What is seeing what I'm doing? There are twenty personal opinions, ten
+wickedness, ten sidelines, and ten sidelines, such as such see, evil opinion,
+jungle, desert, distorted, shaken, bound, seppling, acceptance, Hold, perform,
+clamp, upside down (vipariyesa) clamp, upside down (vipariyesa) clamp, upside
+down (vipallāsa) ) Clenchment of the wicked, the clasping of evil, "[seen] as
+true in non-true" clenched, all came to the place of 62 evil views, thisSee what
+I do. "Look! The throbbers treat things as their own": "They are throbbing when
+they are robbed, when they are robbed, when robbed, they also throb when they
+have been robbed; being treated as their own fear becomes easy When they are
+throbbing, they also throb when they become easy, and when they have become
+easy, they also throb, strong throbbing, throbbing completely, expand throbbing,
+trembling, trembling, trembling, big trembling, so, when throbbing, strong
+throbbing, completely When you expand throbbing, trembling, trembling,
+trembling, and trembling, behold, see you, see you, watch, and observe. For you
+guys to see! The throbbers treat things as their own.
+
+"If fish are in a little water that is depleted": "If fish are in a little
+water, little water, water depleted by crows or eagles or cranes attacked,
+raised, eaten, they throbbed, strong throbbing, completely throbbing, expanding
+Throbbing, trembling, trembling, trembling Similarly, people (generations) are
+treated as their own fears of being robbed, when they are robbed, when they are
+robbed, when they have been robbed, and when they are taken; when fears become
+their own things become easy. Throbbing, they also throb when it becomes easy,
+and when it becomes easy they also throb, strong throbbing, throbbing
+completely, expanding throbbing, trembling, trembling, trembling, trembling. For
+such as fish in a little water that is depleted.
+
+"I should do nothing after seeing this": 'This oversuffering: after I have seen
+him, after seeing, after seeing, after measuring, judging, after division, and
+after figuring it out. ' After seeing this. There are two kinds of things I do:
+[because of] the thirst of love I do with me, which I have seen. ... This is
+what I do with thirsty love... This is what I see. After giving off my thirst
+and love; after the discerning of what I do, he [holds] not eyes as his own;
+does not take ears as his own; does not take the nose as his own; does not treat
+tongue as his own; does not treat himself as his own Do not think of their own;
+all colors... sounds... smells... all tastes... all touches... family... groups
+(public)... shelter... reputation... praise... music... Clothes... food...
+shelter... patient's needs and medical necessities... desires... color
+circles... colorless... want to have... colorless... I want to have... ... one
+has... four has... five... the past... the future... now... does not see, smell,
+feel, can be known as his own, he [keep] not holding, not practicing, not
+persisting He should do, should live, should act, should turn, should guard,
+should make survival, should make survival." In order to see this, I should do
+nothing.
+
+"Not in there as a follower": "In there", in the middle of desire, in color, in
+colorless. Persistent is called thirsty love, that is greed, lust... (medium)
+greed, greedy, bad roots. "Do not be a beloved in there": "In there - obsession
+- not author; willed, love, greedy, like the unauthor, the person who does not
+  make it born, not born, not born, not born." To be a follower who is not in
+  there.
+
+Because then, Worldman said:
+
+"Look! The throbbers treat things as their own, such as fish in a little water
+that is depleted,
+
+And after seeing this, I should do nothing: not a follower in there."
+
+13. on both sides of the revolt after the desire, all known after the touch of
+    lush
+
+Whoever rebukes himself, he does not perform it, and the wise is not
+contaminated in what he saw and smell (Ceylon Edition).
+
+"On both sides": "side", touch as one side, touch set for the second side; the
+past is one side, the future is the second side; pleasure as one side, suffer
+for the second side; named side, color for the second side; six inside On one
+side, the six outside is the second side; there is a body, and a body set as the
+second. "Wills", which are the wills of the desire, greed, joy of desire, thirst
+love, the desire of love, the taking of desire, the scorching heat of desire,
+the obsession of desire, the flow of desire, the yoke of desire, the yoke of
+desire, the execution of desire, Desire will cover. "On both sides": "The desire
+on both sides shall be revolved, he should be expelled, should be cut off,
+should be discarded, should end, and should make it to absent." For after
+revolting on both sides.
+
+"Known after the touch of greedy": "Touch", eye touch, ear touch, nose touch,
+tongue touch, touch, touch, name touch, have a pair of touch [DN.15], can feel
+the touch of joy, can feel the touch of suffering, can feel not Bitter touch,
+good touch, bad touch, no touch, want to touch the situation, color of the
+situation touch, colorless, air touch, no touch, no touch, no touch, world
+touch, outWorld touch, past touch, future touch, present touch, where such
+touch, touch, touch, completely touched, touched state, this is called touch.
+
+"Known after the touch", in three widely known after the touch: known, measured,
+disconnected. What is known? "Know Touch: This is the eye touch, this is the ear
+touch, this is the nose touch, this is the touch of tongue, this is touch, this
+is the touch, this is the touch of the name, this is the touch of the touch,
+which is able to feel the touch of pleasure, this is the touch that can feel the
+pain Feel not bitter touch, this is good touch, this is bad touch, this is no
+touch, this is the desire of the situation touch, this is the color of the
+touch, this is colorless touch, this is no touch, this is no touch, this is
+unwilling to touch, This is the touch of the world, this is the touch of the
+world, this is the touch of the past, this is the touch of the future, and this
+is He knew and saw it, and it was known.
+
+What is Measurement Known? And after such knowledge, touching him is
+invulnerable, bitter, sick, tumor, arrow, woe, sickness, on the other side, the
+spoilt, calamity, evil, terror, evil, evil, terror, evil, the moving, vulnerable
+, not solid, no refuge, no refuge, no return [, no return], reluctant,
+hypocritical, empty, without me, overly, prone, false, unfortunate root,
+murderer, none, there Trouble, promising, magic food (bait), old disease law,
+death, grief and sorrow despair law, pollution law, he makes it measure is to
+gather, destroy, taste, overkill, too sick, out, this is a measure of all known.
+
+What is disconnection? And after this measure, the desire of the touch is cut
+off, discarded, and ended, and made it to be absent. This is said by Worldman,
+"The Bichu And whosoever is about the desire and greed of the touch shall be cut
+off, so that it shall be cut off, and the root shall be cut off, like a palm
+tree without roots, into a non-living thing for the future. [SN.22.25] 'This is
+disconnected all over the world. "Known after the touch", to these three widely
+known after the touch. "Unaccompanied greed", greedy is called thirsty love,
+that is greed, lust... (medium) greed, greedy, bad root. Whosoever for him is
+cut off, cut off, calmed down, stopped, incapable of being born, and burned by a
+fire of wisdom, he is called no covenant, and he does not seek in color; he does
+not seek in the voice; The smell is not greedy; in taste is not greedy; in the
+touch is not greedy; at home... in groups (public)... in dwellings... in the
+interest... in reputation... in praise... Music... in clothes... in group
+food... in the shelter... in the patient's needs and medical necessities, in the
+world of desire... in color... on the color... on the desires... on the
+desires... in Color has on... on colorless... in the past... in the past... in
+the future... In the present... the ways in which you see, heard, feel, can be
+known are not coed, not bound, not obsessed, sinless, away from the greedy, the
+one who has abandoned it, has been excluded. Seeking, freed from greed, those
+who have dismissed it, those who have dismissed it, those who have gone away
+from greedy, no greedy, who have abandoned greed, have been ruled out, freed
+from greedy, has dismissed the greedy, the The one that is extinguished, and has
+become cool, and feel joy, dwelt himself for the bereaved. For all known after
+the touch of greedy.
+
+"Whosoever rebukes himself does not do it": "Whosoever is all." "Rebuke
+Yourself," rebuke yourself for two reasons: what was done and what was not done.
+What is he rebuked himself for what was done and what was not done? "The evil
+deeds that I have done, not by me." He rebuked himself, "I did evil, and did not
+do good by my words." He rebuked himself, "The evil deeds which I did, and did
+not do good by what I did." He rebuked himself; for what I did to kill, not by
+which I did. He rebuked himself, 'Being taken not given by what I did, and not
+by what I did not give. ' He rebuked himself: 'The evil of which I did, and
+which I did not quit wickedness. ' He rebuked himself: "I have made the false
+words, and I have not forbened them." He rebuked himself: "I have made the
+disguise, and I have not been forbent from it." He rebuked himself: "The crude
+evil words which I made, which I made, have not been abused by me." He rebuked
+himself: "The unclean words which I made, and the unholy words which I made were
+not absent." He rebuked himself: "Greed by me, not greed by me." He rebuked
+himself, "The evil which I did, and not I did without evil." He rebuked himself;
+'The evil that I made, did notI made the positive view. He rebukes himself, so
+that he rebukes himself for what was done and what was not done. Or, 'I'm not
+all branches on my ring. ' He rebuked himself, 'I am not a guardian of the root.
+' He rebuked himself, 'I'm not the right amount of diet. ' He rebuked himself,
+'I am not a sober man. ' He rebuked himself, 'I am not a man of reading and
+righteousness. ' He rebuked himself, 'Four thoughts were not practiced by me. '
+He rebuked himself, 'Four is not practiced by me. ' He rebuked himself, 'The
+four gods were not practiced by me. ' He rebuked himself, 'Five were not
+practiced by me. ' He rebuked himself, 'Five forces were not practiced by me. '
+He rebuked himself, 'Seven feusions were not practiced by me. ' He rebuked
+himself, 'Eight sacred paths were not practiced by me. ' He rebuked himself,
+'Suffering is not known to me. ' He rebuked himself, 'The set was not cut off by
+me. ' He rebuked himself, 'The way was not practiced by me. ' He rebuked
+himself, 'I have not testified. ' He rebukes himself, so he rebukes himself for
+what was done and what was not done, so he rebuked his own heritage for not
+performing, not born, not born, not born, not born, not born." He does not
+perform it for whosoever rebukes himself. "The wise ones are not contaminated in
+what they see and smell": "There are two kinds of adhesion: [because] the
+adhesion of love [because] and [because] see... (medium) This is the adhesion of
+thirsty love... Adhesive. "Wise" is the wise, the wise, the wise, the wise, the
+different, the wise, the wise, the wise, after giving off the adhesion of his
+thirst, after the adhesion of the discernment, shall not be contaminated in
+sight; not contaminated in what they smell; in Feel not contaminated; in the
+sense of non-pollution, not strong pollution, not close (no pollution), no
+pollution, no pollution, no strong pollution, no close pollution. He has
+departed, departed, liberated, and has been bound, and he dwelt away from the
+restrained heart. The wise ones are not contaminated in what they see and smell.
+
+Because then, Worldman said:
+
+"On both sides of the revolt, they know that they have no desire behind the
+touch,
+
+Whoever rebukes himself, he does not perform it, and the wise is not
+contaminated in what he saw and smell (Ceylon version)."
+
+14. know that after trying to get more plunge, in all things Muni is not
+    polluted,
+
+Unleashed the thorn arrows, unleasing, do not want this world and the other.
+
+"Knowing that you can get more riot after thinking": ""Think", there is a
+desire, malicious thought, bad thought, no malicious thought, no harm, color
+thought, sound thought, smell, taste, thought, thought, thought, thought, all
+like This state of thinking, cognition, is known as thinking. "Known after
+thinking", there are three kinds of widely known: known, measured, disconnected.
+
+What is known? You know, "This is thinking, this is bad thought, this is bad
+thinking, this is no bad thought, this is no harm, this is no harm, this is the
+idea of color, this is the sound thought, this is the smell, this is the taste
+thought, this is what it is. Thinking、This is the idea。' He knew and saw it,
+and it was known.
+
+What is Measurement Known? "When he has been known so, he should measure it to
+be immutable, bitter, sick, tumor, arrow, woe, sickness, on the other side, the
+spoilt, calamity, evil, evil, terror, evil, the moving, easy Bad... (Medium) He
+made it measured by gathering, exterminating, fun, oversuffering, and departing.
+This is the measurement is well known.
+
+What is disconnection? When measured in this way, about desire, greed him off,
+departs, [to end,] to make it non-existent. For this is said by the Worldmen,
+"The Bichu And whosoever is about desire and greed, you shall be cut off, so
+that it shall be cut off, and the root is cut off, like a palm tree without
+roots, into a non-living thing for the future." [SN.22.25] This is cut off all
+over. "Knowing after thinking", these three kinds of know all over the thought.
+"The more the torrents", the torrents of desire, some of them, the torrents
+seen, the outflow of unknown, he can pass, can pass, can pass, can overcome."
+For all to think can be more torrents.
+
+"There are two types of belongings: [for] the thirst of everything and the
+[because] all things seen... (medium) This is the thirst loving thing... (cr.)
+This is the thirst loving thing... See all things. "Muni", "Mune is called
+wisdom, that is Hui, understanding... (medium) insane, choice of method,
+positive view, with that wisdom for Mune, to Mune." There are three types of
+Muni bits (perfect virtue): Muni-bit, Muni-language, imuni bit.
+
+What is a Muni-bit? Three kinds of evil deeds to be the Muni; three kinds of
+good deeds are the Muni; in the body of wisdom as the Muni; the body is known as
+the Muni; andThe road is the Muni bit; about the desire and greedy to be a Muni
+position; the fourth Zen of the [income] extinction of the fourth Zen to be the
+Muni bit, this is the Muni bit.
+
+What is the language Muni bit? The four words of evil deeds are the word Muni
+bit; four languages of good deeds; in the language of wisdom is the language of
+the Muni bit; the word is known as the muni bit; and the word is the muni bit;
+about the desire and greed The break is the word Muni bit; the word line [seek
+servo] extinguish the second Zen and so on to the word Muni, this is the
+language of the
+
+What is Imuni Bit? Three kinds of evil deeds are cut off for Munii; Three kinds
+of good deeds imony; in the heart of the wisdom of the Munii position; the heart
+is known as Munii position; and all know the way to Muni; About the desire and
+greedy of the heart The disconnection is meant to be the Muni; the desire of the
+heart of extinction is imuni, this is the imuni.
+
+"Muni, language Muni, Yimuni for no worries,
+
+Munies had a foot in the place of Munies, and they said they were all the
+
+Muni, language Muni, Yimuni for no worries,
+
+Muni is full of the place of Muni, and they say that evil is cleansed.
+
+Six types of Munii have these three methods: "Munii at home, homeless muni,
+learning Muni, no school Muni, no school Muni, and Muni [of the] Muni." Which
+are at home Muni? Those who saw the footsteps, and had known the commandments in
+their families, these were in the house of Muni. Which are homeless Muni? These
+are homeless Munies who see their footsteps and who have known the commandments.
+Seven kinds of learning to learn Munii, Arrohan for no school Muni, Buddha for a
+pig Muni, Muni [in] Muni is known as Rulaii, Alohan, all the positive feeling.
+
+"Not to Mune (silence) as a Mune, an unwise man of disshape,
+
+After lifting the scale, take the top and become a wise person.
+
+Avoiding the evil, that Muni became Munie because of that.
+
+Whosoever understands both [inside and outside] in the world, because that is
+said to be Muni.
+
+Knowing the law of the bad and the good in all the world, both inside and
+outside,
+
+He is Muni after being fed by heaven and man, and beyond the dyed net."
+
+There are two kinds of adhesion: [because of] love adhesion and [because] see
+adhesion... (medium) This is the adhesion of thirsty love... (medium) This is
+the sticking of see. Munier's thirst after the adhesion of love, after the
+disbelief of the adhesion, in all objects is not contaminated, not strong, not
+closely contaminated, has not been polluted, has not been polluted, has not been
+closely contaminated. He has departed, departed, liberated, and has been bound,
+and he dwelt away from the restrained heart. For all things Muni is not
+polluted.
+
+"Thorn arrows have been unleaved": "Thorn Arrows", "There are seven kinds of
+thorn arrows: Thorn Arrows, Thorn Arrows, Slow Thorn Arrows, Slow Thorn Arrows,
+Doubt Thorn Arrows. Whoever for him these thorns are cut off, severed, calmed,
+stopped, incapable of being born, burned by wisdom fire, he is known as the
+Thorn Unpulled, the Thorn has been pulled out, the stabbed has been pulled out,
+Arrows, Stabbbers Removed, Stabbinger Removed, Abandoned Thorn, Excluded
+Stabbinger, Unstabbed Arrows, Arrows Disconnected, Stabbinger Dismissed,
+Unhungry, Cooled For those who feel joy, live with himself as the bereaved of
+Van. Unplugged the Arrows.
+
+"Passer", when you go, live, act, turn up, while guarding, make survival, make
+survival. "Uncomfortable" is a respectful author, a regular author, a nonstop
+author, a person who has not been adhered to, who does not overlook his will,
+and do not neglect the responsibility in good law; "How can I complete the
+unfinished confinement, Or can the completed wreaver be funded everywhere?"
+Where he has the will, refinement, valor, hard, diligent, reckless, mindfulness,
+enthusiasm, diligent, establish, practice, do not relax in good law; "How can I
+complete the unfinished destinations, or what has been done? Can you fund with
+Hui everywhere? ... (Medium) in good law [not relax]; how I can complete the
+unfinished wisdom... "How can I complete the unfinished liberation of wisdom, or
+the completed emancipation of wisdom can be everywhere Funding? Whosoever has
+the will, refinement, courage, hard work, reckless, mindfulness, zealous,
+diligent, established, practiced, not to relax in good law; "How can I know the
+untold bitterness, or be able to dismiss the uninterrupted Contamination, can
+practise an unlearned path, or testify against the destruction of the
+untestified? Whosoever is there will, refinement, courage, hard work, do not
+want, reckless, mindfulness, zealous, diligent, established, practiced, and does
+not relax in good law." For the stabbing arrows, unleasing the Parker.
+
+"Do not want this world with the other": "He does not want this world: his own
+state, not other worlds: the state of others. Do not want this world: their own
+color, by, want, do, do, know, do not want other worlds: other people's color,
+subject, want, do, know. Do not want this world: the six inside, not the other
+world: six outside. Do not ask for this world: the world of men, not other
+worlds: the world of heaven. Do not want this world: desire, do not want other
+worlds: color, no color. Do not want this world: desire circles, color
+boundaries, do not want other worlds: no color. Again the fun, or the past, or
+born, or there (being), or reincarnation, or rotation he does not want, does not
+want, does not accept, does not pray, does not pray, does not pray." For not
+wanting this world with the other.
+
+Because then, Worldman said:
+
+"We all know that after the more plunge, in all things Muni will not be
+polluted,
+
+The stabbed arrows have been pulled out of the unleased, and did not desire this
+world and the other.
+
+The cave eight sets of instructions for the second [Completed].
+
+
+
 
 
 Excerpt:
- 1. who wants (expectation/want) stuck in the cave (body) in a distance away.
- 2. Not relied from others ⇒ Yolai is just a guide (MA.144).
- 3. life is short, not two hearts combined to live, such as lightning in the air, they are born and dissipated.
- 4. The throbblers treat things as their own, such as fish in a little water that is depleted, the wise man is not contaminated in what he sees and smells.
- 12/10/2020 16:23
+
+1. who wants (expectation/want) stuck in the cave (body) in a distance away.
+
+2. Not relied from others ⇒ Yolai is just a guide (MA.144).
+
+3. life is short, not two hearts combined to live, such as lightning in the air,
+   they are born and dissipated.
+
+4. The throbblers treat things as their own, such as fish in a little water that
+   is depleted, the wise man is not contaminated in what he sees and smells.
+
+12/10/2020 16:23
+

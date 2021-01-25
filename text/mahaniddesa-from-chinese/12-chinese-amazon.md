@@ -1,154 +1,626 @@
 Description of the configuration of the small
- Secondly, the instructions for configuring the small pass will say:
- 113. Each of the stoppers, after the holding of the good people, all kinds of land told:
- Whosoever knows such he finds the law and rejects it, he is not perfect.
- "Stayers of their own sight": "Some Samana and Brahmen are wicked, and they dwelt in their own sight after holding, after grasping, after picking up, after performing, and after their clinging, after their deeds. (b) To live together, live, stay (all over), if the family lives at home, or a guilty person lives in sin, or the polluted person resides in the polluted. In the same way, some Samana and Brahmen were evil men who took a certain evil opinion in 62, after grasping, picking up, after performing, and after their clinging, they dwelt, dwelt, dwelt, dwelt, dwell in their own. Stay (all over). For their own seen stoppers.
- "After holding the skilful people planted the land to tell": "After holding, after holding, after grasp, after picking up, after taking, after taking, after holding, after they all kinds of land told; they told them in many ways; they [conflict] with each other Teach; they tell them individually; and they tell them differently, they speak, they speak, they say, and they speak. "The Good", the wise speaking, the wise speaking, the strong speaking, the speaking of [with] methods, the [with] reason, the saying that [has] special features, [has] the basis of the saying, To speak of their own claims as possible." For those who are good after holding them all kinds of land to inform.
- "Whosoever knows such he finds the law": "He perceive, knows, knows, saw, and persureated." For whosoever knows such he finds the law.
- "He who rejects this is not complete": "Whoever rejects the law, see, the signs, the way, the way, he is not complete; he is the unfulfilled; he is the inferior, the despicable, the inferior, the inferior, the inferior. Intentions, trivial." He is not the perfect one to reject this.
- Because then, the man said:
- "The Stayers who have seen themselves, after holding the skillful people, told all sorts:
- Whosoever knows such he finds the law, and rejects it, he is not perfect."
- After holding this way, they argue, and say, "The opponent is a foolish, a bad person".
- So which of these people is true? For these people are all those who claim to be good.
- "After holding this way they argue": "After holding, grasping, after picking up, after performing, after persistence they argue, quarrel, argue, argue, argue, and disregard: 'You do not know this law, the law ... (medium) Please disassemble if you can. '" For such hold after they argue.
- "And say, "The opponent is a foolish, the unwise, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the unwise, the ignorant, and the The unwise, the undivided (the unwise), the inferior. Say so; speak so; speak so; say so; say so." To say, "the opponent is a foolish, a bad person."
- "So which of these people speaks is true": "Which of these Samana, Brahmen speaks are true, truthful, true, true, correct, upside down?" So which of these people speaks is true.
- "For these are all those who claim to be good": "These Samana and Brahmen are all the sayers of good sayers, wise talkers, strong talkers, [with] methods, [with] reason. 、A person who [has] a special feature, the person who has a basis, and who makes his own claim possible." Because these people are all those who claim to be good.
- Because then, the man said:
- "After holding this way, they argue, and say, 'The opponent is a foolish, undeemable. '
- So which of these people is true? For these are all those who claim to be good."
- 115. If he does not recognize the law of the opponent, he is a foolish, a foolish (Ceylon version),
- All are foolishers and despicable: these are all those who see the stoppers.
- "If you do not recognize the law of the opponent": "When the law of the opponent, see, signs, the way he does not endorses, does not follow, unsatisfactory (anānumanananto? , do not agree, do not feel happy." If you do not recognize the opponent's law.
- "He is a foolish, a foolish (Ceylon version), a despicable man": "The opponent is the foolish, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior , low Hui, inferior intentions, insignificant wisdom.For he is a foolish, a foolish (Ceylon version), and a
- "They are all fools and despicable ones": "These Samana and Brahmen are all fools, the inferior, the despicable, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, all of them The inferior, the low, the inferior, the inferior to the wise, the inferior. So all are fools and despicable.
- "These are all seen stoppers": "These Samanas and Brahmen are all evil people, and they have taken a certain evil opinion in the Sixty-two evil, after grasping, after picking up, after performing, and after their persistence. The respective lives, cohabitation, dwellings, resides (all over), such as living in a family, or a guilty person in sin, or a polluted person living in the polluted. Similarly, these Samana and Brahmen are all evil dissidents... (in the middle) stayed (all over)." For these people are all seen stoppers.
- Because then, Worldman said:
- "If he does not recognize the law of the opponent, he is a foolish, a foolish, and a despicable.
- All are foolishers and despicable: all these are the stoppers of sight.
- 116. But if you become a innocent person by their own sight (Thailand Version), the Whoever is pure, the clever, the righteous,
- Then there is no inferior among them, for their seeing is done as it is.
- "But if you become a clean man with your own sight (Thailand Version)": "In your own sight, by your own liking, by your own hobbies, to become {no} clean, {no} clean, {no} The bright, [not] polluted, [not] polluted." But if you become a clean man in your own sight (Thailand Version).
- "The Whiteness of the Wise, the Good, the Seeker": "'Full Pure Wiser, Clear Wise, Whitening, Whitening, Whitening, or, Pure Seeker, Pure Seeing , Whitening and Whitening Seeing, the Clear Seeper" are completely pure. "The good," "The good is the wise, the wise, the wise, the clever, the wise, the different, the wise, the wise." For the pure wicker, the clever. "The Wise" is the wise, the wise, the wise, the wise, the wise, the wise, the different, the wise. For the pure wisdom, the good, the conceiver.
- "Then there is no inferior among them": "Those who are not inferior in Samana, Brahmen, the despicable, the inferior, the low, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the insignificant The Wise, the Victor, the Top, the Most Wise, the Most Wise. So there is no inferior among them.
- "For the beings of those men have been completed as such: "The beings of Samana and Brahmen have been completed, held, held, taken, taken, taken, taken, and believed." For the sight of those people is done like that.
- Because then, Worldman said:
- "But if you become a clean man in his own sight (Thailand Version), the Whoever is pure, the good, the Seeker,
- Then there is no inferior among them: for their seeing is done like that.
- I do not say "this is true": whoever they say to each other that the adversaries are fools,
- They set their own views as true, so they put their opponents as "fools."
- "I don't say 'This is the truth. '' '' 'is no. 'This', 'Sixty-two evil, this is truthful, true, true, correct, upside down. ' I do not tell (say), I do not explain, I do not teach, I do not tell, I do not build, I do not reveal, I do not interpret, I do not clarify, I do not explain." For me don't say "it's true".
- "Whoever they say to each other that the adversaries are fools": "The hostile is two men, two arguers, two argumentators, two contenders, two contenders, two contenders, two sayakers, two interlocutors, They say each other so, tell, talk, say so, say so, say, so that [the adversary] is the foolish, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior. For whosoever they say to one another that the adversaries are
- "They make their own see true": "The world is constant, this is true, the rest is empty." To make their own see true. "The world is very constant, this is real, the rest is empty." ... (medium) "After death neither exists nor does not exist, this is true, the others are empty." To make their own see true.
- "So they put their opponents as "foolishers": "Therefore, therefore; that reason; that cause; thatFor that reason, they set, see, see, watch, observe, observe the opponent as the foolish, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior. For that reason they put their opponents as "fools."
- Because then, Worldman said:
- "I do not say, 'This is truth': whosoever they say to each other is the foolish
- They set their own views as true, so they put their opponents as "fools."
- Whoever says "true and truthful", others say "it is hypocritical and false",
- After holding this way, they argue, why did Samana tell differently?
- "Whoever certain people say "Truth and truth'": "Whatsoever the law, see, signs and ways, some of Samana and Brahmen say, and speak so, and speak so, say so, saying, This is true and truthful. True, true, right, inverted. '" For whoever says "true, truthful".
- "Others say, 'It is hypocritical and false'": "As to the law, see, signs and ways, certain Samana, and Brahmen say, and speak so, and speak so, and say so, this is hypocrisy. This is false, it is not true; it is false, and it is not true." Say to others, "That is hypocritical, false."
- "After holding this way they argue": "After holding, grasping, after picking up, after performing, after persistence they argue, quarrel, argue, argue, argue, and disregard: 'You do not know this law, the law ... (medium) Please disassemble if you can. '" For such hold after they argue.
- "Why did Samana tell differently": "Why" and why? What is the reason for it? What is the cause? What is its edge? What is the cause? What is its set? What is its life? What is its root? They tell them differently; they do so in many ways; they tell each other [in conflict]; and they tell each other individually that they speak, they speak, they speak, they say, they say, ." Why did Samana tell differently?
- Because then, the man said:
- "Whoever some say 'true and truth', others say, 'It is hypocritical and false. '
- After holding this way they argue, why did Samana tell differently?
- 119. It is true that there is no second, the person who understands should not argue in anything,
- All kinds of real ones they called good, so the Samana told them differently.
- "Indeed, there is no second single truth": "single truth is called bitterness, Nibbana, that is the end of all lines, everything according to the conviction, thirsty love is extinct, away from greed, derelict, Nibbana. Or, the single truth is called the essence, out of the essence, the direction of bitterness signs, eight sacred paths, that is: righteousness, righteousness, righteousness, righteousness, righteousness, righteousness, righteousness." For indeed single real no second.
- "The person who understands should not argue in anything": "No matter what it is, no matter what it is, no matter what it is. A synonyms for human beings. "Knowing (s)", anyone who truly understands, who knows, who knows, who knows others, knows, and the interviewer should not quarrel, should not argue, should not argue, should not be contested, should not be disguised, and should not be dismissive, Brawl, argue, dispute, argument, disregard, he should be cut off, should be discarded, should end, and should make it to nonexistent." To understand people should not argue in anything.
- "All those who are true, they call good": "All those who are true themselves called good, tell, tell, tell, talk, explain, say, say; 'The world is everlasting, this is true, and the rest are empty." They themselves call good, tell, tell, tell, talk, explain, speak; the world is very constant... "After death neither exists nor does it exist, this is true, the others are empty." They themselves call good, tell, tell, tell, talk, explain, speak. Called good for the kind of those real themselves.
- "So the Samanas tell them differently": "Therefore, therefore; that reason; that cause; that fate; that because they told differently; they told all sorts of land; they told them in many ways; they told them in many ways; they told them. They tell each other [in conflict]; they tell each other individually, that they speak, they speak, they say, and they speak. So Samana told differently.
- Because then, Worldman said:
- "It is true that there is no second, people who understand no matter what they should argue,
- All their truths they called good, so the Salamons told them differently. 120. Why do they tell the truth: good discussants, those who claim good deeds?
- Are those true multiplicity, variety, or do they follow the inference?
- "Why do they tell all kinds of truth": "Why", why? What is the reason for it? What is the cause? What is its edge? What is the cause? They tell all things; they tell many; they tell each other [the conflicting]; and they tell the truth of all things, and they speak, they speak, they say, and they speak. Why they tell all kinds of truth.
- "Good discussants, those who claim to be good": "Good discussants," "They rebutt" are good discussants, or they say, tell, talk, explain, say, say their own opinions: 'The world is everlasting, this is True, others are empty. ' They say, tell, talk, explain and speak; the world is very constant... "After death neither exists nor does it exist, this is true, the rest is empty." They say, tell, talk, explain, and speak. "Declares the good", the sayer of the sayer, the wise speaking, the strong speaking, the [with] method, the [with] reason, the speaker of [with] a special feature, and the [with] basis 、To speak of their own claims as possible。" For good discussants, claiming good deeds.
- "Whether those truths are numerous, all kinds of": "Are those true are numerous, various, multifaceted, [conflicting], individual." For whether those real are numerous, all kinds of。
- "Or do they follow the inference": "Or do they carry away, take away, carry, carry, carry, carry." So is it or they follow the inference. Or, "they are inferred influenced, inspected, accompanied by their own arguments, telling, talking, explaining, saying, saying." So it's also whether they follow the inference.
- Because then, the man said:
- "Why do they tell the truth: good discussants, those who claim good deeds?
- Are those true multiplicity, variety, or they follow the inference?"
- 121. Indeed, the truth is not numerous, all kinds, except after he cognizance of the common things in the world,
- But after seeing the inference above, they say "real, false" two methods.
- "Truth is indeed not many, of all kinds": "Truth is indeed not numerous, diverse, multifaceted, [conflicting], individual." For the truth is indeed not numerous, all kinds of.
- "In addition to his knowledge of the permanent things in the world": "Except for cognition of permanent residence, there is only one truth in the world to be told, talk, explain, say, say, say: bitterness, Nibbana, that is the end of everything. All according to the judgment, thirsty love is extinct, away from greed, wiped, nir Or, the single truth is called the essence, out of the essence, the direction of bitterness signs, eight sacred paths, namely: see... (medium) positive." In addition to his cognizance of the living things in the world.
- "But after seeing the inference above, they say "true and false" two methods: "Think, seek, think, think after they think, after they think, after thinking, after thinking, and after thinking, make evil opinion come, produce, give birth, and make evil opinion. They say, and speak so, say, and say so, say, and say so, say so, saying, 'My is true, and thy is false. ' But after seeing the inference above, they say "true, false".
- Because then, Worldman said:
- "Truth is indeed not many, all sorts, except that he knows what is living in the world,
- But after seeing the inference above, they say "true and false."
- 122. To become a humiliating seeker after it is seen, heard, abused or forbidden or perceived, by such means,
- Become a laughter after living in judgment, and say that the opponent is "foolish, undeemable."
- "To become a humiliating seeker in the sight, what it is, heard, forbidden or perceived": "What is seen or seen; what is heard or heard of purity; the purity of the ring or abstination; the purity of prohibition or prohibition; Feel or feel pure, after relying, after relying on, after picking up, after performing, after clutching. To be seen, heard, quanned and forbidden or perceived. "After these things become humiliating viewers," "disrespectful" is a humiliating sight, or 'cause worries to besting' is also a humiliating viewer. To become a humiliating seeker after it is seen, heard, abused and forbidden or perceived.
- "To be a laughter after living in judgment": "Judgment is called Sixty-two Wicked Sees [Judgment of Seeing], in the Judgment of Seeing, Judgment is seen after the residence, after the establishment, after picking up, after performing, and after the persistent. For dwell in judgment after. "Be a laughter" to be a delightful, laughter, rejoice, delightful, fully satisfied, or, who reveals teeth continuously laughing." To become a laughter after living in judgment.
- "And the opponent is the foolish, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the insignificant, the unwise, the ignorant, The unwise, the undivided (the unwise), the inferior. Say so; speak so; speak so; say so; say so." To say that the opponent is "foolish, undeemable."
- Because then, Worldman said:
- "To be a humiliating sight after it is seen, heard, and forbidden, or in his sight, and in his sight,
- To become a laughter after living in judgment, and say that the opponent is the "foolish, undeemable."
- 123. Because he made his opponent a "foolish", he said he was a "good man".
- To himself [say] himself he becomes a person who claims to be good, despise others he says like that.
- "Because he made his opponent as the foolish": "He set, saw, saw, saw, looked, observed, observed, observed, observed the opponent as a foolish, the inferior, the despicable by that reason, by that reason. , inferior, inferior, inferior, insignificant." Because he makes his opponent a "foolish."
- "So you are the "good man": "Aytumāno is called himself (attā). And he said himself by that cause, and by that reason, by that cause: I am the good, the wise, the wise, the wise, the conscious, the wise, the wise, the wise, the wise, the wise, the wise. To say that you are a "good man."
- "By himself [say] himself, he becomes a person who proclaims to be good": "By himself [say] he is a good sayer, a wise speaking, a firm saying, a [with] method, [with] reason Speakers, talkers who [have] special features, those who have a basis, and those who make their own claims possible." To himself [say] himself he becomes the person who claims to be good.
- "Despise others as he says," "Disrespect is to despise others, or, "to give birth to worries," is to despise others. "He said like that," he said like that evil sight: like this, this man is a wickerer, upside down." To despise others he said like that.
- Because then, Worldman said:
- "Because he put his opponent as a "foolish," he said he was a "good man."
- To himself [say] himself, he becomes the person who proclaims to be good, despises others and he says like that."
- 124. He was completed by transgressions, and was slowly intoxicated as a boast of perfection,
- And he was filled with his own intention: for his sight was done like that.
- "He was completed by transgresses": The transgressionary is called Sixty-two Wickedness. For what reason is a breach of opinion called Sixty-Two Wicked Opinions? All of these see has exceeded the reason, has exceeded the prophecy, has exceeded the probability, for that reason the transgressionary opinion is called Sixty-two evil opinions. Everything is a transgression. For what reason all see is called a transgression? They cross each other, pass through, overcome and cause evil opinions to produce, give birth and give birth to them, for that reason everything is called transgression. "He was completed by transgressed views": "He was completed, filled, and made perfect." Complete for his transgressed opinion.
- "Be slowly intoxicated as a boast of the fullness": "'Be intoxicated by their own seeing, being slow, relaxing, becoming crazy, overdose." To be slowly intoxicated. "The boast of the fullness", the boast of the complete, the boast of perfection. Be a boast of the fullness to be intoxicated slowly.
- "I am the good, the wise, the wise, the wise, the feeling, the wise, the wise, the wise, the wise, the wise, the wise, the wise, the wise, the wise, the wise." To be himself intended to fill himself.
- "For his beast is done as it is done": "His behold, held, held, taken, taken, taken, taken, and believed." Because his see was done like that.
- Because then, Worldman said:
- "He was completed by transgresses, and was slowly reveled to become a boast of the fullness
- And he was filled with his own intention: for his sight was done like that.
- 125. If the opponent becomes a despicable person because of words, he himself [also] becomes a despicable man together,
- But if [he] himself is a vedic and wise man, there is no foolish in Samana.
- "To the opponent if the words become despicable": "To the opponent if [for] the reason of being rebuked by words, words rebuked, responsible reasons, the reason of abusive, the opponent [will] become a foolish, the inferior The despicable, the inferior, the low, the inferior, the inferior, the insignificant. For the opponent if because of words become despicable. "Then he himself [also] became a despicable man together": "He also became the inferior, the despicable, the inferior, the low, the inferior, the inferior to the wicked, the inferior, and the insignificant." So he himself [also] became a despicable man together.
- "But if [he] himself is a Veda-aware, wise man": "But if [he] himself is a vedic, wise, wise, wise, wise, the wise, the wise, the wise, the wise, the wise, the wise." But if [he] himself is a vedic, wise man.
- "There is no foolish in Samana": "There is no foolish, the inferior, the despicable, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the inferior, the insignificant, The Most Wise, the Most Wise, the Most Wise. There is no foolish in the Samana.
- Because then, Worldman said:
- "To the opponent, if he becomes a despicable by words, he himself [also] becomes a despicable man together,
- But if [he] himself is a vedic and wise man, there is no foolish in Samana."
- 126. Whoever informs other laws [outside] from here that they are pure wrongdoers, incomplete ones,
- All sorts of outdoers also told them, because they are very greedy in their own opinion.
- "Whoever informs other laws from here [outside], they are pure wrongdoers and incomplete": "Whoever tells the other laws from here, see, trajectory, and way, they are pure ways, cleansers, and whitening. The losers of the way, the wrongdoers, the downside, the lost, the lost, the wrongdoers in total wisdom, they are the incomplete; they are the unfinished; they are the unfulfilled; they are the inferior, the despicable, the inferior, the inferior The low, the inferior, the inferior, the insignificant." For whoever tells the other laws [outside] from here, they are pure wrongdoers, incomplete.
- "All sorts of astrangers also told": "The sects are called evil, and the outraits are called evil, and all sorts of outcels tell, tell, tell, talk, explain, say, say, say, say, say, say, say, For all sorts of outlanes, too.
- "For they are immensely stained by the greed of their own opinions": "They are immensely dyed with their own opinions and their views." Because they are immensely stained by the greed of their own opinions.
- Because then, Worldman said:
- "Whosoever tells other laws from here [outside] that they are pure wrongdoers and incomplete,
- All sorts of outdoers also tell them, because they are immensely affected by the greed of their own opinions."
- They told "only here is pure" and they say that there is no purity in other laws.
- All sorts of aisters' aisle are fixed in this way, where they are proclaiming to be strong on their way.
- "They tell 'Only here is pure'": "They tell, tell, tell, talk, explain, say that this is pure, clean, all pure; detachment, liberation, from all over: 'The world is everlasting, this is the truth. The rest is empty. ' They tell, tell, tell, talk, explain, say that this is pure, clean, all pure; disengagement, relief, disengagement; the world is very constant... (medium) "After death neither exists nor does not exist, this It is true, others are empty. ' They tell, tell, tell, talk, explain, say that this is pure, clean, all pure; detach, liberate, disengage." Tell them "only here is pure".
- "They say that there is no cleanliness in other laws": "Except his master, the group of recounts of the law, see, the signs, and the way, he forsaketh, and surrounds all dissensions: 'The Master is not the wise man, the law Not to be righteous, [their] groups are not guided by the good, see is not good, the road is not safe, the way is not departed, there is no purity, or purification, or all pure, or dissociated, or dissociated, or dissociated. where they have not become pure, or purified, or all over pure, or freed, or freed, or dissolved, inferior, inferior, low, inferior, inferior, insignificant of. ' They say so, talk, talk, say so, say so, say so." Say for them that there is no purity in other laws.
- "All sorts of averts are fixed as such: "The sects are called evil, and the outraits are called evil, are fixed, stopped, glued, entered, dyed, and directed towards their hearts." This is also fixed for all kinds of outside aisle.
- "There are those who proclaim to be strong in their own way": "The law is his way; Seeing for his own; the road for his own; the way for his own; the way for his own, the strong speaking, the strong speaking of his own. The strong speaking, the established talker." For those who claim to be strong on their way there.
- Because then, Worldman said:
- "They told 'Only here is pure, 'they say that there is no purification in other laws,
- All sorts of aisters' aunts are fixed, and in their own way there are proclaiming to be strong."
- But in his own way claiming a strong man, what can he put in here as a "foolish" opponent?
- It is that he himself will bring heresy: the opponent is the foolish of the impurified law.
- "But in his own way proclaims the strong ones": "His own law, their own sight, their own signs, their own ways, their own way, for the strong speaking, the strong speaking, the established in their own way. Speakers." For but on their way to claim the sturdy ones.
- "What opponent can he put here as the foolish": "Here," what he can set in his own sight, in his own likes, in his own hobbies, and in his own claims; what can he see? What you can see; what you can look at; can observe what opponents are fools, inferior, inferior, inferior, inferior, inferior, inferior, insignificant." What can he put in here as a "foolish" opponent?
- "He himself will bring heresy: the opponent is the foolish of the impurified law": "The opponent is the foolish, the inferior, the inferior, the inferior, the inferior, the inferior, the insignificant, the impure, The unclear law, those who do not pass the pure law, and those who do not whiteness So say, so narrator, so talk, so explain, say so, say, he will bring; will cause; will bring; will bring; will pull; will lead; will hold; will hold; will hold; will hold; will hold; will persist Brawl, argue, dispute, argue, disregard." For he himself will bring heresy: the opponent is the foolish of the impurified law.
- Because then, Worldman said:
- "But in his own way claiming a strong man, what can he put in here as a "foolish" opponent?
- He himself will bring heresy: the opponent is the foolish of the impurified law."
- 129. After standing in judgment, after measuring himself, he came to argue in the world,
- When all judgments have been discarded, man is not heresy in the world.
- "After residing in judgment, after measuring by yourself": "Judgment is called the judgment of 62 evil opinions [the judgment of the opinion], after the judgment, after the establishment of the judgment, after it is established, after picking up, after performing, and after persuading. post. "After measuring by yourself", after measuring by yourself, after measuring: 'This master is the wise man of all. ' After measuring it by itself, after measuring it; the law is spoken of good... This group is a person who walks according to the good... This is good... This is a sign of good peace... 'This way is departed. ' After measuring by yourself, after measuring." To live in judgment, after measuring yourself.
- "After he came to argue in the world": "After he was called the future. After dwelling their teachings, they will come, arrive, arrive, hold, perform, quarrel, argue, argue, argue, argue, argue, argue, argue, disagree." This is after he came to argue in the world. Or, "After a quarrel with other teachings, argue, dispute, argue, and disregard: 'You have no knowledge of this law and the law... (middle) please disassemble, if you can. '" This is also after he came to argue in the world.
- "After leaving all judgments": "Judgment is called the Judgment of Sixty-two Wicked Opinions [Judgment], in the judgment of seeing, after abandoning in all judgments, after abandonment, after giving up forever, after forsaken, after discarding, after exertion, After the end, make it go after it does not exist." For parting off all judgments.
- "People in the world do not have any dissent": "No quarrel, no debate, no dispute, no argument, no dissent. This is said by Worldman, 'Achwiesenah! This liberated Bichu does not agree with anything, does not argue what the world says and does not act. [MN.74] Human beings, human beings, students, Brahmen, people, individuals, lives, to born, affection, to Indra, Monu. "In the world", in the worlds of bitterness...The world." Being a man in the world is not heterogeneous.
- Because then, Worldman said:
- "After living in judgment, and after measuring himself, he came to argue in the world,
- After all judgments have been pardoned, man is not heinous in the world.
- Instructions twelfth [Completed] for configuration of the Xiaoxiao.
+
+Secondly, the instructions for configuring the small pass will say:
+
+113. Each of the stoppers, after the holding of the good people, all kinds of
+     land told:
+
+Whosoever knows such he finds the law and rejects it, he is not perfect.
+
+"Stayers of their own sight": "Some Samana and Brahmen are wicked, and they
+dwelt in their own sight after holding, after grasping, after picking up, after
+performing, and after their clinging, after their deeds. (b) To live together,
+live, stay (all over), if the family lives at home, or a guilty person lives in
+sin, or the polluted person resides in the polluted. In the same way, some
+Samana and Brahmen were evil men who took a certain evil opinion in 62, after
+grasping, picking up, after performing, and after their clinging, they dwelt,
+dwelt, dwelt, dwelt, dwell in their own. Stay (all over). For their own seen
+stoppers.
+
+"After holding the skilful people planted the land to tell": "After holding,
+after holding, after grasp, after picking up, after taking, after taking, after
+holding, after they all kinds of land told; they told them in many ways; they
+[conflict] with each other Teach; they tell them individually; and they tell
+them differently, they speak, they speak, they say, and they speak. "The Good",
+the wise speaking, the wise speaking, the strong speaking, the speaking of
+[with] methods, the [with] reason, the saying that [has] special features, [has]
+the basis of the saying, To speak of their own claims as possible." For those
+who are good after holding them all kinds of land to inform.
+
+"Whosoever knows such he finds the law": "He perceive, knows, knows, saw, and
+persureated." For whosoever knows such he finds the law.
+
+"He who rejects this is not complete": "Whoever rejects the law, see, the signs,
+the way, the way, he is not complete; he is the unfulfilled; he is the inferior,
+the despicable, the inferior, the inferior, the inferior. Intentions, trivial."
+He is not the perfect one to reject this.
+
+Because then, the man said:
+
+"The Stayers who have seen themselves, after holding the skillful people, told
+all sorts:
+
+Whosoever knows such he finds the law, and rejects it, he is not perfect."
+
+After holding this way, they argue, and say, "The opponent is a foolish, a bad
+person".
+
+So which of these people is true? For these people are all those who claim to be
+good.
+
+"After holding this way they argue": "After holding, grasping, after picking up,
+after performing, after persistence they argue, quarrel, argue, argue, argue,
+and disregard: 'You do not know this law, the law ... (medium) Please
+disassemble if you can. '" For such hold after they argue.
+
+"And say, "The opponent is a foolish, the unwise, the inferior, the inferior,
+the inferior, the inferior, the inferior, the inferior, the inferior, the
+inferior, the inferior, the unwise, the ignorant, and the The unwise, the
+undivided (the unwise), the inferior. Say so; speak so; speak so; say so; say
+so." To say, "the opponent is a foolish, a bad person."
+
+"So which of these people speaks is true": "Which of these Samana, Brahmen
+speaks are true, truthful, true, true, correct, upside down?" So which of these
+people speaks is true.
+
+"For these are all those who claim to be good": "These Samana and Brahmen are
+all the sayers of good sayers, wise talkers, strong talkers, [with] methods,
+[with] reason. 、A person who [has] a special feature, the person who has a
+basis, and who makes his own claim possible." Because these people are all those
+who claim to be good.
+
+Because then, the man said:
+
+"After holding this way, they argue, and say, 'The opponent is a foolish,
+undeemable. '
+
+So which of these people is true? For these are all those who claim to be good."
+
+115. If he does not recognize the law of the opponent, he is a foolish, a
+     foolish (Ceylon version),
+
+All are foolishers and despicable: these are all those who see the stoppers.
+
+"If you do not recognize the law of the opponent": "When the law of the
+opponent, see, signs, the way he does not endorses, does not follow,
+unsatisfactory (anānumanananto? , do not agree, do not feel happy." If you do
+not recognize the opponent's law.
+
+"He is a foolish, a foolish (Ceylon version), a despicable man": "The opponent
+is the foolish, the inferior, the inferior, the inferior, the inferior, the
+inferior, the inferior, the inferior , low Hui, inferior intentions,
+insignificant wisdom.For he is a foolish, a foolish (Ceylon version), and a
+
+"They are all fools and despicable ones": "These Samana and Brahmen are all
+fools, the inferior, the despicable, the inferior, the inferior, the inferior,
+the inferior, the inferior, the inferior, the inferior, all of them The
+inferior, the low, the inferior, the inferior to the wise, the inferior. So all
+are fools and despicable.
+
+"These are all seen stoppers": "These Samanas and Brahmen are all evil people,
+and they have taken a certain evil opinion in the Sixty-two evil, after
+grasping, after picking up, after performing, and after their persistence. The
+respective lives, cohabitation, dwellings, resides (all over), such as living in
+a family, or a guilty person in sin, or a polluted person living in the
+polluted. Similarly, these Samana and Brahmen are all evil dissidents... (in the
+middle) stayed (all over)." For these people are all seen stoppers.
+
+Because then, Worldman said:
+
+"If he does not recognize the law of the opponent, he is a foolish, a foolish,
+and a despicable.
+
+All are foolishers and despicable: all these are the stoppers of sight.
+
+116. But if you become a innocent person by their own sight (Thailand Version),
+     the Whoever is pure, the clever, the righteous,
+
+Then there is no inferior among them, for their seeing is done as it is.
+
+"But if you become a clean man with your own sight (Thailand Version)": "In your
+own sight, by your own liking, by your own hobbies, to become {no} clean, {no}
+clean, {no} The bright, [not] polluted, [not] polluted." But if you become a
+clean man in your own sight (Thailand Version).
+
+"The Whiteness of the Wise, the Good, the Seeker": "'Full Pure Wiser, Clear
+Wise, Whitening, Whitening, Whitening, or, Pure Seeker, Pure Seeing , Whitening
+and Whitening Seeing, the Clear Seeper" are completely pure. "The good," "The
+good is the wise, the wise, the wise, the clever, the wise, the different, the
+wise, the wise." For the pure wicker, the clever. "The Wise" is the wise, the
+wise, the wise, the wise, the wise, the wise, the different, the wise. For the
+pure wisdom, the good, the conceiver.
+
+"Then there is no inferior among them": "Those who are not inferior in Samana,
+Brahmen, the despicable, the inferior, the low, the inferior, the inferior, the
+inferior, the inferior, the inferior, the inferior, the insignificant The Wise,
+the Victor, the Top, the Most Wise, the Most Wise. So there is no inferior among
+them.
+
+"For the beings of those men have been completed as such: "The beings of Samana
+and Brahmen have been completed, held, held, taken, taken, taken, taken, and
+believed." For the sight of those people is done like that.
+
+Because then, Worldman said:
+
+"But if you become a clean man in his own sight (Thailand Version), the Whoever
+is pure, the good, the Seeker,
+
+Then there is no inferior among them: for their seeing is done like that.
+
+I do not say "this is true": whoever they say to each other that the adversaries
+are fools,
+
+They set their own views as true, so they put their opponents as "fools."
+
+"I don't say 'This is the truth. '' '' 'is no. 'This', 'Sixty-two evil, this is
+truthful, true, true, correct, upside down. ' I do not tell (say), I do not
+explain, I do not teach, I do not tell, I do not build, I do not reveal, I do
+not interpret, I do not clarify, I do not explain." For me don't say "it's
+true".
+
+"Whoever they say to each other that the adversaries are fools": "The hostile is
+two men, two arguers, two argumentators, two contenders, two contenders, two
+contenders, two sayakers, two interlocutors, They say each other so, tell, talk,
+say so, say so, say, so that [the adversary] is the foolish, the inferior, the
+inferior, the inferior, the inferior, the inferior, the inferior, the inferior.
+For whosoever they say to one another that the adversaries are
+
+"They make their own see true": "The world is constant, this is true, the rest
+is empty." To make their own see true. "The world is very constant, this is
+real, the rest is empty." ... (medium) "After death neither exists nor does not
+exist, this is true, the others are empty." To make their own see true.
+
+"So they put their opponents as "foolishers": "Therefore, therefore; that
+reason; that cause; thatFor that reason, they set, see, see, watch, observe,
+observe the opponent as the foolish, the inferior, the inferior, the inferior,
+the inferior, the inferior, the inferior, the inferior, the inferior. For that
+reason they put their opponents as "fools."
+
+Because then, Worldman said:
+
+"I do not say, 'This is truth': whosoever they say to each other is the foolish
+
+They set their own views as true, so they put their opponents as "fools."
+
+Whoever says "true and truthful", others say "it is hypocritical and false",
+
+After holding this way, they argue, why did Samana tell differently?
+
+"Whoever certain people say "Truth and truth'": "Whatsoever the law, see, signs
+and ways, some of Samana and Brahmen say, and speak so, and speak so, say so,
+saying, This is true and truthful. True, true, right, inverted. '" For whoever
+says "true, truthful".
+
+"Others say, 'It is hypocritical and false'": "As to the law, see, signs and
+ways, certain Samana, and Brahmen say, and speak so, and speak so, and say so,
+this is hypocrisy. This is false, it is not true; it is false, and it is not
+true." Say to others, "That is hypocritical, false."
+
+"After holding this way they argue": "After holding, grasping, after picking up,
+after performing, after persistence they argue, quarrel, argue, argue, argue,
+and disregard: 'You do not know this law, the law ... (medium) Please
+disassemble if you can. '" For such hold after they argue.
+
+"Why did Samana tell differently": "Why" and why? What is the reason for it?
+What is the cause? What is its edge? What is the cause? What is its set? What is
+its life? What is its root? They tell them differently; they do so in many ways;
+they tell each other [in conflict]; and they tell each other individually that
+they speak, they speak, they speak, they say, they say, ." Why did Samana tell
+differently?
+
+Because then, the man said:
+
+"Whoever some say 'true and truth', others say, 'It is hypocritical and false. '
+
+After holding this way they argue, why did Samana tell differently?
+
+119. It is true that there is no second, the person who understands should not
+     argue in anything,
+
+All kinds of real ones they called good, so the Samana told them differently.
+
+"Indeed, there is no second single truth": "single truth is called bitterness,
+Nibbana, that is the end of all lines, everything according to the conviction,
+thirsty love is extinct, away from greed, derelict, Nibbana. Or, the single
+truth is called the essence, out of the essence, the direction of bitterness
+signs, eight sacred paths, that is: righteousness, righteousness, righteousness,
+righteousness, righteousness, righteousness, righteousness." For indeed single
+real no second.
+
+"The person who understands should not argue in anything": "No matter what it
+is, no matter what it is, no matter what it is. A synonyms for human beings.
+"Knowing (s)", anyone who truly understands, who knows, who knows, who knows
+others, knows, and the interviewer should not quarrel, should not argue, should
+not argue, should not be contested, should not be disguised, and should not be
+dismissive, Brawl, argue, dispute, argument, disregard, he should be cut off,
+should be discarded, should end, and should make it to nonexistent." To
+understand people should not argue in anything.
+
+"All those who are true, they call good": "All those who are true themselves
+called good, tell, tell, tell, talk, explain, say, say; 'The world is
+everlasting, this is true, and the rest are empty." They themselves call good,
+tell, tell, tell, talk, explain, speak; the world is very constant... "After
+death neither exists nor does it exist, this is true, the others are empty."
+They themselves call good, tell, tell, tell, talk, explain, speak. Called good
+for the kind of those real themselves.
+
+"So the Samanas tell them differently": "Therefore, therefore; that reason; that
+cause; that fate; that because they told differently; they told all sorts of
+land; they told them in many ways; they told them in many ways; they told them.
+They tell each other [in conflict]; they tell each other individually, that they
+speak, they speak, they say, and they speak. So Samana told differently.
+
+Because then, Worldman said:
+
+"It is true that there is no second, people who understand no matter what they
+should argue,
+
+All their truths they called good, so the Salamons told them differently. 120.
+Why do they tell the truth: good discussants, those who claim good deeds?
+
+Are those true multiplicity, variety, or do they follow the inference?
+
+"Why do they tell all kinds of truth": "Why", why? What is the reason for it?
+What is the cause? What is its edge? What is the cause? They tell all things;
+they tell many; they tell each other [the conflicting]; and they tell the truth
+of all things, and they speak, they speak, they say, and they speak. Why they
+tell all kinds of truth.
+
+"Good discussants, those who claim to be good": "Good discussants," "They
+rebutt" are good discussants, or they say, tell, talk, explain, say, say their
+own opinions: 'The world is everlasting, this is True, others are empty. ' They
+say, tell, talk, explain and speak; the world is very constant... "After death
+neither exists nor does it exist, this is true, the rest is empty." They say,
+tell, talk, explain, and speak. "Declares the good", the sayer of the sayer, the
+wise speaking, the strong speaking, the [with] method, the [with] reason, the
+speaker of [with] a special feature, and the [with] basis 、To speak of their
+own claims as possible。" For good discussants, claiming good deeds.
+
+"Whether those truths are numerous, all kinds of": "Are those true are numerous,
+various, multifaceted, [conflicting], individual." For whether those real are
+numerous, all kinds of。
+
+"Or do they follow the inference": "Or do they carry away, take away, carry,
+carry, carry, carry." So is it or they follow the inference. Or, "they are
+inferred influenced, inspected, accompanied by their own arguments, telling,
+talking, explaining, saying, saying." So it's also whether they follow the
+inference.
+
+Because then, the man said:
+
+"Why do they tell the truth: good discussants, those who claim good deeds?
+
+Are those true multiplicity, variety, or they follow the inference?"
+
+121. Indeed, the truth is not numerous, all kinds, except after he cognizance of
+     the common things in the world,
+
+But after seeing the inference above, they say "real, false" two methods.
+
+"Truth is indeed not many, of all kinds": "Truth is indeed not numerous,
+diverse, multifaceted, [conflicting], individual." For the truth is indeed not
+numerous, all kinds of.
+
+"In addition to his knowledge of the permanent things in the world": "Except for
+cognition of permanent residence, there is only one truth in the world to be
+told, talk, explain, say, say, say: bitterness, Nibbana, that is the end of
+everything. All according to the judgment, thirsty love is extinct, away from
+greed, wiped, nir Or, the single truth is called the essence, out of the
+essence, the direction of bitterness signs, eight sacred paths, namely: see...
+(medium) positive." In addition to his cognizance of the living things in the
+world.
+
+"But after seeing the inference above, they say "true and false" two methods:
+"Think, seek, think, think after they think, after they think, after thinking,
+after thinking, and after thinking, make evil opinion come, produce, give birth,
+and make evil opinion. They say, and speak so, say, and say so, say, and say so,
+say so, saying, 'My is true, and thy is false. ' But after seeing the inference
+above, they say "true, false".
+
+Because then, Worldman said:
+
+"Truth is indeed not many, all sorts, except that he knows what is living in the
+world,
+
+But after seeing the inference above, they say "true and false."
+
+122. To become a humiliating seeker after it is seen, heard, abused or forbidden
+     or perceived, by such means,
+
+Become a laughter after living in judgment, and say that the opponent is
+"foolish, undeemable."
+
+"To become a humiliating seeker in the sight, what it is, heard, forbidden or
+perceived": "What is seen or seen; what is heard or heard of purity; the purity
+of the ring or abstination; the purity of prohibition or prohibition; Feel or
+feel pure, after relying, after relying on, after picking up, after performing,
+after clutching. To be seen, heard, quanned and forbidden or perceived. "After
+these things become humiliating viewers," "disrespectful" is a humiliating
+sight, or 'cause worries to besting' is also a humiliating viewer. To become a
+humiliating seeker after it is seen, heard, abused and forbidden or perceived.
+
+"To be a laughter after living in judgment": "Judgment is called Sixty-two
+Wicked Sees [Judgment of Seeing], in the Judgment of Seeing, Judgment is seen
+after the residence, after the establishment, after picking up, after
+performing, and after the persistent. For dwell in judgment after. "Be a
+laughter" to be a delightful, laughter, rejoice, delightful, fully satisfied,
+or, who reveals teeth continuously laughing." To become a laughter after living
+in judgment.
+
+"And the opponent is the foolish, the inferior, the inferior, the inferior, the
+inferior, the inferior, the inferior, the inferior, the inferior, the inferior,
+the inferior, the insignificant, the unwise, the ignorant, The unwise, the
+undivided (the unwise), the inferior. Say so; speak so; speak so; say so; say
+so." To say that the opponent is "foolish, undeemable."
+
+Because then, Worldman said:
+
+"To be a humiliating sight after it is seen, heard, and forbidden, or in his
+sight, and in his sight,
+
+To become a laughter after living in judgment, and say that the opponent is the
+"foolish, undeemable."
+
+123. Because he made his opponent a "foolish", he said he was a "good man".
+
+To himself [say] himself he becomes a person who claims to be good, despise
+others he says like that.
+
+"Because he made his opponent as the foolish": "He set, saw, saw, saw, looked,
+observed, observed, observed, observed the opponent as a foolish, the inferior,
+the despicable by that reason, by that reason. , inferior, inferior, inferior,
+insignificant." Because he makes his opponent a "foolish."
+
+"So you are the "good man": "Aytumāno is called himself (attā). And he said
+himself by that cause, and by that reason, by that cause: I am the good, the
+wise, the wise, the wise, the conscious, the wise, the wise, the wise, the wise,
+the wise, the wise. To say that you are a "good man."
+
+"By himself [say] himself, he becomes a person who proclaims to be good": "By
+himself [say] he is a good sayer, a wise speaking, a firm saying, a [with]
+method, [with] reason Speakers, talkers who [have] special features, those who
+have a basis, and those who make their own claims possible." To himself [say]
+himself he becomes the person who claims to be good.
+
+"Despise others as he says," "Disrespect is to despise others, or, "to give
+birth to worries," is to despise others. "He said like that," he said like that
+evil sight: like this, this man is a wickerer, upside down." To despise others
+he said like that.
+
+Because then, Worldman said:
+
+"Because he put his opponent as a "foolish," he said he was a "good man."
+
+To himself [say] himself, he becomes the person who proclaims to be good,
+despises others and he says like that."
+
+124. He was completed by transgressions, and was slowly intoxicated as a boast
+     of perfection,
+
+And he was filled with his own intention: for his sight was done like that.
+
+"He was completed by transgresses": The transgressionary is called Sixty-two
+Wickedness. For what reason is a breach of opinion called Sixty-Two Wicked
+Opinions? All of these see has exceeded the reason, has exceeded the prophecy,
+has exceeded the probability, for that reason the transgressionary opinion is
+called Sixty-two evil opinions. Everything is a transgression. For what reason
+all see is called a transgression? They cross each other, pass through, overcome
+and cause evil opinions to produce, give birth and give birth to them, for that
+reason everything is called transgression. "He was completed by transgressed
+views": "He was completed, filled, and made perfect." Complete for his
+transgressed opinion.
+
+"Be slowly intoxicated as a boast of the fullness": "'Be intoxicated by their
+own seeing, being slow, relaxing, becoming crazy, overdose." To be slowly
+intoxicated. "The boast of the fullness", the boast of the complete, the boast
+of perfection. Be a boast of the fullness to be intoxicated slowly.
+
+"I am the good, the wise, the wise, the wise, the feeling, the wise, the wise,
+the wise, the wise, the wise, the wise, the wise, the wise, the wise, the wise."
+To be himself intended to fill himself.
+
+"For his beast is done as it is done": "His behold, held, held, taken, taken,
+taken, taken, and believed." Because his see was done like that.
+
+Because then, Worldman said:
+
+"He was completed by transgresses, and was slowly reveled to become a boast of
+the fullness
+
+And he was filled with his own intention: for his sight was done like that.
+
+125. If the opponent becomes a despicable person because of words, he himself
+     [also] becomes a despicable man together,
+
+But if [he] himself is a vedic and wise man, there is no foolish in Samana.
+
+"To the opponent if the words become despicable": "To the opponent if [for] the
+reason of being rebuked by words, words rebuked, responsible reasons, the reason
+of abusive, the opponent [will] become a foolish, the inferior The despicable,
+the inferior, the low, the inferior, the inferior, the insignificant. For the
+opponent if because of words become despicable. "Then he himself [also] became a
+despicable man together": "He also became the inferior, the despicable, the
+inferior, the low, the inferior, the inferior to the wicked, the inferior, and
+the insignificant." So he himself [also] became a despicable man together.
+
+"But if [he] himself is a Veda-aware, wise man": "But if [he] himself is a
+vedic, wise, wise, wise, wise, the wise, the wise, the wise, the wise, the wise,
+the wise." But if [he] himself is a vedic, wise man.
+
+"There is no foolish in Samana": "There is no foolish, the inferior, the
+despicable, the inferior, the inferior, the inferior, the inferior, the
+inferior, the inferior, the inferior, the inferior, the insignificant, The Most
+Wise, the Most Wise, the Most Wise. There is no foolish in the Samana.
+
+Because then, Worldman said:
+
+"To the opponent, if he becomes a despicable by words, he himself [also] becomes
+a despicable man together,
+
+But if [he] himself is a vedic and wise man, there is no foolish in Samana."
+
+126. Whoever informs other laws [outside] from here that they are pure
+     wrongdoers, incomplete ones,
+
+All sorts of outdoers also told them, because they are very greedy in their own
+opinion.
+
+"Whoever informs other laws from here [outside], they are pure wrongdoers and
+incomplete": "Whoever tells the other laws from here, see, trajectory, and way,
+they are pure ways, cleansers, and whitening. The losers of the way, the
+wrongdoers, the downside, the lost, the lost, the wrongdoers in total wisdom,
+they are the incomplete; they are the unfinished; they are the unfulfilled; they
+are the inferior, the despicable, the inferior, the inferior The low, the
+inferior, the inferior, the insignificant." For whoever tells the other laws
+[outside] from here, they are pure wrongdoers, incomplete.
+
+"All sorts of astrangers also told": "The sects are called evil, and the
+outraits are called evil, and all sorts of outcels tell, tell, tell, talk,
+explain, say, say, say, say, say, say, say, For all sorts of outlanes, too.
+
+"For they are immensely stained by the greed of their own opinions": "They are
+immensely dyed with their own opinions and their views." Because they are
+immensely stained by the greed of their own opinions.
+
+Because then, Worldman said:
+
+"Whosoever tells other laws from here [outside] that they are pure wrongdoers
+and incomplete,
+
+All sorts of outdoers also tell them, because they are immensely affected by the
+greed of their own opinions."
+
+They told "only here is pure" and they say that there is no purity in other
+laws.
+
+All sorts of aisters' aisle are fixed in this way, where they are proclaiming to
+be strong on their way.
+
+"They tell 'Only here is pure'": "They tell, tell, tell, talk, explain, say that
+this is pure, clean, all pure; detachment, liberation, from all over: 'The world
+is everlasting, this is the truth. The rest is empty. ' They tell, tell, tell,
+talk, explain, say that this is pure, clean, all pure; disengagement, relief,
+disengagement; the world is very constant... (medium) "After death neither
+exists nor does not exist, this It is true, others are empty. ' They tell, tell,
+tell, talk, explain, say that this is pure, clean, all pure; detach, liberate,
+disengage." Tell them "only here is pure".
+
+"They say that there is no cleanliness in other laws": "Except his master, the
+group of recounts of the law, see, the signs, and the way, he forsaketh, and
+surrounds all dissensions: 'The Master is not the wise man, the law Not to be
+righteous, [their] groups are not guided by the good, see is not good, the road
+is not safe, the way is not departed, there is no purity, or purification, or
+all pure, or dissociated, or dissociated, or dissociated. where they have not
+become pure, or purified, or all over pure, or freed, or freed, or dissolved,
+inferior, inferior, low, inferior, inferior, insignificant of. ' They say so,
+talk, talk, say so, say so, say so." Say for them that there is no purity in
+other laws.
+
+"All sorts of averts are fixed as such: "The sects are called evil, and the
+outraits are called evil, are fixed, stopped, glued, entered, dyed, and directed
+towards their hearts." This is also fixed for all kinds of outside aisle.
+
+"There are those who proclaim to be strong in their own way": "The law is his
+way; Seeing for his own; the road for his own; the way for his own; the way for
+his own, the strong speaking, the strong speaking of his own. The strong
+speaking, the established talker." For those who claim to be strong on their way
+there.
+
+Because then, Worldman said:
+
+"They told 'Only here is pure, 'they say that there is no purification in other
+laws,
+
+All sorts of aisters' aunts are fixed, and in their own way there are
+proclaiming to be strong."
+
+But in his own way claiming a strong man, what can he put in here as a "foolish"
+opponent?
+
+It is that he himself will bring heresy: the opponent is the foolish of the
+impurified law.
+
+"But in his own way proclaims the strong ones": "His own law, their own sight,
+their own signs, their own ways, their own way, for the strong speaking, the
+strong speaking, the established in their own way. Speakers." For but on their
+way to claim the sturdy ones.
+
+"What opponent can he put here as the foolish": "Here," what he can set in his
+own sight, in his own likes, in his own hobbies, and in his own claims; what can
+he see? What you can see; what you can look at; can observe what opponents are
+fools, inferior, inferior, inferior, inferior, inferior, inferior,
+insignificant." What can he put in here as a "foolish" opponent?
+
+"He himself will bring heresy: the opponent is the foolish of the impurified
+law": "The opponent is the foolish, the inferior, the inferior, the inferior,
+the inferior, the inferior, the insignificant, the impure, The unclear law,
+those who do not pass the pure law, and those who do not whiteness So say, so
+narrator, so talk, so explain, say so, say, he will bring; will cause; will
+bring; will bring; will pull; will lead; will hold; will hold; will hold; will
+hold; will hold; will persist Brawl, argue, dispute, argue, disregard." For he
+himself will bring heresy: the opponent is the foolish of the impurified law.
+
+Because then, Worldman said:
+
+"But in his own way claiming a strong man, what can he put in here as a
+"foolish" opponent?
+
+He himself will bring heresy: the opponent is the foolish of the impurified
+law."
+
+129. After standing in judgment, after measuring himself, he came to argue in
+     the world,
+
+When all judgments have been discarded, man is not heresy in the world.
+
+"After residing in judgment, after measuring by yourself": "Judgment is called
+the judgment of 62 evil opinions [the judgment of the opinion], after the
+judgment, after the establishment of the judgment, after it is established,
+after picking up, after performing, and after persuading. post. "After measuring
+by yourself", after measuring by yourself, after measuring: 'This master is the
+wise man of all. ' After measuring it by itself, after measuring it; the law is
+spoken of good... This group is a person who walks according to the good... This
+is good... This is a sign of good peace... 'This way is departed. ' After
+measuring by yourself, after measuring." To live in judgment, after measuring
+yourself.
+
+"After he came to argue in the world": "After he was called the future. After
+dwelling their teachings, they will come, arrive, arrive, hold, perform,
+quarrel, argue, argue, argue, argue, argue, argue, argue, disagree." This is
+after he came to argue in the world. Or, "After a quarrel with other teachings,
+argue, dispute, argue, and disregard: 'You have no knowledge of this law and the
+law... (middle) please disassemble, if you can. '" This is also after he came to
+argue in the world.
+
+"After leaving all judgments": "Judgment is called the Judgment of Sixty-two
+Wicked Opinions [Judgment], in the judgment of seeing, after abandoning in all
+judgments, after abandonment, after giving up forever, after forsaken, after
+discarding, after exertion, After the end, make it go after it does not exist."
+For parting off all judgments.
+
+"People in the world do not have any dissent": "No quarrel, no debate, no
+dispute, no argument, no dissent. This is said by Worldman, 'Achwiesenah! This
+liberated Bichu does not agree with anything, does not argue what the world says
+and does not act. [MN.74] Human beings, human beings, students, Brahmen, people,
+individuals, lives, to born, affection, to Indra, Monu. "In the world", in the
+worlds of bitterness...The world." Being a man in the world is not
+heterogeneous.
+
+Because then, Worldman said:
+
+"After living in judgment, and after measuring himself, he came to argue in the
+world,
+
+After all judgments have been pardoned, man is not heinous in the world.
+
+Instructions twelfth [Completed] for configuration of the Xiaoxiao.
+
+
 
 Excerpt:
- There is only one truth (single true Ekasacca), but each intoxicated in its own inference is arguing for truth and then deviating him.
- 12/12/2020 16:40
+
+There is only one truth (single true Ekasacca), but each intoxicated in its own
+inference is arguing for truth and then deviating him.
+
+12/12/2020 16:40
+

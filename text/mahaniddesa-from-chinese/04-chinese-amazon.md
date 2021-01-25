@@ -1,105 +1,552 @@
 4. pure eight a set of instructions
- Secondly, the description of pure eight sets of Scriptures will say:
- 23. I see purity: the highest unsick, to see and someone's complete purity,
- When so testified, he knew that "it is the highest", "he is a purity" he returned to wisdom.
- "I see purity: the highest disease-free": "I see purity, I see purity, I see purity, I see purity, I look at purity, I observe purity. "The highest unsick", the highest, the unsick, arriving at the shelter, arriving at the shelter, arriving at the place of return, arriving without fear, reaching the undead, reaching the Nibbana." For me to see purity: the highest unsick.
- "To see and someone's complete purity": "Seeing color (Sri Lanka version) and someone's pure, clean, all pure; disengagement, relief, disengagement, all over, people become pure, become pure, become pure ; detached, freed, dissolved." For the sake of seeing the complete purity of someone.
- "When such testimony he knew that it was the highest": "When so testified, known, farewell, certain and persuasive. "This is the highest, the first, the most victorious, the top, the top, the highest, the top." He knows after, after understanding, after measuring, judging, after each, and after figuring out. For when so testified he knew "it is the highest" after.
- "'He is a purity of the following' He returns to wisdom": "Whosoever sees pure, he is the person who follows the pure "He returns to wisdom," he sees the color, he returns to "wisdom"; back to the path; back to the road; back to "out." For "He is a purity" he returns to wisdom.
- Because then, Worldman said:
- "I see the pure: the highest unsick, to see and the complete purity of someone,
- When he testified that he knew 'it was the supreme, 'he was a purity after he returned to wisdom.
- 24. if a man is pure by seeing, or if he breaks down with wisdom,
- Then there is a follower who has become pure by other things. See that he is indeed speaking like that.
- "If someone is pure by seeing": "Seeing color with eyes if someone is pure, clean, all pure; disengagement, release, all out, people become pure, become pure, become pure, become pure; be separated, Unlevered, dissolved." For if to see and someone's purity.
- "Or he shall break with wisdom": "Seeing color with vision if a man breaks off suffering, the old suffering, the sickness, and the suffering of death, and the loss of sorrow, grief, sorrow, and despair." For or for him to give up his suffering.
- "And those who follow the rest become pure": "By the other, in the way of impurities, by the signs of evil, and the way out of the way, except for the remembrance, except for the people, except for the gods, except for the gods, except for the roots In addition, except with all powers, except for the sake of the people, except for the eight sacred paths, man became pure, purified, and all pure; was separated, freed, and separated from all over. "There are followers" for the greedy, the wretched, the sluggish, the slow, the thirst, the [evil] see, the polluted, and the perpetrators. So there is a follower to become pure with others.
- "It is to be said that he is indeed speaking like that": "The man who says: Like this, this man is a wickerer, upside down. "It is a speaker like this' is a speaker, narrator, narrator, narrator, speaker, speaker: 'The world is everlasting, this is true, and the rest is empty. ' It is the speaker, narrator, talker, narrator, speaker; "The world is very constant... The world is borderless... Life is the body... Life is a body is Another... after death... after death, as lai does not exist... after death as lai exists and does not exist... after death is neither there nor non-existent, this is true, the others are empty." It is such a speaker, narrator, talker, narrator, speaker. For the sake of seeing that he is indeed speaking like that.
- Because then, Worldman said:
- "If a man is pure by seeing, or if he breaks down with wisdom,
- Then there is a follower who has become pure by other things, and see that he is indeed speaking like that."
- 25. Brahmen is not pure from other words, in what he has seen, heard, quit and forbidden or perceived,
- Be not polluted in ford and evil: those who have forsaken them, and they are not here to be made.
- "Brahmen is not pure from other words, in what he saw, heard, forbidden or perceived": "No" is no. "Brahmen", the seven laws of the excluded state is Brahmen: has been excluded, suspected to be excluded, forbiddenExcluded, greedy excluded, excluded, obsession excluded, slow to be excluded, those evil bad laws are excluded: Shun pollution, then there, fear, bitter fruit, the future will live and die.
- [Worldworld] [Sn.3.6, 524]
- After excluding all evil, the state of residence of the good entrant from the scale,
- He transcends his reincarnation and becomes the fullness, and something like this can be called Brahmen.
- "And Brahmen did not say pure from other things," "By the other, in the way of impurities, and by the way of evil, except for the remembrance, except for the righteousness of the gods, except for the roots; In addition to the power of all, except for the cherished, in addition to the eight sacred paths there are purity, purification, and all purity; detachments, liberation, all out, Brahmen do not say, do not talk, do not talk, do not say, do not say, do not say, For Brahmen does not say purity from the other.
- "On what they saw, heard, quit and forbidden or perceived," some Samana and Brahmen saw as pure. They believe that the sight of certain forms is auspicious, and that certain kinds of seeing is unauspicious. of. What kinds of views do they believe are auspicious? In the early morning (after coming out of the black), they saw the auspicious shape of the sparrow bird, the ornate little tree of Verua, a woman pregnant, the man who made a boy to go behind his shoulders, and saw the full And the urn saw the salmon, and saw the horse, and the horse carriage, saw the bulls, and the cattle, and they believed that the sight of such a kind was auspicious. What kinds of views do they believe are unauspicious? See straw stacks, ghee urn, see empty urn, see dancers, see naked false sand door, see donkey horse, see donkey carriage ride, see monocular, see monocular deformities, see the lame And those who saw a half-body, saw the old man, and saw the sick; they believed that it was unauspicious to see like that. These are those Samana, Brahmen who see as pure, they believe in seeing as pure, pure, pure; disengagement, relief, disengagement.
- Some Samana and Brahmen are pure, they believe in hearing certain voices auspicious, they believe that the hearing of certain voices is unauspicious. What sounds do they believe to be auspicious to hear? In the early morning (after coming out of the black), they heard the auspicious voice: "Boost (rich) [word]", or "precious", or "full", or "gorgeous", or "worry-free", or "good will", or "good star" Or "good luck," or "lucky," or "lucky increase," they believe that sound like this is auspicious. What voices do they believe to be unlucky to hear? "Single eye [word]" or "hand deformities", or "lame", or "half-failed", or "elderly", or "patient", or "dead", or "cut off", or "bursting", or "burning" , or "disappear," or "no," they believe that sounds like this sound is unauspicious. These are those Samana, Brahmen who smell as pure, they believe in being pure, clean, all pure; disengagement, relief, disengagement.
- Some Samana, Brahmen to ring as pure, they believe in the degree of [self] suppression, to the degree of self-restraint, to the degree of self-control, to the degree of pure, clean, all pure; detach, relief, all over Disengagement. The son of Shamun Mudi said so: Owner! Which four are the men who have the four ways of good, the supreme of good, and the recipient of the supreme, and Samana, which cannot prevail? Home Owner! Here, he does not act as an evil industry, does not speak evil words, does not wicked intentions, does not live with evil, the owner! We have the men who have these four laws are the ample of good, the supreme of good, the recipient of the supreme, the attraction of the supreme, and the Samon, who cannot prevail. Similarly, some Samana and Brahmen take the ring as pure, they believe in the degree of withdrawal, to the degree of [self] suppression, to the degree of self-restraint, to the degree of inviolability, to the degree of purity, purification, Release, disengagement.
- Some of Samana and Brahmen are purely forbidden. They are elephants forbidden, or horses forbidden, or cattle forbidden, or dog keeper, or crow forbidden, or the forbidden of the Mosenus. Or a forbidden man, or a forbidden man, or a forbidden man, or a fire forbidden, dragon forbidden, or Goldwingbird forbidden, or Vigil forbidden, or Asurah The forbidden, or the forbidden, or abide by the king's forbidden, or the lunar forbidden, or the day forbidden, or abide by Indra forbiddenor the forbidden, or the forbidden of heaven, or those who keep the forbidden, these are those who are Samana and Brahmen who have forbidden as pure, and they believe in forbidden as pure, clean, and all pure; to break away, Release, disengagement.
- Some Samana, Brahmen to feel pure, they touch the earth in the early morning, touch grass, touch cow dung, touch turtle, touch hoe, touch sesame carrier, chew Kigar's sesame seeds, chewing Kigar oil, chewing Kigar Tooth wood、Bathing with Kigaha soil、Wear Kigaha's clothes、Wrap Kigo's These are those Samana, Brahmen who feel pure, they believe in what they feel as pure, clean, all pure; disengagement, relief, disengagement. [This is] Brahman does not say pure from the other.
- "In what it is seen, heard, quit and forbidden or perceived", Brahmen does not say pure in sight; not to smell pure; not to quit purity; not to suppress purity; not to perceive purity Purity; do not tell, do not talk, do not explain, do not speak." For Brahmen is not pure from other words, in what he has seen, heard, quit and forbidden or perceived.
- "Not polluted in ford and evil": "Ford is called any good deeds of any three circles, and non-ford is called all bad. Due to the fact that the Fuxing and non-performing and inaction are cut off, the root has been cut off, like a palm tree without roots, become a non-living thing for the future, this situation is in Fu and evil he is not contaminated, not strong polluted, not close Contamination (not polluting), no pollution, no strong pollution, has not been closely contaminated. He has departed, departed, liberated, and has been bound, and he dwelt away from the restrained heart. To be unpolluted in Ford and evil.
- "Forsaken those who have taken, and are not made here": "The forsaken taking" forsaken me see; "Forsaken take" for those who have forsaken their obsession; "Forsaken and take" for the holding of love and seeing, the perseverance, and the He forsaketh all that took, and his faith was forsaken, spit out, released, and dismissed, and dismissed. "Those who do not make here", those who do not make them, those who do not make them born, those who are not born, those who are not born, those who are not born, are not born. To abandon the ones that are taken, they are not made here.
- Because then, Worldman said:
- "Brahman is not pure from what else says, in what he has seen, heard, and forbidden, or perceived,
- Be not polluted in ford and evil: those who have forsaken and take, are not made here."
- 26. cut off before and after become the subsequent stop, disturbed followers they do not spend dyed,
- They pick up, lay down, like a monkey grabs the branches and let go.
- "After disclosing before the end becomes the subsequent stopper": "after disconnecting the master before become the rest of the other master; after disclosing the previous law, after disclosing the previous law, become the recounder of other laws; after disconnecting the masses before become The rest of the other masses; and after the behindings before they become the rest of the other; and after they break off the trajectories before them become the rest of the others, and the rest of the other road, The sticker, the entrant, the dye, the person who puts the heart toward (triumph)." To be followed by after the break.
- "Disturbed followers, they do not spend dyed": "Disturbation is called thirsty love, that is greed, lust (total greed)... (medium) greed, greed, bad roots. "Disturbed followers", perturbed followers, perturbed followers, trailers of disturbance, removed, knocked down, conqueror, heart trailers. "They do not spend dyed," the greedy dyed, the dyed of the skewness, the slow dyed, the stained of the stain, the stained of the polluted, and the evil doings stained them do not pass, do not pass through, do not pass, do not pass, not overcome. " For disturbed followers they do not spend dyed.
- "They pick up, lay down": "They grabbed (pick up) the master, let go after the other master; catch the law tells, let go of the other law; catch the crowd, let go after the catch The other masses; seize see, let go after the other see; Grab the signs, drop that after grabbing the other tracks; grabbing the road, drop that after grabbing the other road, they grabbed and let go; take and put off." Pick up and put them off.
- "If the monkey grabs the branches and let go": "If the monkey roaming in the forest, the forest grabs the branch, and then put it off and another branch [SN.12.61], the same, most of the salmon, Brahmen grabbed and let go; take and give off the evil opinion of the majority." For like a monkey grab the shoots and let go.
- Because then, Worldman said:
- "The rest of the beforehand shall be followed by the followers of the disturbance, and they do not spend the dyeing,
- They pick up, put off, such asThe monkey grabs the branches and let go.
- 27. After the person himself is prohibited, he is trying to adhere to him to the high and low,
- The Wise will be legal after the Vedas, the Guang Hui does not go high and low.
- "After a person is forbidden to hold himself": ""Self-hold" is self-sustaining. "Forbidden" is like a prohibition, or horse prohibition, or cattle, or dog ban, or crow ban, or forbidden by the God of Bishenou, or forbidden power, or Manxian forbidden, or Chu Yin prohibition, or fire ban, or dragon ban, or gold Wingbird forbidden, or Yashora ban, or Ashur ban... (medium), or orientation ban, after he was taken, after holding, after taking, after taking, after taking, after taking, after taking, after taking, after the execution, after the practice. "Man", "Beings, human beings... (Central) of Moru." After being forbidden for the person himself.
- "Those who want to stick him to high and low": "He walks from the master to the master; from the narrative of the law to the narrative of the law; from the masses to the masses; from seeing to seeing; from the road to the road; from the road to the road. "Want to be adhered", thought, maliciously thought, harmful thought, see want to adhere, entangled, bound, attached, attached, obstructed, such as objects on a wall pile, or on a wall nail adhesion, entangled, bound, attached, fastened, Obstacles. Similarly, to be thought, malice thought, harmful thought, see want to stick, entangled, bound, attached, fixed, obstructed." To be able to stick him to go high and low.
- "After the Wise will be lawful in the Vedas": The Wise is the wise, the man who has reached the wise, the wise, the wise, the wise. "Vedas", Vedas are called in four ways of wisdom, wisdom, Wagan, witty, choice, study, Bisherna, positive view. To those who have lived and died in Vedas have reached the end (target); who has reached the ultimate, has reached the end point, has reached the border (exactly); those who have reached the border, has reached the end; has reached the end (b) Persons who have arrived at the shelter; those who have arrived at the shelter; those who have arrived at the refuge, have arrived at the place of return, have arrived at the place of return, to the person without terror; he has reached the person without terror, no dead; Has arrived the undead, has arrived the undead; has arrived the undead, to the Nibbana; has reached the Nibbana. Or "the ultimate in the veda" is a vedic, or "to the ultimate of the veda" as the veda is known, or the seven laws of the know state of Vedas are known, suspected to be known, forbidden Knowing, greedy is known, known, obsessed, and slowly known, its evil law is known: the polluted, then there, fear, bitter fruit, the future will live and die.
- [Worldworld] [Sn.3.6, 534]
- "Choose all the vedas, whosoever belongs to Samana and Brahman, which exists here,
- He is a vedic who knows everything from greed, beyond all Vedas."
- "After the wise man will be legal by veda": "The union, after the observation law: "All lines are impermanent" for the union, after the realistic law; "All works are bitter" for the union, after the observation law; "All law is without me" for the union, After the view law; "to the reason of the lack of the line" as a union, after the observation law; "by the reason of behavior and knowledge" for the union, after the reality law; with recognition and famous... (middle) to name and there are six... Six for the fate of the touch... by the touch... for the sake of having thirst for love... for the sake of thirst for the sake of having the fate of having a life... "to life, old and dead." After the union, the view law; "to the destruction of the unknown" for the union, after the observation law; "to extinct and extinguish" for the union, after the reality law; with the name of extinction... to name and extinct six... to six extinction touch Destroy... by touchdown... by extinction and thirst... with thirst for love... to exterminate and extinguish... with extinction... "Deadied in life and old" as a union, after the act of reality; 'This is bittern' For the rendeeming, outlook law; "This is bitter set"... "This is the bitterness"... "This is the path of bitterness" for the rendeeming, reality law; "These are troubles" for the union, after the observation law; "This is the set of troubles"... ... "This is the annoyance"... "This is the guide to annoyance of the trail" for the union, after the realistic law; "These laws should be known" for the union, the reality law; "These laws should be widely known"... 'These laws should be "These laws should be practiced"... "These laws should be practiced"... "These laws should be testified" for the union, after the realistic law; "six touches of the collection, extinction, fun, overhaul, exodus, exodus" for the union, reality law; "five take "The collection, extinction, fun, too sick, out" for the rendezvous, realistic method; "four kinds of up, extinct, fun, overkill, too sick, out"After the union, the view law; "Any set law is extinguished law" for the union, after the realistic law." For the wise to Vedic will be legal after.
- "He does not go high and low": "He does not go from the master to the master; not from the narration of law to the narration of law; does not go from the masses to the masses; does not come from sight to the road; not from the road to the path; not from the road to the road . "The Wide-Wise", who is the Great, the Bohui, the Jetwise, the Fast, the Wiser, the Wiser, the Insight, the Earth is known as the Wide, and he has the same vast expansionist as that earth. For the Guang Hui does not go high and low.
- Because then, Worldman said:
- "After a man himself has been forbidden, he is wanted to adhere to him to go high and low,
- After the wise veda will be legal, the Guang Hui does not go high and low."
- 28. He is a person from the Legion in all laws: whatsoever has seen or heard it,
- Who can classify [him] in this world, the man who sees this, an open man?
- "He is departing from the Legion in all laws: whatsoever seen or heard of it": "Legion is called the devil, devil acts demon; malevolent acts devil; evil acts devil; greed for the devil; Army; anger for the demon; resentment for the demon... (middle) all bad as an army.
- This was said by Worldman [Sn.3.2, 438-441]
- "To be your first legion, disjoy is called the second,
- Hunger and thirst are your third, thirst love is called fourth.
- Sleep is your fifth, fear is said to be sixth,
- Doubt is your seventh, and hiding is your eighth.
- Profits fame respectfully, with whoever wrong gets fame,
- Whoever will praise themselves, disdain others.
- Demon! This is your Legion, the evil (black) attacker,
- The man who has no courage does not defeat him, after victory will be able to gain peace."
- When all Demon and all hostile pollution are conquered, defeated, destroyed, destroyed, and turned his face, he is called the Legion. He is the one who departed from the Legion in sight; from the Legion in what he has heard; he is departed from the Legion in what he knows. For He is from the Legion in all law: whosoever has seen or heard it.
- "The man who saw such an open,": "The seeker of such a pure, the clear sight, the clearer, the clear, the sight of the clear, or the pure sight, or the pure sight, The clean saw, all the clearer saw, and the clear saw, all the clear. "Opened", there is a cover of thirsty love, the cover of see, the cover of pollution, the cover of evil acts, the cover of the unknown, which has been opened, destroyed, unlocked, completely unlocked, cut off , has been cut off, has been calmed down, has stopped, can not be born, has been burned by wisdom fire. Walkers, walkers, walkers, dwellers, derers, revolvers, guardians, make the survivor, make the survivor. For the person who saw this, the open man.
- "Who can classify [him] in this world": "Classification", there are two categories: [because] the classification of love and [because] see the classification... (middle) This is the classification of thirsty love... (middle) This is the classification of see . For him the classification of thirsty love has been cut off, see the classification has been dismissed, the state of the disconnected state of the classification of thirsty, see the classification of the dismissed state, by what kind of greedy classification, by what can be classified, to What kind of stupid can classify, what slow can classify, what can be classified, what can be classified by what doubts can be classified, what annoyance potential trend can classify [he], become a "dye", or "evil person Or 'foolish' or 'bond' or 'bond' or 'door', or 'coming to the dissipate', or 'coming to the unconsented', or 'coming to the forced'? Those deeds have been cut off, the state of which they have been cut off is divided by what can classify the interests of being "Fallen Hell," or "Fallen Beast," or "Devil Hunger", or "Man", or "Heaven", or A colourless person, or a "colorless" or "thinker", or "unwittless", or "neither thinkable nor unwittless"? He has no reason, no fate, and no factor to classify, to distinguish, and to come. "In the world, in the world of bitterness, in the world of mankind, in the world of heaven, in the world of the world, the world of worlds, and in the world. For who can classify [him] in this world.
- Because then, Worldman said:
- "He is from the Legion in all laws: whosoever has seen or heard,
- Who can classify [him] in this world, the man who sees this, an open man?"
- 29. they do not construct, no attention, heThey do not say "it is pure",
- After leaving the bondage of execution, they do not wish anywhere in the world.
- "They do not build, do not value": "Construct", there are two types of constructions: [because] love constructs and [because] see constructs... (middle) This is the construction of thirsty love... (middle) This is the construction of see. "For them the construction of love has been cut off, the construction of see has been dismissed, to the longest of the construction of the broken state, the construction of see the state of dismissed, the longing construction or the construction of the see they do not Construct, do not produce it, not produce it, do not give birth, do not give birth to it. ' Not built for them. "No attention (no preference)", "attention", there are two kinds of importance: [because] the importance of love and [because] see... (middle) This is the importance of thirsty love... (middle) This is the importance of seeing. For them the attention of thirst love has been cut off, the attention of seeing has been dismissed, the state of the attention of thirsty love has been cut off, see the attention of the state of dismissed, they put (do) without thirst love or invisible in front ( After the line, no thirst for love as a flag, no thirst love for building, no thirst love is increased, no sight as the flag, invisible as the building, no sight is increased, do not be thirsty love or see follow." For them do not build, no attention.
- "They do not say "it is pure": "It is pure, reincarnation pure without homework, constant theory, they do not say, do not talk, do not talk, do not say, do not say, do not say, do not say, do not say." For them do not say "it is pure".
- "After leaving the binding of execution": ""Bindings", there are four types of bindings: greedy tie, malicious binding, forbidden tie, [only] this is the true execution of the binding [SN. 45.175]. Own seeing greed is a tie of greed, anger and dissatisfaction in others is a malicious tie, "take their own restraint or forbidden or forbidden" for the bind of forbidden, their own see [the execution of the body Bind (Ni.13,147)] is [only] This is the true execution of the binding. For what reason is called an execution binding? To those bindings, color they grab, take, hold, take, hold, persist, by... (medium) want... line... know... fun... incarnation... born... there (exist)... rotation of them Grab, take, hold, take, hold, persist, for this reason is called execution binding. "After discarding", after abandoning on the binding, or on the binding, on the binding, on the binding, on the bondage, on the enlarged bondage, on the entangled, on the attached, on the attached, on the On the obstacle, after being shocked on the bundle (?) After the release, such as a sedan, or carriage, or wagon, or chariot should be transported [people, objects] released (discarded) after they placed, destroyed, the same, after abandoning on the binding, or in the binding On the bondage, on the bondage, in the bondage, on the enlarged bondage, on the entangled, on the attached, on the one that was fixed, on the one that was obstructed, and after being shocked on the binding. After the bindings to be discarded.
- "They do not wish wherever they are in the world": "Wish is called thirsty love, that is greed, lust... (medium) greed, greed, bad roots. "Do not wish," the wish that they will not do, not produce it, not produce it, not to give birth, not to give birth. "No matter where, no matter where, wherever, inside or outside, inside or outside. "In the world," in the worlds of bitter worlds... Do not wish for them wherever they are in the world.
- Because then, Worldman said:
- "They don't build, do not value, they don't say 'it's pure. '
- After leaving the bondage of execution, they do not wish wherever they are in the world."
- 30. Brahmen, who have traveled through the boundaries, know, and after seeing, are not clenched to him,
- There is no supreme hold for the greedy, the corrupt, and the corrupt who is not greedy.
- "Brahmen who have walked the boundaries, knowing and seeing after he is not clenched": "Boundary", there are four kinds of boundaries: there are four kinds of boundaries: presence, suspicion, forbidden, see the potential trend of troubles, With its existing pollution, this is the first kind of boundary, coarse want to corrupt, bad knot, rough desire to annoy potential trend, potential trend of evil troubles, with its existence of pollution, this is the second line, residual desire Corrupt, bad knot, residual greedy annoyance potential trend, potential trend of vicious annoyance, and its persistence of pollution, this is the third line, colourless greedy, slow,、Unknown, slow annoyance potential trend, potential trend of greedy annoyance, potential trend of unclear annoyance, and its persistence of pollution, this is the fourth line. When these four boundaries are crossed, crossed, and overcome by the four sacred paths, it is known as having crossed the boundaries. "Brahmen", seven laws have been excluded state for Brahmen: a person is excluded, suspected to be excluded, forbidden is excluded... (middle) does not stop, like this can be called he is Brahmen. "To him", for Arrohan; for those who have troubled.
- "After Knowing", after his mind knows, or after the wisdom of the memories of the former living place. "After Seeing", after seeing it by the naked eye, or in heaven. "Brahmen, who have walked the boundaries, know and after seeing, are not clenched to him": "For him, 'This is the highest, the first, the most winning, the superior, the top, the top, the top. . ' Being held, taken, taken, taken, believed that he was not, did not exist, not known, not found, disconnected, severed, calmed down, stopped, unable to be born, burned by wisdom fire. For Brahmen, who have walked through the boundaries, he is not clenched to him after knowing and seeing.
- "Non-greedy, non-greedy, non-greedy corrupt": The greedy is referred to as any greedy in five kinds of desire, coed, tied, obsessed, infected, attached, entrenched, obstructed, obstructed. The greedy is known as greedy in color, colorless, and so on, greedy, tied, obsessed, stained, attached, entrenched, obstructed, obstructed. "Non-greedy, non-greedy, non-greedy corrupt", since greedy and colourless greed have been cut off, the root has been cut off, like a rooted palm tree, become a non-living thing for the future, this situation is non-greedy Of the corrupt, the corrupt, not the corrupt.
- "For him there is no supreme hold here": "'For him, 'for Arrohan; for those who have been exhausted. For him, "This is the highest, the first, the most victorious, the top, the top, the highest, the top." Being held, taken, taken, taken, believed that he was not, did not exist, not known, not found, disconnected, severed, calmed down, stopped, unable to be born, burned by wisdom fire. For him here is not the highest to be held.
- Because then, Worldman said:
- "Brahman, who has walked through the boundaries, knowing that he was not clenched to him after and after seeing,
- There is no supreme hold for him who is not greedy, and the corrupt who is not greedy.
- The description of the pure eight sets of sutra fourth [completed].
+
+Secondly, the description of pure eight sets of Scriptures will say:
+
+23. I see purity: the highest unsick, to see and someone's complete purity,
+
+When so testified, he knew that "it is the highest", "he is a purity" he
+returned to wisdom.
+
+"I see purity: the highest disease-free": "I see purity, I see purity, I see
+purity, I see purity, I look at purity, I observe purity. "The highest unsick",
+the highest, the unsick, arriving at the shelter, arriving at the shelter,
+arriving at the place of return, arriving without fear, reaching the undead,
+reaching the Nibbana." For me to see purity: the highest unsick.
+
+"To see and someone's complete purity": "Seeing color (Sri Lanka version) and
+someone's pure, clean, all pure; disengagement, relief, disengagement, all over,
+people become pure, become pure, become pure ; detached, freed, dissolved." For
+the sake of seeing the complete purity of someone.
+
+"When such testimony he knew that it was the highest": "When so testified,
+known, farewell, certain and persuasive. "This is the highest, the first, the
+most victorious, the top, the top, the highest, the top." He knows after, after
+understanding, after measuring, judging, after each, and after figuring out. For
+when so testified he knew "it is the highest" after.
+
+"'He is a purity of the following' He returns to wisdom": "Whosoever sees pure,
+he is the person who follows the pure "He returns to wisdom," he sees the color,
+he returns to "wisdom"; back to the path; back to the road; back to "out." For
+"He is a purity" he returns to wisdom.
+
+Because then, Worldman said:
+
+"I see the pure: the highest unsick, to see and the complete purity of someone,
+
+When he testified that he knew 'it was the supreme, 'he was a purity after he
+returned to wisdom.
+
+24. if a man is pure by seeing, or if he breaks down with wisdom,
+
+Then there is a follower who has become pure by other things. See that he is
+indeed speaking like that.
+
+"If someone is pure by seeing": "Seeing color with eyes if someone is pure,
+clean, all pure; disengagement, release, all out, people become pure, become
+pure, become pure, become pure; be separated, Unlevered, dissolved." For if to
+see and someone's purity.
+
+"Or he shall break with wisdom": "Seeing color with vision if a man breaks off
+suffering, the old suffering, the sickness, and the suffering of death, and the
+loss of sorrow, grief, sorrow, and despair." For or for him to give up his
+suffering.
+
+"And those who follow the rest become pure": "By the other, in the way of
+impurities, by the signs of evil, and the way out of the way, except for the
+remembrance, except for the people, except for the gods, except for the gods,
+except for the roots In addition, except with all powers, except for the sake of
+the people, except for the eight sacred paths, man became pure, purified, and
+all pure; was separated, freed, and separated from all over. "There are
+followers" for the greedy, the wretched, the sluggish, the slow, the thirst, the
+[evil] see, the polluted, and the perpetrators. So there is a follower to become
+pure with others.
+
+"It is to be said that he is indeed speaking like that": "The man who says: Like
+this, this man is a wickerer, upside down. "It is a speaker like this' is a
+speaker, narrator, narrator, narrator, speaker, speaker: 'The world is
+everlasting, this is true, and the rest is empty. ' It is the speaker, narrator,
+talker, narrator, speaker; "The world is very constant... The world is
+borderless... Life is the body... Life is a body is Another... after death...
+after death, as lai does not exist... after death as lai exists and does not
+exist... after death is neither there nor non-existent, this is true, the others
+are empty." It is such a speaker, narrator, talker, narrator, speaker. For the
+sake of seeing that he is indeed speaking like that.
+
+Because then, Worldman said:
+
+"If a man is pure by seeing, or if he breaks down with wisdom,
+
+Then there is a follower who has become pure by other things, and see that he is
+indeed speaking like that."
+
+25. Brahmen is not pure from other words, in what he has seen, heard, quit and
+    forbidden or perceived,
+
+Be not polluted in ford and evil: those who have forsaken them, and they are not
+here to be made.
+
+"Brahmen is not pure from other words, in what he saw, heard, forbidden or
+perceived": "No" is no. "Brahmen", the seven laws of the excluded state is
+Brahmen: has been excluded, suspected to be excluded, forbiddenExcluded, greedy
+excluded, excluded, obsession excluded, slow to be excluded, those evil bad laws
+are excluded: Shun pollution, then there, fear, bitter fruit, the future will
+live and die.
+
+[Worldworld] [Sn.3.6, 524]
+
+After excluding all evil, the state of residence of the good entrant from the
+scale,
+
+He transcends his reincarnation and becomes the fullness, and something like
+this can be called Brahmen.
+
+"And Brahmen did not say pure from other things," "By the other, in the way of
+impurities, and by the way of evil, except for the remembrance, except for the
+righteousness of the gods, except for the roots; In addition to the power of
+all, except for the cherished, in addition to the eight sacred paths there are
+purity, purification, and all purity; detachments, liberation, all out, Brahmen
+do not say, do not talk, do not talk, do not say, do not say, do not say, For
+Brahmen does not say purity from the other.
+
+"On what they saw, heard, quit and forbidden or perceived," some Samana and
+Brahmen saw as pure. They believe that the sight of certain forms is auspicious,
+and that certain kinds of seeing is unauspicious. of. What kinds of views do
+they believe are auspicious? In the early morning (after coming out of the
+black), they saw the auspicious shape of the sparrow bird, the ornate little
+tree of Verua, a woman pregnant, the man who made a boy to go behind his
+shoulders, and saw the full And the urn saw the salmon, and saw the horse, and
+the horse carriage, saw the bulls, and the cattle, and they believed that the
+sight of such a kind was auspicious. What kinds of views do they believe are
+unauspicious? See straw stacks, ghee urn, see empty urn, see dancers, see naked
+false sand door, see donkey horse, see donkey carriage ride, see monocular, see
+monocular deformities, see the lame And those who saw a half-body, saw the old
+man, and saw the sick; they believed that it was unauspicious to see like that.
+These are those Samana, Brahmen who see as pure, they believe in seeing as pure,
+pure, pure; disengagement, relief, disengagement.
+
+Some Samana and Brahmen are pure, they believe in hearing certain voices
+auspicious, they believe that the hearing of certain voices is unauspicious.
+What sounds do they believe to be auspicious to hear? In the early morning
+(after coming out of the black), they heard the auspicious voice: "Boost (rich)
+[word]", or "precious", or "full", or "gorgeous", or "worry-free", or "good
+will", or "good star" Or "good luck," or "lucky," or "lucky increase," they
+believe that sound like this is auspicious. What voices do they believe to be
+unlucky to hear? "Single eye [word]" or "hand deformities", or "lame", or
+"half-failed", or "elderly", or "patient", or "dead", or "cut off", or
+"bursting", or "burning" , or "disappear," or "no," they believe that sounds
+like this sound is unauspicious. These are those Samana, Brahmen who smell as
+pure, they believe in being pure, clean, all pure; disengagement, relief,
+disengagement.
+
+Some Samana, Brahmen to ring as pure, they believe in the degree of [self]
+suppression, to the degree of self-restraint, to the degree of self-control, to
+the degree of pure, clean, all pure; detach, relief, all over Disengagement. The
+son of Shamun Mudi said so: Owner! Which four are the men who have the four ways
+of good, the supreme of good, and the recipient of the supreme, and Samana,
+which cannot prevail? Home Owner! Here, he does not act as an evil industry,
+does not speak evil words, does not wicked intentions, does not live with evil,
+the owner! We have the men who have these four laws are the ample of good, the
+supreme of good, the recipient of the supreme, the attraction of the supreme,
+and the Samon, who cannot prevail. Similarly, some Samana and Brahmen take the
+ring as pure, they believe in the degree of withdrawal, to the degree of [self]
+suppression, to the degree of self-restraint, to the degree of inviolability, to
+the degree of purity, purification, Release, disengagement.
+
+Some of Samana and Brahmen are purely forbidden. They are elephants forbidden,
+or horses forbidden, or cattle forbidden, or dog keeper, or crow forbidden, or
+the forbidden of the Mosenus. Or a forbidden man, or a forbidden man, or a
+forbidden man, or a fire forbidden, dragon forbidden, or Goldwingbird forbidden,
+or Vigil forbidden, or Asurah The forbidden, or the forbidden, or abide by the
+king's forbidden, or the lunar forbidden, or the day forbidden, or abide by
+Indra forbiddenor the forbidden, or the forbidden of heaven, or those who keep
+the forbidden, these are those who are Samana and Brahmen who have forbidden as
+pure, and they believe in forbidden as pure, clean, and all pure; to break away,
+Release, disengagement.
+
+Some Samana, Brahmen to feel pure, they touch the earth in the early morning,
+touch grass, touch cow dung, touch turtle, touch hoe, touch sesame carrier, chew
+Kigar's sesame seeds, chewing Kigar oil, chewing Kigar Tooth wood、Bathing with
+Kigaha soil、Wear Kigaha's clothes、Wrap Kigo's These are those Samana, Brahmen
+who feel pure, they believe in what they feel as pure, clean, all pure;
+disengagement, relief, disengagement. [This is] Brahman does not say pure from
+the other.
+
+"In what it is seen, heard, quit and forbidden or perceived", Brahmen does not
+say pure in sight; not to smell pure; not to quit purity; not to suppress
+purity; not to perceive purity Purity; do not tell, do not talk, do not explain,
+do not speak." For Brahmen is not pure from other words, in what he has seen,
+heard, quit and forbidden or perceived.
+
+"Not polluted in ford and evil": "Ford is called any good deeds of any three
+circles, and non-ford is called all bad. Due to the fact that the Fuxing and
+non-performing and inaction are cut off, the root has been cut off, like a palm
+tree without roots, become a non-living thing for the future, this situation is
+in Fu and evil he is not contaminated, not strong polluted, not close
+Contamination (not polluting), no pollution, no strong pollution, has not been
+closely contaminated. He has departed, departed, liberated, and has been bound,
+and he dwelt away from the restrained heart. To be unpolluted in Ford and evil.
+
+"Forsaken those who have taken, and are not made here": "The forsaken taking"
+forsaken me see; "Forsaken take" for those who have forsaken their obsession;
+"Forsaken and take" for the holding of love and seeing, the perseverance, and
+the He forsaketh all that took, and his faith was forsaken, spit out, released,
+and dismissed, and dismissed. "Those who do not make here", those who do not
+make them, those who do not make them born, those who are not born, those who
+are not born, those who are not born, are not born. To abandon the ones that are
+taken, they are not made here.
+
+Because then, Worldman said:
+
+"Brahman is not pure from what else says, in what he has seen, heard, and
+forbidden, or perceived,
+
+Be not polluted in ford and evil: those who have forsaken and take, are not made
+here."
+
+26. cut off before and after become the subsequent stop, disturbed followers
+    they do not spend dyed,
+
+They pick up, lay down, like a monkey grabs the branches and let go.
+
+"After disclosing before the end becomes the subsequent stopper": "after
+disconnecting the master before become the rest of the other master; after
+disclosing the previous law, after disclosing the previous law, become the
+recounder of other laws; after disconnecting the masses before become The rest
+of the other masses; and after the behindings before they become the rest of the
+other; and after they break off the trajectories before them become the rest of
+the others, and the rest of the other road, The sticker, the entrant, the dye,
+the person who puts the heart toward (triumph)." To be followed by after the
+break.
+
+"Disturbed followers, they do not spend dyed": "Disturbation is called thirsty
+love, that is greed, lust (total greed)... (medium) greed, greed, bad roots.
+"Disturbed followers", perturbed followers, perturbed followers, trailers of
+disturbance, removed, knocked down, conqueror, heart trailers. "They do not
+spend dyed," the greedy dyed, the dyed of the skewness, the slow dyed, the
+stained of the stain, the stained of the polluted, and the evil doings stained
+them do not pass, do not pass through, do not pass, do not pass, not overcome. "
+For disturbed followers they do not spend dyed.
+
+"They pick up, lay down": "They grabbed (pick up) the master, let go after the
+other master; catch the law tells, let go of the other law; catch the crowd, let
+go after the catch The other masses; seize see, let go after the other see; Grab
+the signs, drop that after grabbing the other tracks; grabbing the road, drop
+that after grabbing the other road, they grabbed and let go; take and put off."
+Pick up and put them off.
+
+"If the monkey grabs the branches and let go": "If the monkey roaming in the
+forest, the forest grabs the branch, and then put it off and another branch
+[SN.12.61], the same, most of the salmon, Brahmen grabbed and let go; take and
+give off the evil opinion of the majority." For like a monkey grab the shoots
+and let go.
+
+Because then, Worldman said:
+
+"The rest of the beforehand shall be followed by the followers of the
+disturbance, and they do not spend the dyeing,
+
+They pick up, put off, such asThe monkey grabs the branches and let go.
+
+27. After the person himself is prohibited, he is trying to adhere to him to the
+    high and low,
+
+The Wise will be legal after the Vedas, the Guang Hui does not go high and low.
+
+"After a person is forbidden to hold himself": ""Self-hold" is self-sustaining.
+"Forbidden" is like a prohibition, or horse prohibition, or cattle, or dog ban,
+or crow ban, or forbidden by the God of Bishenou, or forbidden power, or Manxian
+forbidden, or Chu Yin prohibition, or fire ban, or dragon ban, or gold Wingbird
+forbidden, or Yashora ban, or Ashur ban... (medium), or orientation ban, after
+he was taken, after holding, after taking, after taking, after taking, after
+taking, after taking, after taking, after the execution, after the practice.
+"Man", "Beings, human beings... (Central) of Moru." After being forbidden for
+the person himself.
+
+"Those who want to stick him to high and low": "He walks from the master to the
+master; from the narrative of the law to the narrative of the law; from the
+masses to the masses; from seeing to seeing; from the road to the road; from the
+road to the road. "Want to be adhered", thought, maliciously thought, harmful
+thought, see want to adhere, entangled, bound, attached, attached, obstructed,
+such as objects on a wall pile, or on a wall nail adhesion, entangled, bound,
+attached, fastened, Obstacles. Similarly, to be thought, malice thought, harmful
+thought, see want to stick, entangled, bound, attached, fixed, obstructed." To
+be able to stick him to go high and low.
+
+"After the Wise will be lawful in the Vedas": The Wise is the wise, the man who
+has reached the wise, the wise, the wise, the wise. "Vedas", Vedas are called in
+four ways of wisdom, wisdom, Wagan, witty, choice, study, Bisherna, positive
+view. To those who have lived and died in Vedas have reached the end (target);
+who has reached the ultimate, has reached the end point, has reached the border
+(exactly); those who have reached the border, has reached the end; has reached
+the end (b) Persons who have arrived at the shelter; those who have arrived at
+the shelter; those who have arrived at the refuge, have arrived at the place of
+return, have arrived at the place of return, to the person without terror; he
+has reached the person without terror, no dead; Has arrived the undead, has
+arrived the undead; has arrived the undead, to the Nibbana; has reached the
+Nibbana. Or "the ultimate in the veda" is a vedic, or "to the ultimate of the
+veda" as the veda is known, or the seven laws of the know state of Vedas are
+known, suspected to be known, forbidden Knowing, greedy is known, known,
+obsessed, and slowly known, its evil law is known: the polluted, then there,
+fear, bitter fruit, the future will live and die.
+
+[Worldworld] [Sn.3.6, 534]
+
+"Choose all the vedas, whosoever belongs to Samana and Brahman, which exists
+here,
+
+He is a vedic who knows everything from greed, beyond all Vedas."
+
+"After the wise man will be legal by veda": "The union, after the observation
+law: "All lines are impermanent" for the union, after the realistic law; "All
+works are bitter" for the union, after the observation law; "All law is without
+me" for the union, After the view law; "to the reason of the lack of the line"
+as a union, after the observation law; "by the reason of behavior and knowledge"
+for the union, after the reality law; with recognition and famous... (middle) to
+name and there are six... Six for the fate of the touch... by the touch... for
+the sake of having thirst for love... for the sake of thirst for the sake of
+having the fate of having a life... "to life, old and dead." After the union,
+the view law; "to the destruction of the unknown" for the union, after the
+observation law; "to extinct and extinguish" for the union, after the reality
+law; with the name of extinction... to name and extinct six... to six extinction
+touch Destroy... by touchdown... by extinction and thirst... with thirst for
+love... to exterminate and extinguish... with extinction... "Deadied in life and
+old" as a union, after the act of reality; 'This is bittern' For the rendeeming,
+outlook law; "This is bitter set"... "This is the bitterness"... "This is the
+path of bitterness" for the rendeeming, reality law; "These are troubles" for
+the union, after the observation law; "This is the set of troubles"... ... "This
+is the annoyance"... "This is the guide to annoyance of the trail" for the
+union, after the realistic law; "These laws should be known" for the union, the
+reality law; "These laws should be widely known"... 'These laws should be "These
+laws should be practiced"... "These laws should be practiced"... "These laws
+should be testified" for the union, after the realistic law; "six touches of the
+collection, extinction, fun, overhaul, exodus, exodus" for the union, reality
+law; "five take "The collection, extinction, fun, too sick, out" for the
+rendezvous, realistic method; "four kinds of up, extinct, fun, overkill, too
+sick, out"After the union, the view law; "Any set law is extinguished law" for
+the union, after the realistic law." For the wise to Vedic will be legal after.
+
+"He does not go high and low": "He does not go from the master to the master;
+not from the narration of law to the narration of law; does not go from the
+masses to the masses; does not come from sight to the road; not from the road to
+the path; not from the road to the road . "The Wide-Wise", who is the Great, the
+Bohui, the Jetwise, the Fast, the Wiser, the Wiser, the Insight, the Earth is
+known as the Wide, and he has the same vast expansionist as that earth. For the
+Guang Hui does not go high and low.
+
+Because then, Worldman said:
+
+"After a man himself has been forbidden, he is wanted to adhere to him to go
+high and low,
+
+After the wise veda will be legal, the Guang Hui does not go high and low."
+
+28. He is a person from the Legion in all laws: whatsoever has seen or heard it,
+
+Who can classify [him] in this world, the man who sees this, an open man?
+
+"He is departing from the Legion in all laws: whatsoever seen or heard of it":
+"Legion is called the devil, devil acts demon; malevolent acts devil; evil acts
+devil; greed for the devil; Army; anger for the demon; resentment for the
+demon... (middle) all bad as an army.
+
+This was said by Worldman [Sn.3.2, 438-441]
+
+"To be your first legion, disjoy is called the second,
+
+Hunger and thirst are your third, thirst love is called fourth.
+
+Sleep is your fifth, fear is said to be sixth,
+
+Doubt is your seventh, and hiding is your eighth.
+
+Profits fame respectfully, with whoever wrong gets fame,
+
+Whoever will praise themselves, disdain others.
+
+Demon! This is your Legion, the evil (black) attacker,
+
+The man who has no courage does not defeat him, after victory will be able to
+gain peace."
+
+When all Demon and all hostile pollution are conquered, defeated, destroyed,
+destroyed, and turned his face, he is called the Legion. He is the one who
+departed from the Legion in sight; from the Legion in what he has heard; he is
+departed from the Legion in what he knows. For He is from the Legion in all law:
+whosoever has seen or heard it.
+
+"The man who saw such an open,": "The seeker of such a pure, the clear sight,
+the clearer, the clear, the sight of the clear, or the pure sight, or the pure
+sight, The clean saw, all the clearer saw, and the clear saw, all the clear.
+"Opened", there is a cover of thirsty love, the cover of see, the cover of
+pollution, the cover of evil acts, the cover of the unknown, which has been
+opened, destroyed, unlocked, completely unlocked, cut off , has been cut off,
+has been calmed down, has stopped, can not be born, has been burned by wisdom
+fire. Walkers, walkers, walkers, dwellers, derers, revolvers, guardians, make
+the survivor, make the survivor. For the person who saw this, the open man.
+
+"Who can classify [him] in this world": "Classification", there are two
+categories: [because] the classification of love and [because] see the
+classification... (middle) This is the classification of thirsty love...
+(middle) This is the classification of see . For him the classification of
+thirsty love has been cut off, see the classification has been dismissed, the
+state of the disconnected state of the classification of thirsty, see the
+classification of the dismissed state, by what kind of greedy classification, by
+what can be classified, to What kind of stupid can classify, what slow can
+classify, what can be classified, what can be classified by what doubts can be
+classified, what annoyance potential trend can classify [he], become a "dye", or
+"evil person Or 'foolish' or 'bond' or 'bond' or 'door', or 'coming to the
+dissipate', or 'coming to the unconsented', or 'coming to the forced'? Those
+deeds have been cut off, the state of which they have been cut off is divided by
+what can classify the interests of being "Fallen Hell," or "Fallen Beast," or
+"Devil Hunger", or "Man", or "Heaven", or A colourless person, or a "colorless"
+or "thinker", or "unwittless", or "neither thinkable nor unwittless"? He has no
+reason, no fate, and no factor to classify, to distinguish, and to come. "In the
+world, in the world of bitterness, in the world of mankind, in the world of
+heaven, in the world of the world, the world of worlds, and in the world. For
+who can classify [him] in this world.
+
+Because then, Worldman said:
+
+"He is from the Legion in all laws: whosoever has seen or heard,
+
+Who can classify [him] in this world, the man who sees this, an open man?"
+
+29. they do not construct, no attention, heThey do not say "it is pure",
+
+After leaving the bondage of execution, they do not wish anywhere in the world.
+
+"They do not build, do not value": "Construct", there are two types of
+constructions: [because] love constructs and [because] see constructs...
+(middle) This is the construction of thirsty love... (middle) This is the
+construction of see. "For them the construction of love has been cut off, the
+construction of see has been dismissed, to the longest of the construction of
+the broken state, the construction of see the state of dismissed, the longing
+construction or the construction of the see they do not Construct, do not
+produce it, not produce it, do not give birth, do not give birth to it. ' Not
+built for them. "No attention (no preference)", "attention", there are two kinds
+of importance: [because] the importance of love and [because] see... (middle)
+This is the importance of thirsty love... (middle) This is the importance of
+seeing. For them the attention of thirst love has been cut off, the attention of
+seeing has been dismissed, the state of the attention of thirsty love has been
+cut off, see the attention of the state of dismissed, they put (do) without
+thirst love or invisible in front ( After the line, no thirst for love as a
+flag, no thirst love for building, no thirst love is increased, no sight as the
+flag, invisible as the building, no sight is increased, do not be thirsty love
+or see follow." For them do not build, no attention.
+
+"They do not say "it is pure": "It is pure, reincarnation pure without homework,
+constant theory, they do not say, do not talk, do not talk, do not say, do not
+say, do not say, do not say, do not say." For them do not say "it is pure".
+
+"After leaving the binding of execution": ""Bindings", there are four types of
+bindings: greedy tie, malicious binding, forbidden tie, [only] this is the true
+execution of the binding [SN. 45.175]. Own seeing greed is a tie of greed, anger
+and dissatisfaction in others is a malicious tie, "take their own restraint or
+forbidden or forbidden" for the bind of forbidden, their own see [the execution
+of the body Bind (Ni.13,147)] is [only] This is the true execution of the
+binding. For what reason is called an execution binding? To those bindings,
+color they grab, take, hold, take, hold, persist, by... (medium) want... line...
+know... fun... incarnation... born... there (exist)... rotation of them Grab,
+take, hold, take, hold, persist, for this reason is called execution binding.
+"After discarding", after abandoning on the binding, or on the binding, on the
+binding, on the binding, on the bondage, on the enlarged bondage, on the
+entangled, on the attached, on the attached, on the On the obstacle, after being
+shocked on the bundle (?) After the release, such as a sedan, or carriage, or
+wagon, or chariot should be transported [people, objects] released (discarded)
+after they placed, destroyed, the same, after abandoning on the binding, or in
+the binding On the bondage, on the bondage, in the bondage, on the enlarged
+bondage, on the entangled, on the attached, on the one that was fixed, on the
+one that was obstructed, and after being shocked on the binding. After the
+bindings to be discarded.
+
+"They do not wish wherever they are in the world": "Wish is called thirsty love,
+that is greed, lust... (medium) greed, greed, bad roots. "Do not wish," the wish
+that they will not do, not produce it, not produce it, not to give birth, not to
+give birth. "No matter where, no matter where, wherever, inside or outside,
+inside or outside. "In the world," in the worlds of bitter worlds... Do not wish
+for them wherever they are in the world.
+
+Because then, Worldman said:
+
+"They don't build, do not value, they don't say 'it's pure. '
+
+After leaving the bondage of execution, they do not wish wherever they are in
+the world."
+
+30. Brahmen, who have traveled through the boundaries, know, and after seeing,
+    are not clenched to him,
+
+There is no supreme hold for the greedy, the corrupt, and the corrupt who is not
+greedy.
+
+"Brahmen who have walked the boundaries, knowing and seeing after he is not
+clenched": "Boundary", there are four kinds of boundaries: there are four kinds
+of boundaries: presence, suspicion, forbidden, see the potential trend of
+troubles, With its existing pollution, this is the first kind of boundary,
+coarse want to corrupt, bad knot, rough desire to annoy potential trend,
+potential trend of evil troubles, with its existence of pollution, this is the
+second line, residual desire Corrupt, bad knot, residual greedy annoyance
+potential trend, potential trend of vicious annoyance, and its persistence of
+pollution, this is the third line, colourless greedy, slow,、Unknown, slow
+annoyance potential trend, potential trend of greedy annoyance, potential trend
+of unclear annoyance, and its persistence of pollution, this is the fourth line.
+When these four boundaries are crossed, crossed, and overcome by the four sacred
+paths, it is known as having crossed the boundaries. "Brahmen", seven laws have
+been excluded state for Brahmen: a person is excluded, suspected to be excluded,
+forbidden is excluded... (middle) does not stop, like this can be called he is
+Brahmen. "To him", for Arrohan; for those who have troubled.
+
+"After Knowing", after his mind knows, or after the wisdom of the memories of
+the former living place. "After Seeing", after seeing it by the naked eye, or in
+heaven. "Brahmen, who have walked the boundaries, know and after seeing, are not
+clenched to him": "For him, 'This is the highest, the first, the most winning,
+the superior, the top, the top, the top. . ' Being held, taken, taken, taken,
+believed that he was not, did not exist, not known, not found, disconnected,
+severed, calmed down, stopped, unable to be born, burned by wisdom fire. For
+Brahmen, who have walked through the boundaries, he is not clenched to him after
+knowing and seeing.
+
+"Non-greedy, non-greedy, non-greedy corrupt": The greedy is referred to as any
+greedy in five kinds of desire, coed, tied, obsessed, infected, attached,
+entrenched, obstructed, obstructed. The greedy is known as greedy in color,
+colorless, and so on, greedy, tied, obsessed, stained, attached, entrenched,
+obstructed, obstructed. "Non-greedy, non-greedy, non-greedy corrupt", since
+greedy and colourless greed have been cut off, the root has been cut off, like a
+rooted palm tree, become a non-living thing for the future, this situation is
+non-greedy Of the corrupt, the corrupt, not the corrupt.
+
+"For him there is no supreme hold here": "'For him, 'for Arrohan; for those who
+have been exhausted. For him, "This is the highest, the first, the most
+victorious, the top, the top, the highest, the top." Being held, taken, taken,
+taken, believed that he was not, did not exist, not known, not found,
+disconnected, severed, calmed down, stopped, unable to be born, burned by wisdom
+fire. For him here is not the highest to be held.
+
+Because then, Worldman said:
+
+"Brahman, who has walked through the boundaries, knowing that he was not
+clenched to him after and after seeing,
+
+There is no supreme hold for him who is not greedy, and the corrupt who is not
+greedy.
+
+The description of the pure eight sets of sutra fourth [completed].
+
+
+
 
 
 Excerpt:
- 1. off the binding of execution (= not construction/no attention), they do not want anywhere in the world.
- 2. purity is not in the see/smelting/quit and prohibition/feel.
- 3. non-greedy (desire) corrupt, non-greedy (colourless) corrupt person does not have the highest hold.
- 4. Wish (āsā-hope/hope) is called thirsty love.
- 12/11/2020 06:10
+
+1. off the binding of execution (= not construction/no attention), they do not
+   want anywhere in the world.
+
+2. purity is not in the see/smelting/quit and prohibition/feel.
+
+3. non-greedy (desire) corrupt, non-greedy (colourless) corrupt person does not
+   have the highest hold.
+
+4. Wish (āsā-hope/hope) is called thirsty love.
+
+12/11/2020 06:10
+

@@ -1,380 +1,2101 @@
 16. Statement of the Shalifer
- Secondly, the statement of the Scripture of Sharif will say
- 190. [Like this, His Holiness Shariffer:] I had not seen it before, or no one had heard of it,
- The master of such a myth: the Lord who came from the heavens.
- "I did not see before that": "For me before, I did not see the Worldest with this [double] eye, this self: when Worldest lived in the yellow stone rainy season under the thirty-three day field of day-day trees , surrounded by a group of angels, down the staircase made of stones down the city, which was not seen before." For nothing I saw before that.
- "[His Holiness like this]": "Like this, the continuation of the sentence; the link of the sentence; the success of the sentence; the union of words; the connection of words; this is the second sentence, "like this." "His Holiness," this is a word of love, respect, obedience. "His Holiness." "Sherifer," the name of the seat, name, name, Anli, common name, name, name, title, word, phrase, name. For [His Holiness Sharif like this].
- "Or no one has heard of it": "No" is no. "Or", the continuation of the sentence; the link of the sentence; the success of the sentence; the combination of words; the connection of the sentence; this is the second sentence, "or". "Whoever," Chatereth, or Brahmen, or of the Bishets, or of the Sudala, or in his family, or out of his family, or of heaven, or man. For or not anyone's heard of.
- "Masters of such a wonderful word": ""'So good words, good words, beloved words, pleasant words, [such as] the beautiful voice of the bird roar wonderful voice. And the voice of the Worldman from his mouth is eight: the clear, the knowledge, the wonderful, and the gracious, concise, not messy, deep, and bright, by which Worldworld made the masses known, and the voice is not And besides the crowd, the voice of the worldly, like the sound of a beautiful bird. For such a wonderful word.
- "Master", "Worldmaster, the leader of the merchant, such as the leader of the merchant make life through the danger zone of thieves, make it through the danger zone of the beast, make it through the danger zone of famine, make it through the danger zone of famine No water hazard zone, he made it out, made it more and passed through, so that it reached the ultimate place of stability. Similarly, Worldworld is the leader of the merchant, making life through the danger zone: make it through the danger zone of life, make it through the old danger zone, the danger zone of disease... (medium) death danger zone... make it sad, sad, The danger zone of bitterness, worries, despair, make it through the danger zone of greedy, the danger zone... the danger zone... slow danger zone... see the danger zone... the dangerous zone of pollution... make it through the danger zone of evil acts, Make it through the greedy jungle, the jungle of the dense forest... the slow jungle... see the jungle... polluted jungle... make it through the jungle of evil deeds, he makes it out, transcend it, make it pass through, make it through. Reach stable, undead, Nibbana. This is Worldhotel as the leader of the merchant.
- Or, "Worldly is the guide, the revolt, the pacer, the prophet, the deliberate, the person who makes it see, and makes it clear." This is also Worldhotel as the leader of the merchant.
- Or, "Worldom is the founder of the unborn, the producer of the unborn, the preaching of the unborn; the knowledge of the way, the knowledge of the knowledge, and the knowledge of the way, and [his] disciples now live in the way. , and later for the possesses. This is also Worldhotel as the leader of the merchant." For such a masters of words.
- "The Lord of the Heaven": ""After the death of the worldly day, worldly entered the mother's womb with knowledge and knowledge." This is the Lord, who came from the heavens.
- Or, "The angels are called Satisfaction, and they are the contented, the satisfied, the delighted, the delighted, those who have given joy and joy, and the Lord who has come to heaven." This is also the Lord who came from the heavens. Or, 'The Alohan is called the satisfying, the righteous, the satisfied, the delighted, the delight, the full of intent, and his lord who came to the Alohan. ' This is also the Lord who came from the heavens. "Lord", Worldmaster is the Lord, "Teacher of the Group" is the Lord, "He takes care of the group" for the Lord, "He teaches the group" for the Lord, "He admonieth the group" for the Lord, "He admonds the group" for the Lord, "He admonds "Fearless to see the group" for the Lord, "the group wants to hear, ear, and know' for the Lord, "after the group appears bad, he establishes it in good" for the Lord, [he] is the crowd of the people of the Bichu (group) The Lord, the lord of the Bichunes, the Lord of the Eubos, the lord of all the kings, the lord of the Zadirei, the lord of the Brahmen,The Lord of the Bishops, the Lord of the Gundala, the Lord of the heavens, the lord of the panheavens, the lord of the monks and the teachers of the group. "Come", arrive, complete arrival, complete arrival (Thailand version) scattered city. For the Lord who came from the heavens.
- Because then, the last Shiliver said:
- "[Like this, His Holiness Sharif:] I have not seen before this, or no one has heard of it,
- The master of such a myth: the Lord who came from the heavens."
- 191. including the world of angels, if the eye sees,
- After dispel all darkness, get joy alone.
- "Including the world of angels": "Including the world of angels, the devil, including the Gods, including the generation of Samana and Brahmen, including the heavens, and men." For the world including the angels.
- "As those with eyes see": "When Worldmen sit under the day tree of thirty-three days teaching the yellow stone, man sees as the angels see; as humans see, the angels also see, if they are The angels see it also by mankind; as it is to be seen by the angels." This is as seen by the eye. Or, "Such as some Samana and His Holiness Brahmen are seen [to] have been transferred; the non-silent are seen [made] silence; those who are insolent are seen [as] have ceased; not arriving Nibbana is seen [made] has reached Nibbana and the like.
- "As false earrings made of clay, such as half a penny of copper covered in gold,
- Being wrapped in the world, the inner is not clean, the outside is very bright." [SN.3.11]
- Worldworld doesn't look like this. Worldworld to be true, truthful, true, true, true, correct, inverted, reality has been revered. The people who have been revered are seen; those who have been silent are seen to be silent; those who have ceased are seen [works] have been silently. To; those who have reached Nibbana are seen [made] have reached Nibbana and so on. Buddha and Worldworld do not create behaviors, but aspiring." This is also as seen by those with an eye.
- Or, "Worldworld has a clear voice, came to the praise of the voice of praise, in the field of dragon, the field of Goldwingbird, the field of Yashura, the field of Asura, the field of Kandapo, the realm of the king, the Indra The fields, the realm of the day, the realm of the angels, like this, like that, and more since then." This is also as seen by those with an eye.
- Or worldly has ten forces, four fearless, four unobstructed solutions, six god, six Buddhist, Willow, strength, morality, vitality, Hui, he was seen, known, and known.
- "The good men in the distance appear like the Himalayas,
- The unrighteous are not seen here, such as arrows thrown at night. [Dph.21,304]
- This is also as seen by those with an eye.
- For those with eyes, Worldview is the eye: the naked eye is the eye, the eye is also for those who have eyes, eye is also for those who have eyes, the Buddha eye is also for the eye, and all eyes are for those who have eyes.
- How does Worldhotel use the naked eye as the eye? Worldworld's naked eye has five colors: cyan, yellow, red, black, white. Worldly eye hair, in the eye hair living place is blue, very blue, upright, beautiful, equivalent to linen (Sri Lanka version), the other are yellow, very yellow, golden, orthodox, beautiful, equal wings Subtree of flowers. The ends of Worldworld are red, very red, orthodox, beautiful, equivalent to the chineal, black in the middle, not coarse, moist, correct, beautiful, the same as the moist, the other The white, very white, white, yellow-white, orthodox, beautiful, equal to the white star. To the world to the natural individual belongs, before the good industry born of the naked eye, he saw everything day and night, when the four darkness is also: sunset, black [month] of Busa, dense forest, big afi Rain Cloud (Thailand Version) black clouds appear. Like this, when he has four darkness, he saw everything day and night. There are no walls, blinds, or walls, or mountains, or jungle, or groves, as an obstacle to his vision. If a sesame is marked and placed in a full car of sesame, he can choose that sesame. Like this, Worldworld's natural eye is all over pure, and Worldworld so with the naked eye as the eye.
- How is Worldview as the Eye? Worldom to clean, transcendent the eyes of heaven, see when life and death, in life, in inferior, wonderful, beauty, ugly, fortunate, unfortunate, unfortunate, unfortunate, in the knowledge of the whole life flow according to the industry: "These creations, with evil deeds, , evil deeds, rebuke the saints, wickedness and wickedness industry, they disintegrate with the body, after death has come to lifeSuffering, evil, lower bound, hell, or these generals, with good deeds, words of good deeds, good deeds, do not rebuke the Holy One, have seen and righteous industry, they disintegrate with the body, after death has been born to good interest , Heavenly. In this way, he saw, cleansed and beyond the eyes of man, when life and death, in life, in inferior, wonderful, beautiful, ugly, luckily, and misfortune, knowledge of the crews flowing. When he wishes, Worldworld can see one world, two worlds, three worlds, four worlds, and five worlds, and ten worlds. Twenty worlds can also be seen, and thirty worlds can also be seen, forty worlds, fifty worlds, 50 worlds, and 100 worlds, and you can see these thousand small worlds. You can also see these two thousand middle worlds, and these three thousand thousand worlds [AN.3.81]. Or if he wants to reach, he will see. Like this, worldly eyes are pure, and worldly eyes as the eye.
- How can Worldhotel take eye-eye as an eye? Worldworld is the Great Wise, the Bohui, the Jetwise, the Fast, the Wiser, the Insight of the Wisdom, the Wisdom of the Wise, the Wisdom developed, the proven unobstructed, the four fearless, the holding of ten powers, the man like a cow, Lion, Hyun Chun, Affordable, Wise, Glorious, Fame, Rich, Rich, Rich, Rich, Rich, Guide, Restless, Soother, Informer, Inducer, Incillator, Makes The Seeing and the Clearer, the founder of the unborn, the producer of the unborn, the preaching of the unborn; the Knower of the Sake, the Knower of the Knower, the Knower, the Knower of the way, and the Knower of the way, The disciples now dwelt in the way of the way, and later the possesses.
- The Worldman is indeed a Knower and Seeker, who knows and sees; is the bereaver of the eye, the man who is born, the living of the law, the man who is born, the man who is born, the man who is born, the man who is living, the man who is living, the man If there is no one who does not know, not seen, unknown, not testified, not reached by Hui, the past, future, now on all laws come to the Buddhist, world pride of the wisdom of the field, where there is any name The [law] that should be guided by inference can be known: one's own or the meaning of others or both, or the meaning of the life or the meaning of both, or deep or hidden or hidden meaning or secrecy The meaning of the meaning, or the meaning that should be guided by inference or which has been guided to determine, or a no-fault or pollution-free, or clear meaning or of the supreme interest, everything is turned around within the Buddhist Chi.
- Buddhist, Worldworld wisdom about the past is barrier-free; [Buddha, Worldworld] wisdom about the future is barrier-free; wisdom about the present is barrier-free, all careers with Buddha, worldly wisdom; all language industry... all The wisdom of industry, worldship, all should be guided by inference is the wisdom; all wisdom is to be guided by inference, should be guided by the ultimate wisdom of inference; wisdom is the ultimate Should be guided by inference, beyond should be guided by the postwisdom of inference; beyond wisdom should not be guided by the way of inference, these laws live in mutual limits, such as the two cover is completely in contact, the following The lid does not cross the above; above the lid does not cross the below, is in mutual restrictions. [Similarly,] all the things that should be guided by inference is wisdom; all wisdom is what should be guided by inference, the ultimate wisdom that should be guided by inference; the ultimate wisdom of wisdom should be To guide inference, beyond should be guided by the postwisdom of inference; beyond wisdom has no way to be guided by inference, these laws live in mutual limits.
- Buddhist, worldly wisdom turned up in all laws, all laws for Buddha, worldly steering, hope, mind, heart, Buddha, worldhood in all living beings, worldom knows all living beings Intent, know the potential trend of trouble, know behavior, know the solution (ambition), know about less dirt, much dirt; the root, blunt root; good deeds, evil deeds; easy to teach, unteachable; The beings with power and power, including heaven, demon, and in the world of Van, including Samana, Brahmen, Heaven, and the generations of men turn throughout the Buddha Chi.
- As any fish, turtle, and even the big fish of the boat, turn in the sea, the same, including heaven and demon, and in the world of Van; including Samana, Brahmen, Heaven, and the generations of man turn throughout the Buddha. Such as any bird and even the goldwingbirds of the great children of Verna turn in the void. Similarly, where those [have] the same Hui with SheriferThey also turned around in the field of Buddha Chi. Buddha Zhi all over, beyond the heavenly people after the Hui lived. Those who are wise Chardaliers, wise Brahmen, wise owners, wise Samanads, smart dissidents, sharp breakers want to do evil opinions in the gesture of wisdom, they prepare problems later to see , and then asked the hidden and hidden [rationality], those questions were talked about and answered by Worldman for explaining reasons, and nearly abandoned those who became worldly [disciples], when Worldom was there that "Ehui" Glorious. Worldhotel so with eyes as an eye.
- Worldhotel such a Buddha eye as an eye? Worldly observes the world with the Buddha's eye, seeing less dirt, much dirt; the lagan, blunt root; the deeds of good deeds, evil deeds; easily taught, uneducated; some of the sins and horrors that live in seeing in other worlds The、Others do not live in seeing sin and terror in other worlds. Like in the green lotus pool, red lotus pool, white lotus pool, some green lotus, red lotus, white lotus live in the water, grow in the water, depending on the water, shen in the underwater growth; some green lotus, red lotus, white lotus are born in the water, grow in In the water, dwelt on the same high as the surface of the water; some lotus, red lotus, and white lotus are born in the water, long in the water, rising out of the water and dwell, Similarly, worldly observes the world with the Buddha's eye, seeing less dirt, much dirt; the lagan, blunt root; the deeds of good deeds, evil deeds; the teaching, uneducated; some of those who live in other worlds Sins and horrors, others do not live in seeing the sins and horrors in other worlds [para. 14, 69]. Worldworld knows: "This man is a corrupt man, this person is a trader, this man is a trader, this man is a walker, this person is a believer, this man is a wise walker." Worldworld speaks unclear to the corrupt. Worldworld informs the practice of Mercy to the people of the Parker Worldroom for the dementer to rest in recitation, questioning, hearing of timely law, discussion of timely law, teacher's cohabitation. Worldworld informs the whoever sought. Worldworld tells the believers who believe in confidence: the good consciousness of the Buddha, the good law of the law, the good practice of the monk and his own ring. Worldworld told the wise man of the wise man that the phase of Basha: inconstant, bitterness, and without me.
- "If you stand at the top of the rock mountain, you can see all the people,
- Likewise, the good, and all the eyes, go up the high buildings of the law,
- And those who have gone away, look at those who are sadly and conquered by life and old
- Please get up! Heroes! The winner on the battlefield! The leader of the merchant team, the unindebted in the world,
- Worldworld! Please teach the law! Will (will) have the knowledge." [DN.14, para. 69]
- Worldhotel so treat the Buddha's eye as the eye.
- How can Worldhotel take all eyes as an eye? All eyes are called the state of all knowing wisdom. Worldworld arrival (with), full arrival (with), entry, full entry, full, fully sufficient, with all knowledge of the state wisdom.
- "For him there is nothing unseen here, and there is no knowledge, and cannot be known,
- He testifies that whosoever exists should be guided by inference, as it is for all eyes. Ps.1, para. 121]
- Worldhotel so with all eyes as an eye." As for those who have an eye see.
- "Excuse all darkness": "All greedy darkness, the darkness of the fool, the darkness of the slow, the darkness of seeing, the darkness of the polluted, the darkness of evil, done blindly, do not make eyes, do not do wisdom, The annoying companion party, does not guide Nibbana after his exclusion, after removal, after abandonment, after discarding, after deportation, after the end, so that it does not exist." For the removal of all darkness after.
- "Alone to get joy": "'Alone ', Worldhotel in the name of the home alone, with no partner righteousness as alone, to the thirst of love to be alone, "always away from greed" as alone, "always away from the heart" for alone, " Alone, "always deprecated" is alone, "always no pollution" is alone, "has gone through no fork road" is alone, "has no sense of all over again" is alone.
- How is Worldhotel alone in the name of a home? "When Worldmaster is young, brunette youth, with the happiness of youth, at the beginning of life, even if parents do not want, tears, cry, lament, still abandon the family, cut off all obstacles at home, cut off their children's wives Obstacles, cut off family barriers, cut off the barriers of friends, cut off storage barriers, shaving hair, wrapped in a surplice, from home from home, become a non-home life, into the state of nothing alone, live, act, Turn up, guardian, make survival, make survival. ' This is Worldhotel alone in the name of a home.
- How is Worldworld with no partnershipFor Alone? "When he went out so alone, he was alone with forest, wilderness, living on the edge (sitting place): a little voice, quiet, away from the atmosphere, people alone, suitable for sitting alone; he alone, walking alone, standing alone, standing alone, Sit alone, lying alone, alone in order to go into the village [, alone], return alone, sit alone, alone, alone, live, action, turn up, guard, make survival, make survival. " This is worldly alone with no partner.
- How is Worldworld alone with the disruption of thirsty love? He was so alone and without a partner, when he lived in the uncomfortable, zealous, self-effort, under the Linden tree by the Neren Zen River, with great diligence and diligence, destroying the devil with the army, the evil demons, and the relatives of the relaxation, The net, the might-flowing, and the entangled thirst loved him to cut off, dispel, and end, and make it come to absent
- "With thirsty love as a companion, a long time reincarnation,
- Become such a state、Other state, do not go beyond reincarnation。
- Knowing after such an affliction: thirst love is the origin of bitterness
- From thirst love, no take, Bichu should march in a mindful manner." [It.15/Sn.3.12,745-746]
- This is worldly alone with the disregard of thirsty love.
- How is Worldhotel alone with "always away from greedy"? "One of the derelicted state of greedy is away from greedy" for alone, "one of the state of disconnection of the dereliction state" is alone, "one of the deprecated state of dereliction" is alone, "one of the disconnected state of pollution has never been "Pollution" is alone. [This is worldly alone with "always away from greedy".]
- How is Worldworld "has passed the road without forks" to be alone? No fork road road is known as four, four Zhengqin, four gods, five, five, seven, seven, eight holy road.
- "Seeing the extinction of life, and those who have mercy, know the way without forks,
- In the past, they will be and now." [SN.47.18]
- This is Worldworld "has passed the road without forks" for alone.
- How is Worldship "Alone Is Now Right Right" for Alone? Sculpture is called in four ways of wisdom [, Hui], Wisen, Wisen, choice of the method of Jakuzhi, study, Bisherna, positive view. Worldhotel with the sense that "everything is impermissible"; "All laws are without me"; feel "There are signs of work"; "These are troubles"... (middle) "This is a guide to annoyance. "Think "these laws should be widely known"... should be discarded... should be practiced... feel "[these laws] should be testified"; Ju six touches the collection, extinction, taste, overhaul, exodus, and out; The set up, extinguished, fun, too sick, out; feel four big set, extinct, fun, too sick, out; feel "any set method is extinction method".
- Or, whoever should be perceive, should be casual, should be awakened, should be righteous, should be attested, should be touched, and should be testified, everything is by that sense of consciousness, Awakening, righteousness, testifying, touching, testifying. This is the Worldship "Alone is now all right" for Alone.
- "Get Joy", "Joy", Joy from desire, from joy, joy of silence, joy of righteousness He receives, arrives, testifies, touches, testifies. Joy for Alone
- Because then, the last Shiliver said:
- "Including the world of angels, if the eye sees,
- Depart from all darkness and get joy alone.
- 192. he who is a thinkler, a man who does not stop, and he who is like that, the unwittingly,
- Here belong to many of the bondage, there is a need to come with problems.
- "That is the senser, the unstoppable, the person like that": "The Revelation (Buddha)", that the worldly, the one who is alone and without a teacher who has not heard of before, is now aware of the truth, where he has reached everything. Knowing the state, the person who reaches the state of comfort in power. What is the meaning of the "Illusion"? "The Truth" is the Buddha, "make the living feel" as the sensation, the state of all knowledge as the sense, the state of everything is seen as the illusioner, a state that will not be guided by other as the sensation, and the flow of all kinds as a sense, To the annoyance has been given the name of the person who has been given the name of the illustrator, the "always away from the greedy" as the sense, "has been away from" as the sense, "always away from the dementia" as the sense, "always deprecated" as the sense, "always de "No polluter" is the sense, "has passed the road without the road" for the sense, "Alone is now full of sense sense" for the sense, the state of feeling not being killed for the sense, feel the state of feeling is the sense of feeling. "Illusion," "This [name] non-motherWhat is given; not the father gave; given by a non-brother; given by a non-sister; given by a non-friend; not his relatives; not Samana and Brahmen; and the unheavenly given, this is the relief; The senser, the worldly, and Anri (Kana) under the Linden tree and all the wisdom of knowledge and testimony, is the Seeker. For that is the senser. There are two kinds of stops: thirst for love and the stop of seeing. What is the stop of thirsty love? All are called as bounds [, as realms], as ranges, as fanned boundaries, clutched, and treated as their own: This is mine, this is mine, and so much is mine, so much is mine, This range is mine; my colors, sounds, smells, tastes, touches, spreading things, coats, maids and servants, goats and sheep, chickens and pigs, elephants, cattle and horses, mule horses, fields, homes, gold, Gold coins, villages, towns, kings, places, treasures, warehouses, all the earth, because of their thirst for love and treating them as their own, all 108 kinds of thirsty love tide [AN.4.199], this is Thirsty love stops.
- What is Seen Stop? There are twenty personal opinions, ten wickedness, ten sidelines, and ten sidelines, such as such see, evil opinion, jungle, desert, distorted, shaken, bound, seppling, acceptance, Hold, perform, clamp, upside down (vipariyesa) clamp, upside down (vipariyesa) clamp, upside down (vipallāsa) ) The grip of the evil, the clasping of the evil, the "[see] true in the untrue" clasping, all come to the place of 62 evil opinions, which is the end of seeing.
- "For Buddhist, worldly love has been cut off, see the stop has been dismissed, with thirst on the basis of love has been cut off state, see the state of the relay has been dismissed, worldom is the eye does not stop, ear... Nose... tongue... body... no stop, all colors... voices... smells... all tastes... touch [... all]... groups (public)... shelter... benefits... reputation... Praise... music... clothes... feeding... shelter... patient needs and medical necessities... desires... color circles... colorless... I want to have... four has... five holds... the past... the future... now... is what you see, smell, feel, can be knowledge of all the methods that do not stop, do not stick, do not fall into, The one who does not hold, does not put the heart toward (victory). He has departed, departed, liberated, and from the bondage, and dwelt with a restrained heart." For the one who is a sense, does not stop.
- "Like that," Worldman is like that in five ways: for those who are satisfied or unsatisfied, the "abandoned" is like that, the "passed" for the like, and the "freed" for A person like that、It is described as like that。
- How is Worldworld for those who are satisfied or unsatisfied? Worldly is given as the one who is like that in not, as well as in [having] honor; for those who have no reputation; for those who are not honored; for those who are like in praise; and in rebuke For those who are also like that in the music; for those who are like in bitterness, some wrist spices will be painted with spices, some wrist work with an axe: He is not greedy in that way; there is no greedy in that way. Evil has been cut off with greed and evil, has overcome victory or defeat, has crossed obedience and opposition, so that Worldhm is the same in either satisfactory or dissatisfied.
- How is Worldman "Abandoned" as a person like that? Worldest greed has been abandoned, spit out, released, dismissed;... (medium) obsession... anger... resentment... obsession... obsession... obsession... obsession... jealous... hypocrisy... cunning... stubborn... Passion... slow... slow... slow... relax... all pollution... all evil deeds... all irritated... all hot... all irritated... all bad work has been abandoned, spit out, released, dismissed. 、Conception, so that the worldly "forsaken" is like that.
- How is Worldman who has passed it for like that? The torrents of worldly desires have passed; some of them have passed; the riot of sight has passed; the unclear rim has passed; all the circuits have passed, have come out, have crossed, crossed, overcome, he is Decreased, Actor, Completed Journey, Those who Have Arrived, Those who Have Arrived, Those who Have Been Guarded the Ganswalker, Reach the Highest Visionary, Trainee, DisconnectedThe polluter, the one who has passed unshakeable, has testified to him that bitterness has been known, the set has been cut off, the way has been practiced, destroyed has testified, has been known, known to be known, has been cut off A person who has been practiced should be practiced, and has testified shall be testified. He is the one who has been removed, the ditch is filled, the column has been pulled up, the latch, the saint flag has fallen, the burdens have been removed, the separated, five disconnected, six possesses, one guardian, four Trust is those who have removed their own truths, those who seek to be outraged and completely decimated, those who have no intention of turbid, those who have done serenity, those who are liberated in good faith, the supreme who have been fully completed, the supreme, the supreme, the supreme, the proven With great achievements, he is neither composed nor disassembled, does not build up, does not stand after stacking up; neither dissipates nor performs, and does not disperse (Thailand version) nor accumulate, dispersed after standing; neither extinguishes nor ignites, After extinguishing [SN.22.79], is a state of residence with no school abundance, a state of residence with no learning, a state of residence with no learning, a state of residence with no learning to escape The standers who have no learning to free the state of wisdom, the completion and passage through the real (meaning), the standerter after crossing the disturbance (move greedy), the resident after the polluting fire extinguished, completely no longer come to the state of residence The standerter, who has made [victory] grasp after the grasp, the settler by the state of relief, the mercy of pure dwellers, the sadness of pure dwellers, the joy of pure dwellers, calm and pure standers, what All the pure dwellers, no equivalent state (Ceylon version) all over the pure standers, the liberated state of the standers, the liveholder who has satisfied the state, the live in the ultimate (boundary), the ultimate in the boundary Renders, in the ultimate, in the end of the fun, the ultimate staker, in the end of life, the live in the ultimate life [, the ultimate stand-up on the existence of the ultimate, the dwelling on the ultimate in the reincarnation The man, the dweller on the ultimate rotation, the dwell in the line of the ultimate, the staker on the last, the staker on the last gathering (body), the worldly of the last body.
- "This is his last, this is the last gathering (body),
- Life and death reincarnation, without his regeneration.
- This is the Worldman who has passed it for like that.
- How is Worldman "freed" as a person like that? Worldly heart has been liberated from greed, liberated, and righteous; the heart has been from evil... from anger... from anger... from desperate... from desperate... from jealousy... from stingy... from hypocrisy... from cunning... ... from stubborn... from passion... from slow... from extreme slow... from easing... from all pollution... from all evil deeds... from all annoying... from all scorched heat... from all worsening... from all worsening... from the heart All unrighteous creates relief, expands relief, good relief, so that the worldly "freed" is like that.
- How is Worldplace that described as a person like that? Worldworld "is a ring in the ring" is described as a person like that; "Believer in the letter" is described as a person like that; "Vibrant in vitality" is described as a person like that; "in the mind is a thought It is described as a person like that; "On the Saying is a man," the one is described as such; "There is a Wisdom in the Hisan," the one described as such; "There is a Sanming in the clear." It is described as a person like that; "Ten in Ten Forces" is described as a person like that, and this is the Worldworld as a person like that." For the one who is a sense, the one who does not stop, and like that.
- "Non-tricky, come to the Lord": ""Non-trickery", "Three kinds of trickery: the means by means of the trickery, the trickery of deeds of behavior, and the circumference of the trickery.
- What is the trickery of the instrument? Here, the owners of the house invite Bichu with clothes, food, shelter, patient needs, medical necessities. He is a wicked desire, a person who desires nature, a person of hope, for clothing, food, shelter, the needs of the patient, Medical essentials expect more and refuse clothing, refuse to feed, refuse shelter, refuse patients' needs, medical essentials, and he says, "What is a high-value clothing for Samana! Where the salmon should be put on a coat after picking rag from the mound or in front of the garbage pile or shop door, it is appropriate. What is it for Samana with high value feeding! Where the Samana should take a little bit of the spike to survive, it is appropriate. What is it for Samana with a high value accommodation! It is appropriate that whamon should be those who live under the tree or in the mound or in the open ground. With high value diseaseWhat are human needs and medical necessities for Samana! [Where salmon should be used with bovine urine fermented medicine or crushed Haliel, which is appropriate. After taking it, he was wearing coarse clothes; he was feeding in coarse; dwelt in a rough place; and he used the necessities of a rough patient, and a medical necessity.] The owners knew him so: "This Samana is the little wishful, a man who is enough, alone, a man away from the masses, a man whose vitality has been initiated, and the head of the head." They are more and more inviting their clothes, feeding, shelter, patient needs, medical essentials. "And he says, "Three of the present states have faithfulness men produce many fords: the current state of faith is a good man. The current state of many fords, the present state of the mercy of a man produces many fords, worthy of the present state of the present state of faith good men produce many ford. You are the believers, and I am the recipient, and if I do not, then you will be an outsider of Ford, which is not needed for me, but for the sake of mercy on you And I accept it. After performing it, he received many clothes, as well as many food, lots of dwellings, and many patients 'needs, medical necessities. The frowning of whosoever such frowns; the path of the tricker, and the state of the trickery, this is the trickery of the instrument.
- What is the trick of behavior? Here some kind of evil desires, those who seek nature, and those who desire respect [thought]: 'Then people will respect me. ' He is placed to walk, set to stand, sit down, lay down, lay down, walk for a desire, stand for a desire, sit for a desire, lie down for a desire, such as walking by a person who is established, standing as a person who is established 、Sit down as a person who is determined, lying down, and become visible as a zen. Whoever acts like this place, strengthen the placement, complete placement; the frowning of the frowning; the path of the tricker, the state of the trickery, this is the trickery of the deed.
- What is the perimeter trick? Here some kind of evil desires, those who seek nature, and those who desire respect [thought]: 'Then people will respect me. ' He spoke according to holy law, and he said, Whoever is dressed like this, he is the Samana of great power. He said, "Whoever holds a bowl like this... holding a copper bowl... holding a filter tank... holding a filter bag... holding the keys... wearing shoes... wearing a belt... the lacer, he is the salmon of power." And he said, Whosoever his monk is like this, he is the Samana of great power. He said, "Whosoever his teacher equates with a monk like this... as a teacher... friends... acquaintances... those who are close... companions like this, he is Samana, the great power." He said, Whosoever dwells like this, is Samana, the great power. He said, "Whoever lives in a half-roof like this... lives in high buildings... in flat houses... in cave... in the caves... in the cottage... in the chalet... in the Lookout... The round house... lives in a shed... in a lecture hall... in a tent... who lives under a tree like this, he is the Samana of great power."
- Or, the constant frowning; the constant frowning; the constant tricker; the constant nagging; the person who is respected by his mouth, who says such deep, secret, subtle, secret, secrecy, born, empty talk : 'This is for Samana to get this place like this [silence] until." Whoever frowns like this; the path of the tricker, the state of the trickery, this is the circumference of the trickery. "For Buddha and Worldhood, these three trickery things: the means to be subject to the scheme of trickery, deeds of behavior, the surrounding language of the trickery has been cut off, cut off, calmed down, stopped, cannot be born, It is burned by wisdom fire, so Buddha is a non-tricky." For non-tricky.
- "Coming to the Lord", "Lord", Worldly Lord, "Teacher of the Group" for the Lord, "Master of the Group" for the Lord, "He takes care of the group" for the Lord, "He admonds the group" as the Lord, "He admonds "Group" for the Lord, "He fearlessly to see the group" is the Lord, "the group wants to hear, ear, and know' for the Lord, "after the group is bad he establishes it in good" for the Lord, [he] is The lord of the Pichu, the lord of the Bichunes, the lord of the Eubos, the lord of the Uboa, the lord of the kings, the lord of the Zadirei, the Lord of the Brahmen, the Bisha The Lord of the Gundala, the lord of the godala, the lord of all the heavens, the lord of the heavens, the lord of the monks and the teachers "Come", Arrival, Full Arrival, Complete Arrival (Thailand Version) Fatty City. For those who do not trick, come to the lord.
- "Here belong to many of the bondage."Belonging to many Chateli, Brahmen, Bisha, the Gordala, those who are in the house, out of the house, the heavens, "Belonging to the bondage" belongs to the bondage, to the attendant, to the servant, to the disciples. For here belong to many of the bondage.
- "There is a need to come with questions": "To question I need to come, want to ask questions I arrived, want to hear questions I come." So there is a need to come with questions. Or, "is a question that is in need, belongs to those who want to ask questions, belong to those who want to hear, there will be a need to come, approaching, approaching, and visiting." It is also necessary to come with the question. Or, "For the coming of your question, you can, and you have enough reason to tell and answer what I asked, please bear this burden." It is also necessary to come with the question.
- Because then, the last Shiliver said:
- "He who is a sensation, he who does not stop, and he who is like that, the unwicked, and who cometh
- Here belong to many of the bondage, there is a need to come with problems."
- 193. when Bichu is bored, close to the unmanned seat,
- Or under trees, between the caves, or in the cave
- "When Picchu gets bored": "When Picchu," Zenvan Picchu, or learn bicchu. "Be bored", tired, tired of old, sick... died... being grieved... suffering... be worried... being desperate and bored, by the bitterness of hell... by the bitterness of the animal world... by the hungry ghost world... ... the bitterness of man... is rooted in the birth of the bitterness... is rooted in the bitterness of the birth... the bitterness of the birth... is born of other bitterness... is [for] the suffering of efforts... ... suffering by other efforts... being suffering... being suffering... being easily suffering... being suffering by eye disease... by ear disease... by nose disease... suffering by tongue... suffering by a physical illness... by the head disease... The pain of the external ear disease... was suffering from mouth disease... was cough... being pumped... by external nasal disease... being fever... old... by abdominal disease... being unconscious... by the abdominal pain... by cholera. ... by leprosy... by tumor... by ringworm... by lung disease... Ringsoriasis... by scabies... being scratched (a kind of sickness)... cracked skin... bloody... choleopathy... ... Diabetic... Hemorrhoids... Rash (boils blisters)... Hemorrhoid fistula (ulcer)... Disease that is erected by the gall... Disease of sputum... Diseases waiting by the wind... Diseases... diseases born from changing times... diseases born out of improper posture... Diseases that are suddenly struck... the disease of the industry's killer, cold... being hot... hungry... thirst... Dung... was urinated, the bitterness of the contact of the mosquito, the bereavement of the mother... the suffering of the lost father... the lost brother... the lost sisters... lost to her family... lost their possessions... Loss... lost by disease... being lost by virtue... to be seen loss of distress, distress, anxious, disgust." For when Picchu gets bored.
- "Close to the unmanned seat": "He sat down is called a seat: bed, chair, cushion, small mat, leather pad, grass seat cushion, leaf seat cushion, straw seat cushion. The seat, the unsuitable shape of the sight is cut off, isolated, away from; the hearing of inappropriate sound is dismissed, isolated, away; [the smell of inappropriate smell... inappropriate taste of taste... improper touch [contact...] inappropriate five kinds of want to be dismissed, isolated, away from the seat, he is close, completely close, follow, bend to follow, completely follow, toward obey." For a seat that is close to no one.
- "Or under the trees and between the Tsukama": "It is under the tree, that is, the Tsukaman is For or under the tree、Tsuka。 "Or in the cave": "is the mountain is a mountain, that is, the cave is a cave, is the cave for the The inner body of the mountain is called the cave of the mountain." For or in the cave.
- Because then, the last Shiliver said:
- "When Bichu was bored, close to the unmanned seat,
- Or under trees, in the caves, or in the cave.
- 194. How many horrible are there in every kind of lying place,
- Bichu should not be because of those fighters: in a quiet residence?
- "In the seeds": "In the seed, in the species, in the wretched and victorious, pure and evil. Houses, dwellings, half-roofed houses, tall buildings, flat houses, caves are called sleepers. For the kind of sleeping. "How many horrible are there": "How many tweets, yelling, sounds produced. Or, "how many", thoseHow many, how many, a few, how many - many. "Frightening": lions, tigers, leopards, bears, wolves, bison, elephants, snakes, scorpions, centipedes, or thieves or gangsters who do bad things or prepare For how many horrible there are.
- "Bichu should not be because of those fighters": "Because of those who are terrible, they should not tremble after seeing or hearing, they should not tremble (strong trembling), they should not tremble (mighty trembling), There should be no fear, should not be afraid (upward fear), should not fear (fear all over), should not be terror, should not come to fear, should be not afraid, not frightened, not frightened, not frightened, not fleeing, I should dwell in having cut off fear of terror, and have left the hair erected." For Picchu should not be because of those fighters.
- "In a quiet place": "In a quiet, quiet, away atmosphere, alone, suitable for sitting alone." In a quiet accommodation.
- Because then, the last Shiliver said:
- "How many horrible are there in all sorts of sleeper,
- Bichu should not be because of those fighters: in a quiet residence?"
- 195. how much distress in the world, for the walkers who have not gone to the direction,
- In those on Picchu should conquer: the residence on the edge?
- "How many distress in the world": "How many, how many, how many, a few, how many - many. "Difficult", there are two kinds of distress: obvious distress and hidden hazard. What are the obvious distress? Lion, tiger, leopard, bear, wolf, bison, elephant, snake, scorpion, centipede, or thief, rogue, eye disease, ear, nose disease, tongue disease, body disease, head disease, external ear disease, mouth disease , tooth disease, cough, wheezing, external nasal disease, fever, old, abdominal disease, coma, dysentery, abdominal pain, cholera, leprosy, tumor, ringworm, lung disease, epilepsy, Ringsoriasis, Tricky, Scratching , blood disease, choleopathy, diabetes, hemorrhoids, rash (boil blisters), hemorrhoid fistula (ulcer), gall etc. (medium) cold, hot, hungry, thirst, feces, urine, contact with habbutymosquito These are called obvious distress.
- What are the secret distress? Wicked deeds, words evil, malicious acts, wishful cover, malice cover, sleep cover, fall and regret cover, suspect cover, greedy, indignation, anger, resentment, hiding evil, arbitrary, jealous, stingy, hypocrisy, hypocrisy, cunning, Stubborn, passion, slow, very slow, slow, relax, all pollution, all evil, all annoying, all hot, all annoying, all bad work, these are called secret distress.
- What is the meaning of distress? "Conquer" is distress; "lead to loss" is distress; "living there" is distress.
- How is "Conquer" for Difficult? Those distress conquered, conquered, defeated, overwhelmed, ended, crushed that man, so it was "conquered" as distress.
- How is "lead to loss" as a hazard? Those distress leads to the obstacles, regression of good law, what good law? The right road, follow the road, the inverted sidewalk, not contradictory (no contradictory road), such as the meaning of the sidewalk, law with the law of the road, the ring completely, guarding the root door, the right amount of diet, specialized Sober, read and mindfulness, four hard practice, four good faith... four gods... five... five... seven senses... eight sacred shrines efforts to practice, leading to these good law obstacles, loss, this is " "Guide to fallback" is distress.
- How is it "perched there" for distress? There, these evil laws come together, such as caves lying in caves, aquatic animals lying in water, forested animals lying in the forest, and tree animals lying down on trees. In the same way, there, these laws of evil and misdemeanour come together. This is "perched there" for distress.
- This is said by Worldman [SN.35.151]
- "Bichu! Picchu, a disciple and a master, lived in bitterness and unease. And, the Picchu! How is Bichu, a disciple and a master, dwelt in bitter and unease? Bichu! Here, after the eyes of Bichu, born the memories and intentions of those who follow the evil bad law.
- Besides, the Bichu! After listening to the voice... nose smell... after the tongue tasted taste... after touching... after the law of consciousness, the memories and intentions of those evil and bad laws were born to follow the end. "They dwelt in him; and the law of evil and evil dwelt and enter (occupy)." Therefore, he is called a 'apprentice. ' "They conquered him; evil evil conquered him." Therefore, he is called "Master". Bichu! So Bichu, a disciple and a master, dwelt in bitterness and unease. This is also the"There inhabit" is distress.
- This was said by Worldman [It.88]
- "Bichu! There are three kinds of internal scale, internal non-friend, internal enemy, internal murderer, internal enemy, which three? Bichu! Greedy is internal scale, inner friend, internal enemy, internal murderer, internal enemy; Bichu! ... (medium) Picchu! The evil is internal scale, not friends, internal enemies, murderers, internal enemies. Bichu! These are three types of internal scale, inner friend, internal enemy, internal murderer, internal enemy.
- "Greed is the cause of no interest, and greed for those who shake their hearts,
- Terror was born from it, and people do not understand it.
- Seekers do not know the interests, the cogedy cannot see the law,
- At that time he was blind and darkness: whoever could conquer.
- For the cause of no interest, For those who shake the heart,
- Terror was born from it, and people do not understand it.
- The angry do not know the interests, the anger does not see the law,
- At that time he was blind and dark: whosoever could conquer.
- The cause of no interest, stupid to shake the heart,
- Terror was born from it, and people do not understand it.
- The fools do not know the interests, the fools do not see the law,
- At that time he was blind and dark: whoever could conquer.
- It is also "inhabited there" as a distress. This was said by Worldman: [SN.3.2]
- "King! When the three laws of men are born, they are born unfavorable, bitter, and uncomfortable to live, which three? King! When the lust of the man himself is born, it is unfavorable, bitter, uncomfortable to live; king! When the man himself is born... (Medium) King! When the man's own idiot started, born unfavorable, bitter, uncomfortable, king! When these three laws in men are born, they are unfavorable, bitter and uncomfortable to live. '
- "Lust, lust, stupid, malevolent man,
- Hurt yourself, such as many fruits [hurt] their tree heart. '
- It is also "inhabited there" as a distress.
- This was said by Worldman: [SN.10.3]
- "From here there is greed and insane, from here to be unhappy, happy, and hair erected,
- From here and after being born with heart, such as a little boy put a crow."
- It is also "inhabited there" as a distress. "In the world," in the world of men. How much distress is in the world.
- "To the walkers who have not gone to the direction": "The direction has not been" is called undead, Nibbana, that is the end of everything, all according to the conviction, thirst of love extinct, away from greed, extinct, Nibbana. The direction you haven't been before, not the one you've been to before: take this long journey.
- If he transports, it is full of oil to the edge,
- Like this should have a heart guardian who hasn't been to the direction of the hope.
- To those who have not been in the direction of walkers, walkers, and forward. For walkers who have not been to the direction.
- "On those who should be conquered on Picchu": "On those distress he should conquer, should defeat, should overwhelm, end, should crush." For those on Bichu should conquer.
- "Accommodation on the edge of the land": "On the edge, on the edge, on the border, at the border, at the edge of the mountain, or by the forest, or by the river, or by the waterside, where not cultivated, not sown, human limits, after walking, to people It will not be close to [the] sitter." For accommodation on the edge.
- Because then, the last Shiliver said:
- "How much distress is in the world, for those who have not been in the direction of walkers,
- In those on Picchu should conquer: the residence on the edge?"
- 196. what language should be? What should there be here?
- What should be the abduction and prohibition that belong to Bichu's self-efforts?
- "What language should be": ""What kind of language should be like, what kind of erected, what kind, what kind of contrast." He asked about the cleanliness of words. What is the cleanliness of words? Here, after Bichu has discarded his words, he is a person who dismisses the language, the true word, the one who can trust, the trustworthy, and the one who is free of deception to the world. After he has discarded the words, he is a distant word: after he heard it, he does not say there to be a divination to these people, or, after he heard it from there, he does not say here to divescend to them, like this, He is the mediator of division, a distributor of harmony, the loving, the loving and the collaborator, the person who likes and rejoins, and speaks of the word of harmony. He is a man who has discarded his bad words, such words are spoken by him that is gentle, delightful, adorable, and gracious, graceful, beloved by all, and the pleasing of all. After disconnecting the filthy words, he isUnfilthy: He is the Speakers of the Right Time, the Speakers of Facts, Good Speakers, as the Law, as the Law; He speaks, at the appropriate time, words of value, reason, restraint and interest [ AN.4.198]. He has four words of good deeds, and speaks four without fault. He should have been separated from 32 species of animal theory, quanned, quashed, removed, departed, freed, bondage, and he lived with a restrained heart. He said ten things to talk about, namely: to say less intentions, [say] contentology... solitary habitation theory... noncommunicative theory... admonition... admonition... discourse... discourse... liberation theory... remembrance... On the... positive theory... gods... root theory... force theory... the theory of consciousness... the theory of fruit, Nibbana theory. Discreet, discreet, guarded, protected, guarded, homemade words, which are all clean. It should have a clean word like this." For what should be the way.
- "What should be here": ""There should be a situation like what, what kind of erected, what kind, what kind of contrast." He asked about the border. There are border, there are non-border.
- What is a non-border? Here, a certain group of people are prostitutes, or widows, or unmarried women, or non-male (semi-selecga), or Bichuni [AN.5.102], or drinking alcohol In the border, he lives in inappropriate contact with the kings, the archancellors, outlanes and disciples. Or those who have no faith in Pichu, Bichuni, Yousseh, and Yomo, and Yobo, who do not have a net faith, do not become water, abusive, libelous, without profit, for no benefit, for no peace, and peace from the yoke The family, he closened, intersected, visited a family like this, which is called a non-border.
- Or, when Picchu is a visitor to his home, walker on the street, he walks unprotected: he walks as he looks at the elephant, looks at horses, looks at the car, looks at infantry, looks at women, looks at men The boy, looking at the girl, looking at the market, at the doorstep of the house, looking at the top, looking below, looking around all sides, this is also known as non-border.
- Or, Bichu became the executor of the phase after seeing it, because... (middle) when living in the unprotected roots, greed and worried bad law will flow in, and he does not act according to his own control, Does not protect the root, do not care to reach homemade [SN.35.120], which is also known as non-border.
- Or if some Samana, Brahmen, Master Brahmen, after receiving food from faith, they live in performances like this: dance, singing, music, drama, ancient speaking, handbell, cymbals, drums, magic, Iron ball play, bamboo stick play, stunt, elephant fight, horse fight, buffalo fight, bull fight, goat fight, ram fight, rooster fight, quail fight, stick fight, fist fight, wrestling, drill, soldier, Military Front, Parade [DN.1, para. 13], etc., such as this is the performer of the watch, which is also called non-border.
- Five kinds of desires are also non-border. This is said by the Worldmen, "The Do not go in improper situation, other frontiers. Bichu! Walking in improper situation, other realm, magic will get the opportunity, the magic will get the object. Bichu! What is Bichu's improper border and other realm? That is: five desires, which five? Can be known by the eye, the desired, cute, desirable, cute look, accompanied by the desire, greedy color; can be known by the ear... the sound; can be known by the nose... smell; can be known by the tongue... taste ; can be known, wanted, cute, desirable, cute, cute look, accompanied by desire, greedy touch [SN.47.7]. Bichu! This is called Bichu's improper border, other realm. This is also known as non-border.
- What is the border? Here, Bichu is not a prostitute, not a widow, not an unmarried woman, not a male (semi-selecga), not a bicuni trader, not a drinking place, he lives with the king The men, the great officials, the outways, and the disciples of the outside aisle communicate with appropriate contact. Or whosoever has faith in Bichu, Bichuni, and Yomasai, and Yopo, and the net faith, who are the water supply, and the cassock lights, and the fairy. And those who desire good, good, for peace, and for peace, who want to leave the yoke of peace, he is close, and intersected, and visited a house like this, which is called the way of the land.
- Or, when Picchu was a visitor to the home, a walker on the street, he walked defenderly: he walked without looking at the elephant, not looking at the horse, not the car, not the infantry...(Medium) does not look around all sides, this is also known as the border.
- Or, after the eyes of Bichu, do not become the execution of the phase, the execution of the fine phase... (slightly) care about the roots to achieve homemade, which is also called the border.
- Or, if some Samana and Master Brahmen have been given food, they do not live in performances like this: dance, singing, music... parade, etc., like this is the performance watching. The actors, which are also called the border.
- Four read live is the border. This is said by the Worldmen, "The What is the proper border of Picchu, the realm of his father and grandfather? That is: four read live, which four? Bichu! Here, Bichu live in the body [, zealous, cognitive, mindful, can revolt for the world's greed, worry]; in the subject... (medium) in the heart... (medium) live in the law follow the law, enthusiasm, Known, mindful, can revolt for the world of greed, worry. Bichu! This is the proper situation of Picchu, the realm of his father and grandfather. This is also called the border. It should have a situation like this." For what should be here.
- "What should be quanned and forbidden": ""What kind, what kind of erected, what kind of contrasting and forbidden should be there." He asked about the purification of the withdrawal and prohibition. What is the cleanser of the ring and the prohibition? There are abstraints and forbidden [but] not rings. What is Rings and Forbidden? Here, Bichu is a ring holder, lived in the self-made protection of Porotti wooden fork, with a positive and border, seen in the micro-crime horrible, in the school school after learning, where restrained, homemade, does not violate, this is Ring; whosoever observes it is forbidden Homemade as a ring; to abide by righteousness as a forbidden, this is called abdence and prohibition
- What is a forbidden [and not] a ring? There are eight heads: forest field branch, often beg, manure sweep, but three, second beg, after eating without food support, often sit [not lying] support, everywhere, this is known as forbidden [but] not ring. The observance of vitality is also called forbidden [but] not: "Preferring to leave only skin, tendons, bones; to dry the body's flesh and flesh, as long as human perseverance, human vitality, human efforts should be achieved and not reached, There will be no stop of vitality. [SN.12.22] "He was dedicated, diligent, and like this is the observance of vitality, [this] is called a forbidden [and not] a ring.
- "I will not eat or drink, I will not go out of my place,
- It will not cause the threat to fall (lying down), and the arrows of thirst love will not be removed." [Thag.223]
- His dedication, diligence, and the observance of vitality like this is also called forbidden [but not]. "As long as my heart is not relieved from the troubles of not being carried out, I will not break this leg! [MN.32]" His dedication, diligence, and the observance of vitality like this is also called forbidden [but not]. I will not get up from this seat... I will not come down from the wagon... I will not go out of the house... I will not go out of the half-roofed house... from the flat house... from the cave... from the cave. ... from the hut (lonely house)... from the lookout... from the circular house... from the shed... from the lecture hall... from the tent... "As long as my heart is not relieved from the troubles, I will not be under the tree. Go out. His dedication, diligence, and the observance of vitality like this is also called forbidden [but not]. "Just before this afternoon I will acquire, fully acquire, testify, reach and testify of the Holy Law." His dedication, diligence, and the observance of vitality like this is also called forbidden [but not]. It's at noon... in the evening... before eating... after eating... before... the night... midnight... after the night... at the time of death... during the white moon... in the rainy season... in winter... in summer... in adolescence. ... in the middle of old age... 'I will acquire, fully acquire, testify, reach and testify of the Holy Law in old age. ' His dedication, diligence, and the observance of vitality like this is also called forbidden [but not]. This is the cleanser of the reprimand and There should be a cleanser like this." For what should be quit and forbidden.
- "It belongs to the bichu self-efforts": ""It belongs to the self-effort", belongs to the vitality has been launched, belongs to the fortitude, belongs to the firm effort, belongs to not negligible, not negligent in the good law Responsibility. Or, the goal that belongs to yourself is issued in their own interests, in rightness, in particular, in reason, in reason and in reason, and unjusticiable: 'All doings are capriless' is issued by themselves; "All doings are bitter" is issued by their own; 'All doings are without me. 'It belongs to himself; 'by the cause of ignorance.'His issued... (middle) "by life and death" belongs to their own; "extinction and extinction" belongs to their own... (medium) "to destroy and have old death" is their own Issued; "This is bitter" is issued by their own... (middle) "This is the path of bitterness" is issued by their own; "This is the trouble" is issued by their own... (middle) 'This is the guide "The troubles of the trail" is issued by their own; "These laws should be known" are issued by their own... (medium) "these laws should be testified" is issued by themselves; Taw six touches the collection, extinction No, taste, too sick, departed is their own; five of the four sets, extinct, fun, too, away from their own; "any collection is extinction method" is their own; "any collection is extinction method" is their own Issued. "Belonging to Picchu," belongs to the Shanfanfu Picchu, or those who have learned it. To be self-working for Bichu.
- Because then, the last Shiliver said:
- "What should be the language? What should there be here?
- What should be the restraint and restraint that belongs to Bichu's self-efforts?"
- 197. after being held, what he should learn, exclusive, wise, mindful,
- Such as forgings on silver, should remove their own dirt?
- "What he should learn after being held": "After taking, after holding, after taking, after taking, after taking, after taking, after taking, after performing, after persistence, what he should learn." What to learn after being held.
- "Monothy, wise, mindful": "Exclusive", heart, not scattered heart, smooth mind, luxury moto (stop), fixed root, steady force, positive. For the wise, the wise, the wise, the wise, the wise, the wise, the different, the wise, the wise, the wise. "Mindful", "in four ways: when the practice is mindful in the body, in the heart... when practicing in the law to live with the concept, he is called the mindful ." For the mindful. "What should he learn after being held," he asked to add to school. "The only one," he asked to add heart learning. "The mindful," he asked to add wisdom." For what he should learn after being held, exclusive, wise, mindful.
- "As forged against silver, should remove their filth": "The forge is called goldsmith, silver is called gold. Such as goldsmith on gold, he blows, fan fire, melt [AN.3.102] coarse dirt, also blow, fan fire, melt medium dirt, blow, fan fire, melt fine dirt. Similarly, the Bichu blows, fan fire, melt their crude pollution, cut off, dispel, and end, and make it non-existent. Moderate pollution... (Medium) also blow, fan fire, melt fine pollution, cut off, dispel, end, make it to the absence.
- Or, Bichu blows, fan fire, melt their greedy filth, foul filth, devil filth, slow filth, filth of seeing, filth of pollution, evil deeds, blindly works, do not make eyes, do not wit, do not wit, , annoying with the party, does not guide Nibbana [AN.3.72], cut off, dispel, end, make it to the absence.
- Or, with a positive blow, fan fire, melt the evil, cut off, dispel, and end, and make it non-existent. Take the Chi... (medium) evil will... In the normal words... evil words... To the business... evil industry... To life... evil... In the normal words... evil words... To be refined... evil refining. Take mindfulness... sinister. To positive... evil. Take rightness... evil wisdom. To free the blow, fan fire, melt evil free, cut off, dispel, end, make it to absent.
- Or, to blow the eight holy roads, fan fire, melt all pollution, all evil deeds, all troubles, all hot heat, all irritated, all bad work, and cut off, dispel, end, and make it not exist." For such as forging against silver, should remove their own dirt.
- Because then, the last Shiliver said:
- "After being held, what he should learn, the exclusive, wise, mindful,
- Such as forgings on silver, should remove their own filth?"
- 198. [Worldplace: "Shariver!"] For those who are bored, close to the unmanned seat and the sleeping area is indeed peace.
- I will say it for you, as the one who knows, according to the law.
- "For the bored... that is ease": "For the bored", "For those who are bored, tired of old, sick... die... being grieved... suffering... being worried... being desperate... ... (medium) for the distressed, distressed, anxious person who was seen loss (bad see). forFor those who are bored. "That is ease," I will tell everyone who lives at ease. What is Happy Live? Correct signs, follow the signs, the reverse signs, do not contradict signs, such as the meaning of the signs, the law of the road, all the rings, guarding the root door, diet knowledge the right amount, specializing in sober, read and mindfulness, four "Remember, four Zhengqin, four gods, five, five forces, seven, eight sacred paths, Nibbana and guided Nibbana, this is peace of life." For those who are bored... that is, peace of mind.
- "[Worldman: "Shariver!" : "Call that seat by name. "Worldworld", synonyms of respect. In addition, the "corrupt" is worldly; "destroyed" is worldly; "spoilt the slower" is worldly; "destroyed the slower" is worldly; "destroyed" is worldly; "has destroyed the thorns" for Worldship; "Destroy the polluter" for worldship; "division, analysis, distinction" for worldship; "some end" for worldship; "have been practiced, the heart has been practiced, the heart has been practiced, Hui has been practiced" for worldship ; or "Worldmaster close to the forest, wilderness, edge dwelling (sitting place): less voice, quiet, away atmosphere, person alone, suitable for sitting alone"; or 'Worldship is clothes, feeding, dwellings, The patient's needs, medical necessities are worldly; or "Worldworld is the meaning, flavor, relief, increase the ring, increase the heart, increase the whims, add the heart, increase the whimsiness"; or "Worldzou is four kinds of Zen, four infinite amount 、Four colorless to some points" for worldship; or "Worldship is eight relief, eight wins, nine times the first place to have points" for worldship; or "Worldworld is ten want to practice, ten places to wait to, to the mind, etc., "Worldest is four, four positive, four gods, five, five forces, seven senses, eight holy way" is worldly; or 'Worldworld is ten as a force, four fearless, four fearless, four "There is no solution, six god, six senses" are worldly. Worldworld, this name is not given by the mother; not given by the father; given by a non-brother; given by a non-sister; given by a non-friend; not his relatives; not by Samana and Brahmen; Unheavenly This is the relief of the Buddha, worldly, and under the linden tree, and the acquisition and testimony of all wisdom and wisdom, that is, Worldom. For [Worldhotel: "Shalifer!"].
- "To be righteous according to the law": "The "right sense" is called in four ways of wisdom, wisdom, Wisen, Wigen, witty, choice of method, study, Bybashenah, positive view, the sense of desire, the desire to be awakened For those who want to be righteousness, those who want to gain, those who want to reach, and who For those who want to feel.
- "According to law": "What is the sense of law? Correct signs, follow the signs, the reverse signs, not contradictory signs, such as the meaning of the road, the law signs, all the rings, guarding the root door, diet to know the right amount, specializing in sober, read and mindfulness, this Known as the law of the sense." For those who want to feel according to law.
- "I will say it for you as the one who knows": "That," according to the law. "I will say," I will say, I will explain, I will teach, I will tell, I will build, I will uncover, I will parse, I will clarify, I will explain. "As Knower", such as the Knower; such as the Knower, the Knower, the other, the Knower, the Knower, the Intermediate, Non-rumor, Not from the Wind, Not from the Inheritance, Not from the Book, Not from Logical, Non-Reasoning, Non-Reasoning Thinking in theory, not because of contemplation, the opinion accepted after meditating, is self-evidenced by myself, and I will say that." For me will say it for you as a person who knows.
- Because then, Worldman said:
- "[Worldest: "Shariver!"] For those who are bored, close to the unmanned seat and the sleeping area is indeed peace.
- I will say it for you, as the one who knows, according to the law."
- 199. There should be no fear of the five kinds of horror wise, and bounded Picchu:
- To fly, moth, snake, contact to people, to four-legged animals.
- "The wise of the five horrors should not be afraid": "The wise, the wise, the wise, the wise, the wise, the sense, the wise, the different, the wise. Wise should not be afraid of the five horrors, should not tremble, should not fear, should not fear, should not fear, should not be afraid, should not come to fear, should not be afraid, do not frighten, do not frighten, do not flee They shall dwell in the fear of terror, and have been erected from the hair. Wise for five horrors should not be afraid.
- "Picchu": "Bicchu", Zenvan Picchu or learn to bicchu. "Conception (of)", in four ways for the mindfulness:When practicing in the body with the minds of the mind, in the subject... (medium) in the heart... when practicing in law follow the law to read the mindful, he is called the mindful. "Boundary line", there are four kinds of boundaries: ring self-made boundaries, root homemade boundaries, diet to know the right amount of boundaries, specializing in sober boundaries.
- What is Ring Homemade Boundaries? Here, Bichu is a ring bearer who lives in the protection of the home-made porotty forks, is well on the way and the border, seeing horrible in micro-crime, learning after being held in the school. When inspecting internal rotten state, he line internal ring self-made boundaries, do not break the boundary, this is the ring self-made boundaries.
- What is Root Homemade Boundaries? Here, after the eyes of Bichu, do not become the execution of the phase, the execution of fine phase... (medium) in the eye root to achieve homemade. After listening to the sound of the ear... nose smell... after the tongue taste... after touching the touch... after the consciousness of the law, do not become the executor of the phase, because when living in the root is not protected, greed, worried The evil evil law will flow in, he acts according to his own control, protect the root, care about the roots to achieve self-control. When the provinct burns the law door, he line internal root homemade boundaries, does not break the boundary, this is the root homemade boundary.
- What is the right amount of diet? Here, Bichu Ruri province after eating food: "neither for pleasure, nor for intoxication, not for good body, not for solemn, only for the survival, survival of this body, in order to stop harm, in order to support Van Van Row. In this way, I will repel my previous feelings, do not provoke new feelings, health, no fault, live well. When inspecting the axle oil, sores cover [SN.35.239], the metaphor of the son meat [SN.12.63] when he line the internal diet knows the right amount of boundaries, does not break the boundary, this is the right amount of diet Homemade boundaries.
- What is the sober boundaries of specialization? Here, Bichu sat down during the day, and purified the heart from the law of obstacles. At the beginning of the night, the heart should be purified from the law of obstacles by doing and sitting in peace. In midnight, the right threatened as a lion lying, put [left] foot on the [right] foot, mindfulness, and thought up. In the late night, and then to walk and sit, the heart should be purified from the obstacle method [SN.35.120]. When the province lived overnight [MN.131] He specializes in sober boundaries inside, does not break the boundaries, this is the root homemade boundaries." For the thought, bounded line of bicchu.
- "On the fly, moth, snake": "fly (brown flies) is called the fly. All flies are called moths. On what reason all flies are called moths? They fly up and over and after bites, and for this reason all flies are called moths. Snakes (creepers) are called snakes." For the fly, moth, snake.
- "Contact to man, to four-legged animals": "Thieves, rogues who do bad things or prepare to do bad things are called contact with people. They may ask Bichu questions, or they will join discussions, abusive, slander, anger, annoy, hurt, distress, kill, annoy, or hurt. Whoever is annoyed by any person from the contact of people. Four legged animals, lions, tigers, leopards, bears, dogs, wolves, bison, elephants, they crush, eat, hurt, distress, kill, annoy, or hurt Picchu. There are annoyances from the four-legged animal for whoever the horror of any four-legged animal." For contact with people, to quad legged animals.
- Because then, Worldman said:
- "There should be no fear of the wise of the five horrors, and the bicchu, who are mindful and bounded:
- To fly, moth, snake, human contact, to four-legged animals.
- 200. Nor should be afraid to other law: even after seeing them many horrible,
- It is more important to conquer distress: good as the seeker.
- "There should be no fear of other law: even after seeing their horrible things": "Whoever has not believed in Buddhism, law, or monk is called any other law except the living beings of the law. They may ask Bichu questions, or join the discussion, or abuse, slander, anger, anger, hurt, distress, kill, annoy, annoy, hurt. Many of them are horrible who should not tremble after seeing or hearing, should not tremble (strong trembling), not trembling (strong trembling), should not be afraid, should not fear, not fear (upward fear), There should be no fear (fear all over), should not be terror, should not come to fear, should be not afraid, not frightened, not frightened, those who do not frighten, do not flee, should live in having cut off the fear of terror, have been erected. " For the rest of the law should not be afraid: even after seeing them many terrible.
- "More to conquer distress: Good with the Seeker": "More, there are those that should be conquered, defeated, overtaken, should be ended, should be crushed. "Difficult", there are two kinds of distress: obvious distress and hidden distress... (medium) this is also "inhabited there" as distress. "Good Seeker", the right path (right way), the follow, the reverse track, the uncontradicted trajectory... (in the middle) eight sacred paths, Nibbana and the guiding Nibbana trajectories to seek, to seek, "All that distress should be conquered, defeated, overwhelmed, ended, should be crushed." For more to conquer distress: the Seeker of Good.
- Because then, Worldman said:
- "There should be no fear for other law: even after seeing them many horrible,
- It is more important to conquer distress: the good follow the Seeker."
- 201. by the ill contact, hunger touched, should endure cold and heat,
- Homeless he was touched by those kinds, vitality, effort he should be solid.
- "By the contact of disease, hunger touched": "the contact of sick and bitter is called the contact of disease. Will be the contact of diseases reached, tortured, combined, with: will be eye contact, torture, combined, have; ear disease... by the nose disease... by tongue disease... by the body disease... (medium) flies mosquito wind sun snake Contact reach, torture, bind, have. Hunger is called hunger. It will be touched, tortured, combined, possesses." To be diseased contact, hunger reached.
- "Should endure cold and heat": "Cold" is cold with two factors: cold due to internal agitation, or cold due to external times. "Heat" is heat based on two factors: heat due to internal agitation, or heat due to external times. For cold and hot. "Should endure", it should be cold, hot, hungry, thirst, and the contact with the fly mosquito wind sun snake patient patient, should be abusive, defamatory language, physical suffering, intense, intense Unwittingly, unintended, deadly ninjors and the like." For the cold and heat should endure.
- "Homeless he is touched by all sorts": "'He is by those who are touch', 'will be touched by ill, hungry, cold, hot touched, tortured, combined, possesses." For him was touched by those. "Various kinds", "will be touched, tortured, combined, possesses." For him was touched by those kinds. "Homeless", "The opportunity to know the creation of the club is not done." For homeless [SN.22.3]. Or, the chance of evil deeds, words of evil or evil doings shall not be done." For homeless." He was touched by those kinds of homeless.
- "Vitality, effort he should be solid": all the heart of the vitality of inspire, diligent, hard, diligent, diligent, not fearful, fortitude, persistence, not relaxation of the state of courage, do not give up the will state 、The state of responsibility, the support of responsibility, vitality, vitality, vitality, vitality, positive progress is called vitality, effort. "Vitality, effort, he should be strong": "vitality, effort he should be strong, should be solid, should be a strong holder, established holder." For vitality, effort he should be solid.
- Because then, Worldman said:
- "By the contact of sickness, hunger touched, should endure the cold and heat,
- Homeless he was touched by those kinds, vitality, effort he should be strong."
- 202. There should be no theft, and should not speak falsely, and mercy should reach the weak and the strong.
- Whenever his mind is cloudy, he should know that he should dispel the "dark side".
- "Should not be stealing, and should not speak falsely": "'should not be stealing. 'Here, after Bichu is not given and taken, he should be the one who has not been given, the person who is given, the given shall be given To be expected; they should live without stealing, and to become clean. for which should not be stealing. "Should not speak in vain," 'Here, after Bichu has discarded his words, he should be a delusional, true, truthful, trustworthy, and a person who is free of deception to the world. '" It should not be stealing, and should not speak falsely.
- "Mercy should reach the weak and the strong": "Mercy", whoever has good will, mercy, mercy, mercy, pity, compassion, mercy, alotherness, mercy, mercy, no malice, no harm, no harm, no pity, good root. The "cowardly" belongs to those who tremble, thirst and love is not cut off, and to those who fear fear not being cut off. For what reason are they called the cowardly? They tremble, fear, terror, fear, and come to fear, for this reason they are called the cowardly. The "strong" belongs to those who tremble, thirst has been cut off, and to those who fear that terror has been cut off. For what reason are they called the strong? They do not shake, do not fearFear, not terror, not afraid, do not come to fear, for this reason they are called the strong. "We shall reach the cowardly and the strong with mercy": "In the cowardly and the strong should be reached with mercy, filled with mercy, with mercy, with mercy, with great, with no amount, with no resentment, with no evil heart After all the world lived." To reach the weak and the strong with mercy.
- "Whenever the mind is cloudy he should know": "Whenever" is whenever. "Mind", all hearts, intentions, hearts, hearts (heart), white (whites), intentions, intentions, roots, consciousness, knowledge, and those who correspond to that consciousness. To act evil and heart become cloudy, agitating, moving, impacting, volatile, rotating, uncalm; in words of evil deeds... Deed in bad faith... with greed... with anger... with resentment... in order to hide evil... to jealousy... to conserve falsehood... with hypocrisy... to cunning... stubborn... Passion... to slow... slow... to slow... to relax... with all pollution... with all evil deeds... to all annoy... with all hot heat... with all indigence... to make heart in all bad. Turbid, agitating, moving, impulsive, volatile, rotating, uncalm. "Whenever the mind is cloudy, he should know": "The turbid state of the heart he should know, should know, should not, should know, should know, should be through." For every time the mind is cloudy he should know.
- "He should depart from the Dark Side": "Darkness", the family of the demon, the ruler of the darkness, the family of those who go to the limits, the demons, the relaxation. "The dark side is the side of the magic, the magic trap, the magic hook, the food of the magic, the land of the magic, the place of the magic, the land of the magic, the magic bondage, he should be cut off, should be discarded, should end, should make it come to Does not exist." So that's where he should dispel the "dark side". Or, "The dark side is the magic side, the bad side, the bitterness, the bitterness, the guide to the hell, to the animal world, the guide to the world of starvation, he should be cut off, should be discarded, should end, and should make it come to Does not exist." So also he should dispel the "dark side".
- Because then, Worldman said:
- "Thieves should not be stealing, and not speak in falsehood, and to the weak and the strong with mercy,
- Whenever his mind is cloudy, he should know that he should depart from the Dark Side."
- 203. should not fall into anger, extremely slow control, dug out their roots should live,
- Second cute or uncute, the winner should indeed conquer.
- "Should not fall into anger, extremely slow control": "Anger", that is the anger of the heart, hostility... (medium) brutal anger, anger, heart displeasure. "Extremely slow", here, a certain category of people either by birth, or with a surname... (middle) or disdain others with something. "Should not fall into anger, extremely slow control": "Should not fall into anger and extremely slow control, anger and extremely slow he should be cut off, should be deported, should end, should make it to absent." As should not fall into anger, extremely slow control.
- "After digging out their roots should live": What is the root of anger? Unclear is the root, as well as the reason is the root, I am slow is the root, ashamed is the root, the root is the root, it is the root of outrage. What is an extremely slow root? Unclear is the root, as the reason is the root, I am slow is the root, shameless is the root, is the root, it is the root, it is very slow root. "After digging out their roots should live": "Anger and extremely slow root he dug out, after pulling out, after pulling out, after pulling out, after removal, after removal, completely removed, after disconnection, deportation, after end, make it After the absence should live, should live completely." After digging out their roots should live.
- "Second cute or uncute, the winner should indeed conquer": "Second", the continuation of the sentence; the link of the sentence; the success of the sentence; the combination of words; the connection of words; this is the second sentence, for "second" . "Lovely", there are two kinds of cute: living beings or all kinds of lines. What is a lovely living? Here, whoever is a mother who is of interest to him, who wants to be good, or a father, or brother, or sister, or son, or daughter, or a friend, or a colleague, or a family, or a blood People, these are cute beings. What are cute lines? The color of the consensual... the scents of the sounds... the taste, the agreeable touch, these are cute lines. "Uncute", there are two types of uncute: living beings or all kinds of things. What is an uncute living? Here, whosoever they want to have no interest in him, they want no benefit, and not to dismiss.Those who are safe and want to kill, these are uncute beings. What are not cute lines? Unintended colors, undesired voices... smells... all tastes, unsatisfactory touches, these are uncute lines. "Indeed", this is the decisive (always) word, no doubt, a word of confidence, a word of no doubt, a word of no doubt, the word of instruction, the words of no error [, the words of no failure], this is the definitive word, for" "Indeed". "Second cute or uncute, the victor should indeed conquer": "Lovely, uncute; consensual, undesirable; happy, bitter; joy, worry; wanted, undesirable, The conqueror should win, or the winner should conquer." For the second cute or uncute, the winner should indeed conquer.
- Because then, Worldman said:
- "Should not fall into the control of anger, extremely slow, digging out their roots should live,
- Second cute or uncute, the winner should indeed conquer."
- 204. Hui placed in front and after good joy, should revolt those distress,
- Should conquer the unjoy in the edge, should conquer four sorrows of sorrow.
- "Hui placed in front of good joy": "Hui", that is Hui, understanding, simple selection, study, choice... (middle) insane, positive. "Hui placed in the front behind", here, a certain kind of people put (for) Hui in front of the line, Hui for the flag, Hui for the flag, Hui for the increase, multiple choice, more simple, more deeply considered (Sri Lanka version), more completely deeply considered , To dwell in the person who knows, that character, more than that, the heavier, the person who targets it, to the struggler, to the tilt to that, to the triumph, to which the person who increases, that character, and more It is the one who hears it, and those who target it, toward the hard man, tilt to it, to the triumph, and to the one who ascend, to it, so that he is placed in front and behind.
- Or, 'When walking, he knew, "I walk." Or, when he stood, he knew, "I stand." Or, when sitting, he knows, "I'm sitting." Or, when lying down, he knew, "I lay down." Or, he knows as the movement of the body." So that's also the Hui placed behind the front.
- Or, "cognitive to the actor when moving forward and backward; in front and back view of the actor; cognitive to the actor when [limbs] are stretched; cognitive in behavior when [wearing] clothing, holding a bowl and a coat is cognizant of the actor when eating, eating, chewing, tasting, and knowing to the actor; in the act, living, sitting, lying, sober, speech, and silence is cognizant of the actor. [MN.10] This is also where Hui is placed in the front and behind.
- "Good joy", because of the Buddha's revelation, joy is good joy. Because of the law... monk remembrance... ring remembrance... alms... day... in and out of mind... death remembrance... because of the heart of mind... because of the silent remembrance [AN.1.297] born joy, joy For good joy." For Hui placed in front of good joy.
- "Should repress those distress": "distress", there are two kinds of distress: obvious distress and secret distress... (medium) These are called obvious distress... (medium) these are called secret distress... (Medium) This is also "inhabited there" for distress. "Should repress those distress": "Those distress, he should win, should defeat, should overwhelm, should end, should be crushed." For those who should be in distress.
- "To conquer the disjoy in the side of the earth": "Unjoy," whoever is unrejoicing, disjoy, great disjoy, displeasure, discontent, horror. "On the edge," he is displeased that he should conquer, be defeated, overwhelmed, ended, crushed, crushed." For the disjoy that should conquer on the side.
- "Four sorrows of sorrow should conquer": "Four sorrow law he should conquer, should conquer, should win, should be overwhelmed, should end, should be crushed." Four sorrows of sorrow should be conquered.
- Because then, Worldman said:
- "Hui is placed in front and after the good joy, and it should be against those distress,
- It should conquer the unjoy in the edge, should conquer four sorrows of sorrow."
- 205. What will I eat or where will I eat? Do you sleep well or where will I sleep today?
- These will be sad to find, scholars should revolt: homeless walk.
- "What will I eat or where I will eat": "'What will I eat", 'what rice, or porridge, or noodles, or fish, or meat will I use. ' For me will eatWhat. "Where will I eat", where will I take it: in the house of Chateli, or in the house of Brahmen, or in Bisha, or at the house of the Sudala?" For what I will eat or where I will eat.
- "Do not sleep well or where I will sleep today": "This night is bad: on a wooden board, or on a small mat, or on a leather pad, or on a grass mat, or on a leaf mat, or on a straw mat. Where will I sleep well at night: in bed, or on a bed, or on a cushion, or on a long pillow, or in a monk house, or in a half-roof house, or in a tall building, or in a flat house, or in a cave?" To do not sleep well or where I will sleep today.
- "These sorrow hunts": "These hunts are two kinds of hunt related to food and two kinds of shelter. "Will be sad," will cry as 'will be sorrow'. For these will be sad to find.
- "Learners should revolve: homeless trailers": "scholars", for what reason is called a scholar? "He learns" as a learner. What does he learn? He learns to add quit, also learn to add heart studies, and also learn to add Hui learning. What is Xi Zhen on the quit... (middle) This is the addition of Wisdom. These three studies, when toward (notice), he learns; when he knows... when seeing... when inspecting... when he is careful to establish (resolve) when he learns; when he wins with faith, he learns; when energetic efforts... Now... beware (focus)... when he learns with Hui; when the testimony is supposed to be known; when the knowledge should be known... when the disconnection should be dismissed... when the practice should be dismissed... When he should be practiced... when testifying should be testified, he studied, practiced, good practice, and after being held. Known as a scholars for this reason. "In order to revolve, exclude, break off, calm, dismiss, stop, he should learn to increase the ring, he should learn to increase his heart, and he should also learn to increase the wisdom. These three studies should be learned when toward (notice); when you know... (medium) should learn, practice, good practice, hold and turn up when testifying." For scholars should be revolt.
- "Homeless", how is the home of the doorker? Here, a certain category of people has barriers to home, group barriers... barriers to shelter... barriers to clothes... barriers to food groups... barriers to accommodation... with the needs of patients and medical necessities. Obstacles, so that is home to the walk. How is a homeless walk? Here, Bichu does not have barriers to home, group barriers... shelter barriers... barriers to clothing... barriers to food groups... barriers to accommodation... not having the needs of patients and medical necessities. Obstacles, so that is homeless for the walk.
- "To Mojadha; to Suzaro, and some in the region of Phajai
- Like a wild deer, the Picchu have no place to live. [SN.9.4]
- "The peers are good, the good ones are good, homeless dwellings are always good,
- Meaning to ask skilled behavior, which is without all salmon sex." [Thag. 1.36]
- For the scholars should be revolved: homeless walk.
- Because then, Worldman said:
- "What will I eat or where will I eat? Do you sleep well or where will I sleep today?
- These will be sad to find, the scholar should revolt: homeless trader."
- 206. after getting food and clothing in a timely manner, he should know the meaning of the right amount, to be satisfied here,
- He is a guardian on those, a self-pacer in the village, and he should not speak crude and evil words even when he is enraged.
- "After getting food and clothes in time": "food", rice, porridge, noodles, fish, meat. "Clothes", there are six types of clothing: linen, padded, silk, sweater, burlap, hemp coat. "After obtaining food and clothing in due time": "After obtaining clothing, after obtaining food: no tricks, no talk, no hints, no sarcastic, not in exchange for other maintenance, do not use wood cloth, do not use wood cloth, not to Bamboo cloth, do not apply leaves, do not use flower cloth, no bath cloth, no powder cloth, no clay cloth, no toothed cloth, do not use wash cloth, not to flattering , do not open the river in the mouth, not to meet, do not slander behind (Sri Lanka version), not to domesticate, not to animal life, not to astrology, not to [when] envantment, not [when] send, not to [when] the errands , do not take medical care [, not to build new work], do not give food in return, do not give to cloth, after he obtained, after obtaining, after acquiring, after possession, after receiving." After getting food with clothes in due time.
- "He should know the right amount, the meaning of being satisfied here": "'He should know"Appropriate amount", he should know the right amount in two ways: from acceptance or from use. How is the right amount to know from the acceptance? Even if only some were given, out of mercy [Lord] home, guarding [Lord] home, mercy [Lord] house, mercy [Lord] house he accepted; although many were given, only clothing to protect the body he received and protected his abdominal feeding He accepted. This is to know the right amount from the acceptance. How is to know the right amount from use?
- Ruli province after inspection with clothes: only for the cold defense, heat defense, and fly mosquito wind sun snake contact defense, only for the collection of the pussy.
- Such as after inspection of food: neither for pleasure, nor for intoxication, not for good body, not for solemn, only for the survival, survival of this body, in order to stop injury, in order to finance Van Hong. In this way, I will repel my previous feelings, do not provoke new feelings, health, no fault, live well.
- Ruli province after the use of residence: only for the cold defense, heat defense, and fly mosquito wind sun snake contact defense, only for the removal of the climatic hazard, sitting alone happy.
- After inspection of the patient's needs, medical necessities: only for the defense that has arisen a feeling of annoyance, at most in order to be uncomfortable. [MN.2]
- This is to know the right amount from use. "He should know the right amount," 'In both ways he should know, should know, should know, and should pass through the right amount. ' For him should know the right amount.
- "Here the sense of satisfying", here, Bichu is a satisfied person for whatever clothes, but also for whatever clothes has been satisfied, he does not come to inappropriate evil by clothes, do not get Clothes do not fight, get clothes are not tied, not faintly, sinless, have seen the affected place, out of the Hui earth to use [SN.16.1], and he neither with this kind of clothing has been satisfied Praise oneself and do not defy others, who are there skilled, not lazy, cognitive, and mindful, this is known as the Bichu, which lives in the highest caste of the past [DN.33/AN.4.28].
- In addition, Bichu is no matter what food has been satisfied, and no matter what food has been satisfied praise, he does not come to improper evil because of feeding, not getting feeding is not fighted, not tied The end of the land, not faintly, without sin, saw the affected land, and took away from the land of Hui; and he neither praised himself for the knowledge of this feeding, nor contempt for others, where skilled, not lazy, positive Knowing and mindfulness, this is known as the bicchu of the highest sacred caste of the past.
- In addition, Bichu is satisfied no matter what place of accommodation, and is a praise for what accommodation has been satisfied, he does not come to improper evil because of accommodation, not to get shelter is not fighted, get shelter is not And he neither praised himself for the knowledge of this dwelling, nor despise others, who are skilled there, and do not be lazy, Known and mindfulness, this is known as Picchu, which lived in the highest caste of the past.
- In addition, Bichu is a person who has met whatever patient's needs and medical necessities, and is a praise for what patient needs and medical necessities have been met. Medical necessities came to improper evil, not get the patient's needs and medical necessities do not fight, get the patient's needs and medical necessities are not tied, not faintly, innocent, have seen the affected area And he does not praise himself for the knowledge of the necessities of this patient and medical necessities, nor disdain others, whoever is there skilled, not lazy, cognitive, and mindful, this Known as Picchu, who lived in the highest caste of the past. For he should know the right amount、Meaning of satisfaction here。
- "He is a guardian in those, and a self-made man in the village": "'He is a guardian in that', ''he is a guardian in this', 'guardian of clothes, food, shelter, patient needs and medical necessities. , Guardians, Guardians. So he was a guardian on those. Or, 'He is a guardian, protector, guardian, guardian in all areas. ' So he is also the guardian on those.
- "In the village is a homemakers, prudent, cautious, guardians, guardians, guardians, guardians, guardians, guardians, guardians." For him is a guardian on those, and self-made in the village.
- "Even when he is exerted, he should not speak crude and evil words": "When defamed, reprimanded, defamed, annoyed, blamed, blamed, abuded, he should not go back in vain, crude, and he should not return to the argument. should notBack abusive, should not go back to anger anger, should not return to argument [person, SN.7.2], should not be quarrel, should not argue, should not be disputed, should not be argued, should not be done Uncontested, quarrel, argue, argue, argue, dissent, he should be disconnected, should be discarded, should end, should make it to nonexistent. He should have been separated from quarrels, arguments, disputes, arguments, disobedience, quashed, quashed, departed, departed, freed, bondage, and he should live with a restrained heart." To speak crude and evil words even when they are enraged.
- Because then, Worldman said:
- "After getting food and clothing in a timely manner, he should know the right amount and the sense of satisfying here,
- He is a guardian on those, a self-pacer in the village, and he should not speak crude and evil words even when he is enraged."
- 207. eyes down and do not wander, dedicated to Zen, belongs to more sober,
- After going to calm into the state, he should cut off the intention of thinking, regret.
- "Eyes down and not wandering": "How are eyes confused? Here, Bichu is a man who is unrestless in the eyes, "The one that should be seen is not seen, and the one that should be crossed shall be seen." From garden to garden, from garden to garden, village to village, from town to town, city to city, from country to country, from place to place, he is in order to see a long processions, irregular processions Ever, this is confusing eyes.
- Or, when Picchu is a visitor to his home, walker on the street, he walks unprotected: he walks as he looks at the elephant, looks at horses, looks at the car, looks at infantry, looks at women, looks at men Boys, gazing at men and women, looking at the market, at the doorstep of the house, looking at the top, looking below, looking around all sides, this is also confusing eyes.
- Or, Bichu became an executor of the phase after seeing it, because when living in the root of the eye is not protected, the law of greed and evil bad will flow in, he does not act according to his own control, does not protect the root of the eye, Do not reach homemade [SN.35.120] on the root of the eye, so it is also confusing eyes.
- Or if some Samana, Brahmen, Master Brahmen, after receiving food from faith, they live in performances like this: dance, singing, music, drama, ancient speaking, handbell, cymbals, drums, magic, Iron ball play, bamboo stick play, stunt, elephant fight, horse fight, buffalo fight, bull fight, goat fight, ram fight, rooster fight, quail fight, stick fight, fist fight, wrestling, drill, soldier, Army, military parade, etc., this is also confusing eyes.
- How is it not confusing eyes? Here, Bichu is not a person who is unrestless in the eyes, and does not have an eye unrestless: "What should be seen is not seen, and the crossing should be seen." Not from garden to garden, not from garden to garden, not from village to village, not from town to town, city to city, not from country to country, not from place to place, he is not in order to see long processions in all its forms, The practitioners of irregular processions. This is not confusing eyes.
- Or, when Bichu is a visitor to his home, a walker on the street, he walks defensively: he does not walk while watching like... (middle) does not look around all sides, so it is not confusing eyes.
- Or, Bichu does not become the executor of the phase... (medium) to achieve homemade on the root of the eye, so that it is not confused in the eyes.
- Or, for example, some Samana, Brahmen, after being given food by faith... (middle) parade, etc., are evaders watching performances like this, so it is not confusing eyes." For the eyes down.
- "And not wandering", how is wandering? Here, Bichu is a wandering, wandering: from the garden to the garden... (middle) he is in order to see all kinds of processions, irregular processions, so is wandering.
- Or Bichu vandering in the monk park, wandering: no interest, no reason to lift the ground, without silence from the monk to the monk, from the residence... (middle) said if there is no matter, this is Wandering.
- "And the unwandering", he should be cut off, should be discarded, should end, and should make it non-existent. Should have been separated from wandering, quanned, quashed, departed, left, freed, unbound, he should live from the restricted heart, should become happy to sit alone, loving alone, inner stop Practitioners, do not disregard the Zen, have viewers, gain empty houses, meditators, Zen loving, monochism practitioners, self-Redeemer of their interests." For eyes down with no wandering.
- "Committed to Zen, belongs to how sober": "Committed to Zen", to two aspects: "For the birth of Zen at the beginning of the birth of Zen became the yoke, strong yoke, toward the yoke, toward the yoke, completely upward The yoke, or for the sake of the second Zen... (middle) the third Zen... for the birth of the fourth Zen shall become an upper yoke, strong, toward the upper yoke, to the upper yoke. This is dedicated to Zen. Or, "He has been born to practice, practice, practice, practice, or have given birth to a second Zen... Third Zen... He has given birth to a fourth Zen to practice, practice, and more." This is also dedicated to Zen.
- "To be sober," here, Bichu sat down during the day, to purify the heart from the law of obstacles. At the beginning of the night, walk and sit, so that the heart is purified from the law of obstacles. In midnight, the right threatened as a lion lying, put [left] foot on the [right] foot, mindfulness, and thought up. In the late night, then sit down, and purify the heart from the law of obstacles. [SN.35.120]" is a dedication to Zen, who belongs to the sober.
- "Calm": "Calm", which is the calm, uncaring, bystandstill, the end of the heart, the equality of the heart, the quiet state of the heart, the neutral state of the heart. "Stable state", that is the end of the heart, stability, stability, not scattered, smooth mind, luxury motor (stop), fixed root, steady force, positive. "To calm after the settling state": in the fourth Zen to calm after becoming a state of mind, heart is not confused, mind stable state. To proceed to calm after a fixed state.
- "He should sever the intention to seek, regret": "seek", there are nine kinds of seek: seek, malicious search, harm, kiss, land search, undead search, and compassion related to other people, related to the good and respectful reputation Seeks, and those associated with not being contempt, these are called nine kinds of hunts. For the purpose of seeking intent, for malicious search, malicious intent is intended, for harm to seek harm is intent. Or, for thinking, seeking, thinking, thinking is not clear intention; it is not as intended; I am slow as intention; worthy of intention; fall as intention.
- "Regret", the inaction of the hand (mischievous restlessness) is to regret, and the failure of the foot is also to regret, and the improper is thought (considered) as appropriate, appropriate is thought to be inappropriate, The sinless is thought of sin, sinful is thought to be sinless, where such regret, the path of regret, the state of regret, the remorse of the heart, the confusion of intent, this is called regret.
- In addition, the remorse of the heart, the confusion of mind aroused by two factors: what was done and what was not done. What is the confusion of remorse, the regret of the heart and the remorse of the mind? "I have done my deeds, and good deeds have not been done by me." He was born of regret, the remorse of his heart, the confusion of intent; words and evil were done by me... Good deeds were not done by me... "I did the death, and the death was never done by me." He was born of regret, remorse of heart, confusion of intent; not given but taken by me... Evil was done by me,... delusional words were made by me... offensive words were made by me... foul words by me... Done... Greed was done by me... Malice was done by me... "Wickedness was done by me, and I didn't do it." He gave birth to remorse, the remorse of his heart, and the confusion of intent, which was done and what was not done, remorse of the heart, the confusion of his mind.
- Or, "I'm not all branches on the ring." He was born of regret, remorse of heart, confusion of intent; "I am not the guardian of the root." ... (medium) "I'm not the right amount of diet." ... "I am not a sober." ... "I do not have a sense and mindfulness." ... "Four thoughts have not been practiced by me." ... "Four is not practiced by me." ... "Four gods have not been practiced by me." ... "Five are not practiced by me." ... "Five forces have not been practiced by me." ... "Seven sensations have not been practiced by me." ... "Eight sacred roads have not been practiced by me." ... "Suffering is not known to me. ... "Bitter set was not cut off by me." ... "The way was not practiced by me. ... "Extermination has not been my testimony." He was born of remorse, heart regret, confusion of intent. "He should sever the intention of thinking, regret": "The intention of seeking and thinking and regret that he should sever, cut off, cut off, cut off, should be discarded, should end, should bring it to non-existence ." Regret for his intention to sever the thought.
- Because then, Worldman said:
- "The eyes down and the wandering, dedicated to Zen, belongs to the sober,
- After the start of calmIn order to enter the state, he should sever the intention of thinking, regret."
- 208. Those who read when they are urged by words should rejoice, and in the desolation of the Ganswalker he should destroy,
- He should release good words [but] do not go beyond the boundaries of the people's dispute law he should not be intended.
- "Rejoice should be rejoiced when prompted by the words": "Came", pro teacher, or Ajali pear, or equivalent to a pro teacher, or a friend, or acquaintance, or close, or companions: Alumni! It is not appropriate for you; it is something you have not achieved; it is not for you; it is not for you; it is for your unrestrained interests." After remembrance, it urged him to rejoice, should rejoice, should be happy, should want, should accept, should seek, should pray. Such as a young woman or man who likes to decorate, the head has been washed, get green lotus garland, large jasmine garland, kindness wreath, received in both hands, after wearing on top of his head [MN.5] He should rejoice、 Should be happy, should be happy, should want, should accept, should seek, should pray.
- "As he shouted the treasure, whosoever sees sin shall see,
- The blame, the wise, and the wise man like that, should be close,
- Only those who are close like that are better and worse.
- May He teach and admonition, and let him stop the despicable,
- Indeed, he is loved by the good, and the unrighteous ones do not." [Dha. 76-77]
- "Those who read when they are urged by words should rejoice, and the desolation on the Gansman shall destroy": "The same act, the same recitation, the same learner. "The desolation of the Parker shall be destroyed." The state of the blows and the state of desolation on the Gansman should be destroyed. There are five kinds of heart barren [MN.16] He should break, there are three kinds of barren [SN.45.166] He should also break: the greedy barren, the barren of the barren, the barren of the idiot, he should break, should destroy, Should be completely broken." For the desolation on the Gansman he should destroy.
- "He should release good words [but] not exceed the limits": ""He should be wise to wait words that have interests, have the law, at the right time, with reason and restrained words he should release and should be issued. " For him should release good words. There are two kinds of boundaries: "[but] not exceed the bounds", "Boundaries": the boundary of the appropriate timing and the boundary of the ring. What are the boundaries of the right timing? Words that have passed due time he should not say, words that have passed the boundaries. He should not say, the right time, words that have passed the boundaries. He should not say, words that come at the right time. Words he should not say, the right time, the boundaries of the coming words he should not say.
- "Whosoever indeed comes to the right time, and he says beyond the bounds,
- So he was found to lie down, as the son of a cuckoo bird. [Jat.4.121]
- This is the boundaries of the appropriate timing. What is the boundary of a ring? He should not say, he should not say, the words of evil, he should not say, ignorant words he should not say, false words, he should not say, he should not say, he should not say, unspoken words, he should not say, unclean words he should not say, It should not be told, should not talk, should not say, it should not be said, this is the line of the ring." For him should release good words [but] do not go beyond the limits.
- "The law of controversy over people should not be intended": "People" are Chateli, Brahmen, Bisha, Sudala, in family, out of the family, the heavens, the heavens, people. Disputes, reprimations, reprimations, reprimations, blame, unpraised, not carried praise, or bad bad, or bad bad, or bad, or bad livelihood, he should not give birth to heart, should not give birth to intent, It should not be made to make it happen." For the controversy law on the people he should not have intended.
- Because then, Worldman said:
- "The rejoice of those who read when they are urged by the words, and the desolation of the Paraders shall be destroyed,
- He should release good words [but] not for a long time, he should not have intended to the law of controversy."
- 209. go further in the world there are five kinds of dirt, for those who are in order to revolve should learn,
- In the colors, the voices and the smells, he shall conquer greed upon the tastes and all the smells.
- "Further there are five kinds of dust in the world": "More", the continuation of the sentence; the link of the sentence; the success of the sentence; the combination of words; the connection of words; this is the second sentence, for 'more'. "Five kinds of dirt", color dirt, sound dirt, odor dirt, taste dirt, touched dirt.
- Greedy, not dust, is called dirt, "dirt." This is the same as greedy.semantics,
- After abandoning this dust, the wise men live in the teachings of those who are away from the dirt.
- instead of dust is called dirt... (medium slightly),
- ..., they live in the teachings of those who are away from dirt.
- Dementia rather than dust is called dirt... (medium slightly),
- ..., they live in the teachings of those who are away from dirt.
- "In the world, in the worlds of bitterness, in the world of mankind, in the world of heaven, in the world of the world, in the world of worlds, and in the world." There are five kinds of dirt in the world for a further step.
- "For those who have a mind to revolve": "For those," color dirt, sound dirt, odor dirt, and on the dirt touched. "There are notions", all thoughts, memories, memory state, memory state, do not float state, do not forget the state, [read] read root, mindfulness, mindfulness, mindfulness, thought support, no fork in the road, this is known as reading. Has, fully has, walked in, fully entered, fully sufficient, fully sufficient, with this concept, he is called a mindful. "Should learn", there are three schools: add school, increase the heart, add Hui learning. What is Xi Zhen on the quit... (middle) This is the addition of Wisdom. "For those who are rebellious in order to revolve should learn": "A mindful person is greedy to those who are greedy, greedy to voice, smell greedy, smelt greedy, smells greedy, smells greedy, smells, smells, smells, Learning to increase the ring, should also learn to increase the heart, should also learn to increase the Hui. These three studies should be learned when toward (noted); when you know it should be learned... (medium) should be learned when testifying, should be practiced, should be practiced, should be carried out well, and should turn after being held." For those who have a mind to revolve should learn.
- "In the colors, the voices and the smells, he shall conquer greed in the tastes and the smells of the tastes and the smells.": "In the colors, the voices, the smells, greed in the tastes, and the smells, he shall conquer, It should be defeated, should be overwhelmed, should end, and should be crushed." To conquer greed in the colors, the voices and the smells, to touch upon the tastes and all the things.
- Because then, Worldman said:
- "Further, there are five kinds of dirt in the world, and for those who are mindful of revolting should learn,
- In the colors, the voices and the smells, he shall conquer greed in the tastes and the touches of them."
- 210. In these laws he should be tempted: Bichu, a free mind,
- Appropriate and rightly consider the law, to become the exclusive he should kill the darkness. [Like this Worldman (said)]
- "In these laws he shall be tempted": "On these," touched upon the colors, the voices, the smells, in all the tastes. "Wills", which are the wills of the desire, greed, joy of desire, thirst love, the desire of love, the taking of desire, the scorching heat of desire, the obsession of desire, the flow of desire, the yoke of desire, the yoke of desire, the execution of desire, Desire will cover. "In these laws he shall revolve": "The desires of these laws shall be repulsed, expelled, cut off, shall be discarded, shall end, and should be made to non-existent." For in these laws he should be revolt.
- "Bichu," "Bichu", Zenvan Picchu, or learn bicchu. "Mindful", every reading, with the mind... (medium) mindfulness, thinking, no fork in the road, this is known as reading. With, completely has... (medium) this idea, which is called there.
- "Bichu of mind and heart relief": "into the heart of the first Zen has been dissociated from the cover, relief, good relief, into the heart of the second Zen has been dissociated from all seeking, into the heart of the third Zen has been dissociated from joy, liberation, good Free, into the heart of the fourth Zen has been dissociated from pleasure and bitterness, relief, good relief, into the void the heart of the boundless people has come from color thought, right thought, all kinds of want to break away, relief, good relief, into the heart of knowing the infinitely From the void to think... into the heart of the nowhere has nothing to think... into the heart of the people who want to do not want to be there has been no place to escape, relief, good relief, the heart of the wuanhuan has come from the presence, doubt , forbidden, see the potential trend of troubles, troubles potential trends, as well as with the existing pollution dissociation, relief, good relief, a person's heart has [crude want to be corrupt, bad knot,] from the rough desire to worry potential Trend, the potential trend of evil troubles, as well as with the existing pollution dissociation, relief, good relief, not the heart of the remnant from the residual desire to be greedy, evil knot, residual desire to annoy potential trend, suspected evil troubles potential Trend, and with its existence of pollution dissociation, relief, good relief, Alohan's heart has been from color greed, colorless greedy, slow, lifeless, unclear, slow worry potential trend、There is a potential trend of greedy troubles, potential trend of unclear troubles, and with its existing pollution and external separation from everything, relief, good relief." For the bichu of mind and kindness.
- "Timely and correctly, he considers the law": "Timely", in order to luxury when the heart is floating, it is the right time, beware of the time has entered the timed for Basha that is the right time.
- "At the appropriate time he is dedicated and further in other [timing] he stops,
- At the right time he is delight, at the right time he can focus on his focus,
- At the appropriate time he watched, he was a Zen, a skilled man at the right time.
- When is the right time to try your best? When is the right time to inhibit?
- When is the right time for joy? And what is the right time to lush him?
- Calm of the Heart Appropriate Timing: How to express it to the Zen?
- Try to be in the heart retreat, suppress in the fall,
- When the heart comes to the unhappy, he should immediately delight.
- Whenever beware of joy, become not back, do not fall off,
- That was the right time for him, and his own intentions should be delight.
- Whenever by these methods, become fixed,
- After knowing the mind, you should immediately watch.
- In this way, the wise become the person who knows the right time, the person who knows the right time, and the knowledge of the right time,
- It should always be discernible, the phase of the heart.
- "Appropriate and rightly consider the law": rightly consider the law: "Everything is unconstant." Correctly consider the law: "All doings are bitter." Correctly consider the law: "All law is without me." ... (medium) correctly considered the law: "Any set law is extinguishing."
- "To be exclusive, he should kill the darkness. [Like this worldly (say)]": "The "monothy", the heart, the heart is not scattered, the smooth mind, the luxury of him (stop), fixed root, constant force, positive" to become exclusive. "He should kill the darkness," the darkness of greedy, the darkness of the devil, the darkness of darkness, the darkness of the slow, the darkness of the polluted, the darkness of evil, done blindly, without the eyes, the unwise, With the party, he should not lead to Nibbana should kill, should kill, should be cut off, should be discarded, should be done to end, should make it to non-existent.
- "Worldworld", synonyms of respect. In addition, the "corrupt" is worldly; "destroyed" is worldly; "spoilt the slower" is worldly; "destroyed the slower" is worldly; "destroyed" is worldly; "has destroyed the thorns" for Worldship; "Destroy the polluter" for worldship; "division, analysis, distinction" for worldship; "some end" for worldship; "have been practiced, the heart has been practiced, the heart has been practiced, Hui has been practiced" for worldship ; or "Worldmaster close to the forest, wilderness, edge dwelling (sitting place): less voice, quiet, away atmosphere, person alone, suitable for sitting alone"; or 'Worldship is clothes, feeding, dwellings, The patient's needs, medical necessities are worldly; or "Worldworld is the meaning, flavor, relief, increase the ring, increase the heart, increase the whims, add the heart, increase the whimsiness"; or "Worldzou is four kinds of Zen, four infinite amount 、Four colorless to some points" for worldship; or "Worldship is eight relief, eight wins, nine times the first place to have points" for worldship; or "Worldworld is ten want to practice, ten places to wait to, to the mind, etc., "Worldest is four, four positive, four gods, five, five forces, seven senses, eight holy way" is worldly; or 'Worldworld is ten as a force, four fearless, four fearless, four "There is no solution, six god, six senses" are worldly. Worldworld, this name is not given by the mother; not given by the father; given by a non-brother; given by a non-sister; given by a non-friend; not his relatives; not by Samana and Brahmen; Unheavenly This is the relief of the Buddha, worldly, and under the linden tree, and the acquisition and testimony of all wisdom and wisdom, that is, Worldom. To become exclusive he should kill the darkness. [Like this Worldman (said)]
- Because then, Worldman said:
- "In these laws he should be tempted: Bichu, a free mind,
- Appropriate and rightly consider the law, to become the exclusive he should kill the darkness. [Like this Worldman (said)]"
- Sixteenth [completed] statement of the Scripture of Sharif.
- Eight sets of products sixteen classic instructions have been complete.
- Great interpretation classic has been completed.
+
+Secondly, the statement of the Scripture of Sharif will say
+
+190. [Like this, His Holiness Shariffer:] I had not seen it before, or no one
+     had heard of it,
+
+The master of such a myth: the Lord who came from the heavens.
+
+"I did not see before that": "For me before, I did not see the Worldest with
+this [double] eye, this self: when Worldest lived in the yellow stone rainy
+season under the thirty-three day field of day-day trees , surrounded by a group
+of angels, down the staircase made of stones down the city, which was not seen
+before." For nothing I saw before that.
+
+"[His Holiness like this]": "Like this, the continuation of the sentence; the
+link of the sentence; the success of the sentence; the union of words; the
+connection of words; this is the second sentence, "like this." "His Holiness,"
+this is a word of love, respect, obedience. "His Holiness." "Sherifer," the name
+of the seat, name, name, Anli, common name, name, name, title, word, phrase,
+name. For [His Holiness Sharif like this].
+
+"Or no one has heard of it": "No" is no. "Or", the continuation of the sentence;
+the link of the sentence; the success of the sentence; the combination of words;
+the connection of the sentence; this is the second sentence, "or". "Whoever,"
+Chatereth, or Brahmen, or of the Bishets, or of the Sudala, or in his family, or
+out of his family, or of heaven, or man. For or not anyone's heard of.
+
+"Masters of such a wonderful word": ""'So good words, good words, beloved words,
+pleasant words, [such as] the beautiful voice of the bird roar wonderful voice.
+And the voice of the Worldman from his mouth is eight: the clear, the knowledge,
+the wonderful, and the gracious, concise, not messy, deep, and bright, by which
+Worldworld made the masses known, and the voice is not And besides the crowd,
+the voice of the worldly, like the sound of a beautiful bird. For such a
+wonderful word.
+
+"Master", "Worldmaster, the leader of the merchant, such as the leader of the
+merchant make life through the danger zone of thieves, make it through the
+danger zone of the beast, make it through the danger zone of famine, make it
+through the danger zone of famine No water hazard zone, he made it out, made it
+more and passed through, so that it reached the ultimate place of stability.
+Similarly, Worldworld is the leader of the merchant, making life through the
+danger zone: make it through the danger zone of life, make it through the old
+danger zone, the danger zone of disease... (medium) death danger zone... make it
+sad, sad, The danger zone of bitterness, worries, despair, make it through the
+danger zone of greedy, the danger zone... the danger zone... slow danger zone...
+see the danger zone... the dangerous zone of pollution... make it through the
+danger zone of evil acts, Make it through the greedy jungle, the jungle of the
+dense forest... the slow jungle... see the jungle... polluted jungle... make it
+through the jungle of evil deeds, he makes it out, transcend it, make it pass
+through, make it through. Reach stable, undead, Nibbana. This is Worldhotel as
+the leader of the merchant.
+
+Or, "Worldly is the guide, the revolt, the pacer, the prophet, the deliberate,
+the person who makes it see, and makes it clear." This is also Worldhotel as the
+leader of the merchant.
+
+Or, "Worldom is the founder of the unborn, the producer of the unborn, the
+preaching of the unborn; the knowledge of the way, the knowledge of the
+knowledge, and the knowledge of the way, and [his] disciples now live in the
+way. , and later for the possesses. This is also Worldhotel as the leader of the
+merchant." For such a masters of words.
+
+"The Lord of the Heaven": ""After the death of the worldly day, worldly entered
+the mother's womb with knowledge and knowledge." This is the Lord, who came from
+the heavens.
+
+Or, "The angels are called Satisfaction, and they are the contented, the
+satisfied, the delighted, the delighted, those who have given joy and joy, and
+the Lord who has come to heaven." This is also the Lord who came from the
+heavens. Or, 'The Alohan is called the satisfying, the righteous, the satisfied,
+the delighted, the delight, the full of intent, and his lord who came to the
+Alohan. ' This is also the Lord who came from the heavens. "Lord", Worldmaster
+is the Lord, "Teacher of the Group" is the Lord, "He takes care of the group"
+for the Lord, "He teaches the group" for the Lord, "He admonieth the group" for
+the Lord, "He admonds the group" for the Lord, "He admonds "Fearless to see the
+group" for the Lord, "the group wants to hear, ear, and know' for the Lord,
+"after the group appears bad, he establishes it in good" for the Lord, [he] is
+the crowd of the people of the Bichu (group) The Lord, the lord of the Bichunes,
+the Lord of the Eubos, the lord of all the kings, the lord of the Zadirei, the
+lord of the Brahmen,The Lord of the Bishops, the Lord of the Gundala, the Lord
+of the heavens, the lord of the panheavens, the lord of the monks and the
+teachers of the group. "Come", arrive, complete arrival, complete arrival
+(Thailand version) scattered city. For the Lord who came from the heavens.
+
+Because then, the last Shiliver said:
+
+"[Like this, His Holiness Sharif:] I have not seen before this, or no one has
+heard of it,
+
+The master of such a myth: the Lord who came from the heavens."
+
+191. including the world of angels, if the eye sees,
+
+After dispel all darkness, get joy alone.
+
+"Including the world of angels": "Including the world of angels, the devil,
+including the Gods, including the generation of Samana and Brahmen, including
+the heavens, and men." For the world including the angels.
+
+"As those with eyes see": "When Worldmen sit under the day tree of thirty-three
+days teaching the yellow stone, man sees as the angels see; as humans see, the
+angels also see, if they are The angels see it also by mankind; as it is to be
+seen by the angels." This is as seen by the eye. Or, "Such as some Samana and
+His Holiness Brahmen are seen [to] have been transferred; the non-silent are
+seen [made] silence; those who are insolent are seen [as] have ceased; not
+arriving Nibbana is seen [made] has reached Nibbana and the like.
+
+"As false earrings made of clay, such as half a penny of copper covered in gold,
+
+Being wrapped in the world, the inner is not clean, the outside is very bright."
+[SN.3.11]
+
+Worldworld doesn't look like this. Worldworld to be true, truthful, true, true,
+true, correct, inverted, reality has been revered. The people who have been
+revered are seen; those who have been silent are seen to be silent; those who
+have ceased are seen [works] have been silently. To; those who have reached
+Nibbana are seen [made] have reached Nibbana and so on. Buddha and Worldworld do
+not create behaviors, but aspiring." This is also as seen by those with an eye.
+
+Or, "Worldworld has a clear voice, came to the praise of the voice of praise, in
+the field of dragon, the field of Goldwingbird, the field of Yashura, the field
+of Asura, the field of Kandapo, the realm of the king, the Indra The fields, the
+realm of the day, the realm of the angels, like this, like that, and more since
+then." This is also as seen by those with an eye.
+
+Or worldly has ten forces, four fearless, four unobstructed solutions, six god,
+six Buddhist, Willow, strength, morality, vitality, Hui, he was seen, known, and
+known.
+
+"The good men in the distance appear like the Himalayas,
+
+The unrighteous are not seen here, such as arrows thrown at night. [Dph.21,304]
+
+This is also as seen by those with an eye.
+
+For those with eyes, Worldview is the eye: the naked eye is the eye, the eye is
+also for those who have eyes, eye is also for those who have eyes, the Buddha
+eye is also for the eye, and all eyes are for those who have eyes.
+
+How does Worldhotel use the naked eye as the eye? Worldworld's naked eye has
+five colors: cyan, yellow, red, black, white. Worldly eye hair, in the eye hair
+living place is blue, very blue, upright, beautiful, equivalent to linen (Sri
+Lanka version), the other are yellow, very yellow, golden, orthodox, beautiful,
+equal wings Subtree of flowers. The ends of Worldworld are red, very red,
+orthodox, beautiful, equivalent to the chineal, black in the middle, not coarse,
+moist, correct, beautiful, the same as the moist, the other The white, very
+white, white, yellow-white, orthodox, beautiful, equal to the white star. To the
+world to the natural individual belongs, before the good industry born of the
+naked eye, he saw everything day and night, when the four darkness is also:
+sunset, black [month] of Busa, dense forest, big afi Rain Cloud (Thailand
+Version) black clouds appear. Like this, when he has four darkness, he saw
+everything day and night. There are no walls, blinds, or walls, or mountains, or
+jungle, or groves, as an obstacle to his vision. If a sesame is marked and
+placed in a full car of sesame, he can choose that sesame. Like this,
+Worldworld's natural eye is all over pure, and Worldworld so with the naked eye
+as the eye.
+
+How is Worldview as the Eye? Worldom to clean, transcendent the eyes of heaven,
+see when life and death, in life, in inferior, wonderful, beauty, ugly,
+fortunate, unfortunate, unfortunate, unfortunate, in the knowledge of the whole
+life flow according to the industry: "These creations, with evil deeds, , evil
+deeds, rebuke the saints, wickedness and wickedness industry, they disintegrate
+with the body, after death has come to lifeSuffering, evil, lower bound, hell,
+or these generals, with good deeds, words of good deeds, good deeds, do not
+rebuke the Holy One, have seen and righteous industry, they disintegrate with
+the body, after death has been born to good interest , Heavenly. In this way, he
+saw, cleansed and beyond the eyes of man, when life and death, in life, in
+inferior, wonderful, beautiful, ugly, luckily, and misfortune, knowledge of the
+crews flowing. When he wishes, Worldworld can see one world, two worlds, three
+worlds, four worlds, and five worlds, and ten worlds. Twenty worlds can also be
+seen, and thirty worlds can also be seen, forty worlds, fifty worlds, 50 worlds,
+and 100 worlds, and you can see these thousand small worlds. You can also see
+these two thousand middle worlds, and these three thousand thousand worlds
+[AN.3.81]. Or if he wants to reach, he will see. Like this, worldly eyes are
+pure, and worldly eyes as the eye.
+
+How can Worldhotel take eye-eye as an eye? Worldworld is the Great Wise, the
+Bohui, the Jetwise, the Fast, the Wiser, the Insight of the Wisdom, the Wisdom
+of the Wise, the Wisdom developed, the proven unobstructed, the four fearless,
+the holding of ten powers, the man like a cow, Lion, Hyun Chun, Affordable,
+Wise, Glorious, Fame, Rich, Rich, Rich, Rich, Rich, Guide, Restless, Soother,
+Informer, Inducer, Incillator, Makes The Seeing and the Clearer, the founder of
+the unborn, the producer of the unborn, the preaching of the unborn; the Knower
+of the Sake, the Knower of the Knower, the Knower, the Knower of the way, and
+the Knower of the way, The disciples now dwelt in the way of the way, and later
+the possesses.
+
+The Worldman is indeed a Knower and Seeker, who knows and sees; is the bereaver
+of the eye, the man who is born, the living of the law, the man who is born, the
+man who is born, the man who is born, the man who is living, the man who is
+living, the man If there is no one who does not know, not seen, unknown, not
+testified, not reached by Hui, the past, future, now on all laws come to the
+Buddhist, world pride of the wisdom of the field, where there is any name The
+[law] that should be guided by inference can be known: one's own or the meaning
+of others or both, or the meaning of the life or the meaning of both, or deep or
+hidden or hidden meaning or secrecy The meaning of the meaning, or the meaning
+that should be guided by inference or which has been guided to determine, or a
+no-fault or pollution-free, or clear meaning or of the supreme interest,
+everything is turned around within the Buddhist Chi.
+
+Buddhist, Worldworld wisdom about the past is barrier-free; [Buddha, Worldworld]
+wisdom about the future is barrier-free; wisdom about the present is
+barrier-free, all careers with Buddha, worldly wisdom; all language industry...
+all The wisdom of industry, worldship, all should be guided by inference is the
+wisdom; all wisdom is to be guided by inference, should be guided by the
+ultimate wisdom of inference; wisdom is the ultimate Should be guided by
+inference, beyond should be guided by the postwisdom of inference; beyond wisdom
+should not be guided by the way of inference, these laws live in mutual limits,
+such as the two cover is completely in contact, the following The lid does not
+cross the above; above the lid does not cross the below, is in mutual
+restrictions. [Similarly,] all the things that should be guided by inference is
+wisdom; all wisdom is what should be guided by inference, the ultimate wisdom
+that should be guided by inference; the ultimate wisdom of wisdom should be To
+guide inference, beyond should be guided by the postwisdom of inference; beyond
+wisdom has no way to be guided by inference, these laws live in mutual limits.
+
+Buddhist, worldly wisdom turned up in all laws, all laws for Buddha, worldly
+steering, hope, mind, heart, Buddha, worldhood in all living beings, worldom
+knows all living beings Intent, know the potential trend of trouble, know
+behavior, know the solution (ambition), know about less dirt, much dirt; the
+root, blunt root; good deeds, evil deeds; easy to teach, unteachable; The beings
+with power and power, including heaven, demon, and in the world of Van,
+including Samana, Brahmen, Heaven, and the generations of men turn throughout
+the Buddha Chi.
+
+As any fish, turtle, and even the big fish of the boat, turn in the sea, the
+same, including heaven and demon, and in the world of Van; including Samana,
+Brahmen, Heaven, and the generations of man turn throughout the Buddha. Such as
+any bird and even the goldwingbirds of the great children of Verna turn in the
+void. Similarly, where those [have] the same Hui with SheriferThey also turned
+around in the field of Buddha Chi. Buddha Zhi all over, beyond the heavenly
+people after the Hui lived. Those who are wise Chardaliers, wise Brahmen, wise
+owners, wise Samanads, smart dissidents, sharp breakers want to do evil opinions
+in the gesture of wisdom, they prepare problems later to see , and then asked
+the hidden and hidden [rationality], those questions were talked about and
+answered by Worldman for explaining reasons, and nearly abandoned those who
+became worldly [disciples], when Worldom was there that "Ehui" Glorious.
+Worldhotel so with eyes as an eye.
+
+Worldhotel such a Buddha eye as an eye? Worldly observes the world with the
+Buddha's eye, seeing less dirt, much dirt; the lagan, blunt root; the deeds of
+good deeds, evil deeds; easily taught, uneducated; some of the sins and horrors
+that live in seeing in other worlds The、Others do not live in seeing sin and
+terror in other worlds. Like in the green lotus pool, red lotus pool, white
+lotus pool, some green lotus, red lotus, white lotus live in the water, grow in
+the water, depending on the water, shen in the underwater growth; some green
+lotus, red lotus, white lotus are born in the water, grow in In the water, dwelt
+on the same high as the surface of the water; some lotus, red lotus, and white
+lotus are born in the water, long in the water, rising out of the water and
+dwell, Similarly, worldly observes the world with the Buddha's eye, seeing less
+dirt, much dirt; the lagan, blunt root; the deeds of good deeds, evil deeds; the
+teaching, uneducated; some of those who live in other worlds Sins and horrors,
+others do not live in seeing the sins and horrors in other worlds [para. 14,
+69]. Worldworld knows: "This man is a corrupt man, this person is a trader, this
+man is a trader, this man is a walker, this person is a believer, this man is a
+wise walker." Worldworld speaks unclear to the corrupt. Worldworld informs the
+practice of Mercy to the people of the Parker Worldroom for the dementer to rest
+in recitation, questioning, hearing of timely law, discussion of timely law,
+teacher's cohabitation. Worldworld informs the whoever sought. Worldworld tells
+the believers who believe in confidence: the good consciousness of the Buddha,
+the good law of the law, the good practice of the monk and his own ring.
+Worldworld told the wise man of the wise man that the phase of Basha:
+inconstant, bitterness, and without me.
+
+"If you stand at the top of the rock mountain, you can see all the people,
+
+Likewise, the good, and all the eyes, go up the high buildings of the law,
+
+And those who have gone away, look at those who are sadly and conquered by life
+and old
+
+Please get up! Heroes! The winner on the battlefield! The leader of the merchant
+team, the unindebted in the world,
+
+Worldworld! Please teach the law! Will (will) have the knowledge." [DN.14, para.
+69]
+
+Worldhotel so treat the Buddha's eye as the eye.
+
+How can Worldhotel take all eyes as an eye? All eyes are called the state of all
+knowing wisdom. Worldworld arrival (with), full arrival (with), entry, full
+entry, full, fully sufficient, with all knowledge of the state wisdom.
+
+"For him there is nothing unseen here, and there is no knowledge, and cannot be
+known,
+
+He testifies that whosoever exists should be guided by inference, as it is for
+all eyes. Ps.1, para. 121]
+
+Worldhotel so with all eyes as an eye." As for those who have an eye see.
+
+"Excuse all darkness": "All greedy darkness, the darkness of the fool, the
+darkness of the slow, the darkness of seeing, the darkness of the polluted, the
+darkness of evil, done blindly, do not make eyes, do not do wisdom, The annoying
+companion party, does not guide Nibbana after his exclusion, after removal,
+after abandonment, after discarding, after deportation, after the end, so that
+it does not exist." For the removal of all darkness after.
+
+"Alone to get joy": "'Alone ', Worldhotel in the name of the home alone, with no
+partner righteousness as alone, to the thirst of love to be alone, "always away
+from greed" as alone, "always away from the heart" for alone, " Alone, "always
+deprecated" is alone, "always no pollution" is alone, "has gone through no fork
+road" is alone, "has no sense of all over again" is alone.
+
+How is Worldhotel alone in the name of a home? "When Worldmaster is young,
+brunette youth, with the happiness of youth, at the beginning of life, even if
+parents do not want, tears, cry, lament, still abandon the family, cut off all
+obstacles at home, cut off their children's wives Obstacles, cut off family
+barriers, cut off the barriers of friends, cut off storage barriers, shaving
+hair, wrapped in a surplice, from home from home, become a non-home life, into
+the state of nothing alone, live, act, Turn up, guardian, make survival, make
+survival. ' This is Worldhotel alone in the name of a home.
+
+How is Worldworld with no partnershipFor Alone? "When he went out so alone, he
+was alone with forest, wilderness, living on the edge (sitting place): a little
+voice, quiet, away from the atmosphere, people alone, suitable for sitting
+alone; he alone, walking alone, standing alone, standing alone, Sit alone, lying
+alone, alone in order to go into the village [, alone], return alone, sit alone,
+alone, alone, live, action, turn up, guard, make survival, make survival. " This
+is worldly alone with no partner.
+
+How is Worldworld alone with the disruption of thirsty love? He was so alone and
+without a partner, when he lived in the uncomfortable, zealous, self-effort,
+under the Linden tree by the Neren Zen River, with great diligence and
+diligence, destroying the devil with the army, the evil demons, and the
+relatives of the relaxation, The net, the might-flowing, and the entangled
+thirst loved him to cut off, dispel, and end, and make it come to absent
+
+"With thirsty love as a companion, a long time reincarnation,
+
+Become such a state、Other state, do not go beyond reincarnation。
+
+Knowing after such an affliction: thirst love is the origin of bitterness
+
+From thirst love, no take, Bichu should march in a mindful manner."
+[It.15/Sn.3.12,745-746]
+
+This is worldly alone with the disregard of thirsty love.
+
+How is Worldhotel alone with "always away from greedy"? "One of the derelicted
+state of greedy is away from greedy" for alone, "one of the state of
+disconnection of the dereliction state" is alone, "one of the deprecated state
+of dereliction" is alone, "one of the disconnected state of pollution has never
+been "Pollution" is alone. [This is worldly alone with "always away from
+greedy".]
+
+How is Worldworld "has passed the road without forks" to be alone? No fork road
+road is known as four, four Zhengqin, four gods, five, five, seven, seven, eight
+holy road.
+
+"Seeing the extinction of life, and those who have mercy, know the way without
+forks,
+
+In the past, they will be and now." [SN.47.18]
+
+This is Worldworld "has passed the road without forks" for alone.
+
+How is Worldship "Alone Is Now Right Right" for Alone? Sculpture is called in
+four ways of wisdom [, Hui], Wisen, Wisen, choice of the method of Jakuzhi,
+study, Bisherna, positive view. Worldhotel with the sense that "everything is
+impermissible"; "All laws are without me"; feel "There are signs of work";
+"These are troubles"... (middle) "This is a guide to annoyance. "Think "these
+laws should be widely known"... should be discarded... should be practiced...
+feel "[these laws] should be testified"; Ju six touches the collection,
+extinction, taste, overhaul, exodus, and out; The set up, extinguished, fun, too
+sick, out; feel four big set, extinct, fun, too sick, out; feel "any set method
+is extinction method".
+
+Or, whoever should be perceive, should be casual, should be awakened, should be
+righteous, should be attested, should be touched, and should be testified,
+everything is by that sense of consciousness, Awakening, righteousness,
+testifying, touching, testifying. This is the Worldship "Alone is now all right"
+for Alone.
+
+"Get Joy", "Joy", Joy from desire, from joy, joy of silence, joy of
+righteousness He receives, arrives, testifies, touches, testifies. Joy for Alone
+
+Because then, the last Shiliver said:
+
+"Including the world of angels, if the eye sees,
+
+Depart from all darkness and get joy alone.
+
+192. he who is a thinkler, a man who does not stop, and he who is like that, the
+     unwittingly,
+
+Here belong to many of the bondage, there is a need to come with problems.
+
+"That is the senser, the unstoppable, the person like that": "The Revelation
+(Buddha)", that the worldly, the one who is alone and without a teacher who has
+not heard of before, is now aware of the truth, where he has reached everything.
+Knowing the state, the person who reaches the state of comfort in power. What is
+the meaning of the "Illusion"? "The Truth" is the Buddha, "make the living feel"
+as the sensation, the state of all knowledge as the sense, the state of
+everything is seen as the illusioner, a state that will not be guided by other
+as the sensation, and the flow of all kinds as a sense, To the annoyance has
+been given the name of the person who has been given the name of the
+illustrator, the "always away from the greedy" as the sense, "has been away
+from" as the sense, "always away from the dementia" as the sense, "always
+deprecated" as the sense, "always de "No polluter" is the sense, "has passed the
+road without the road" for the sense, "Alone is now full of sense sense" for the
+sense, the state of feeling not being killed for the sense, feel the state of
+feeling is the sense of feeling. "Illusion," "This [name] non-motherWhat is
+given; not the father gave; given by a non-brother; given by a non-sister; given
+by a non-friend; not his relatives; not Samana and Brahmen; and the unheavenly
+given, this is the relief; The senser, the worldly, and Anri (Kana) under the
+Linden tree and all the wisdom of knowledge and testimony, is the Seeker. For
+that is the senser. There are two kinds of stops: thirst for love and the stop
+of seeing. What is the stop of thirsty love? All are called as bounds [, as
+realms], as ranges, as fanned boundaries, clutched, and treated as their own:
+This is mine, this is mine, and so much is mine, so much is mine, This range is
+mine; my colors, sounds, smells, tastes, touches, spreading things, coats, maids
+and servants, goats and sheep, chickens and pigs, elephants, cattle and horses,
+mule horses, fields, homes, gold, Gold coins, villages, towns, kings, places,
+treasures, warehouses, all the earth, because of their thirst for love and
+treating them as their own, all 108 kinds of thirsty love tide [AN.4.199], this
+is Thirsty love stops.
+
+What is Seen Stop? There are twenty personal opinions, ten wickedness, ten
+sidelines, and ten sidelines, such as such see, evil opinion, jungle, desert,
+distorted, shaken, bound, seppling, acceptance, Hold, perform, clamp, upside
+down (vipariyesa) clamp, upside down (vipariyesa) clamp, upside down (vipallāsa)
+) The grip of the evil, the clasping of the evil, the "[see] true in the untrue"
+clasping, all come to the place of 62 evil opinions, which is the end of seeing.
+
+"For Buddhist, worldly love has been cut off, see the stop has been dismissed,
+with thirst on the basis of love has been cut off state, see the state of the
+relay has been dismissed, worldom is the eye does not stop, ear... Nose...
+tongue... body... no stop, all colors... voices... smells... all tastes... touch
+[... all]... groups (public)... shelter... benefits... reputation... Praise...
+music... clothes... feeding... shelter... patient needs and medical
+necessities... desires... color circles... colorless... I want to have... four
+has... five holds... the past... the future... now... is what you see, smell,
+feel, can be knowledge of all the methods that do not stop, do not stick, do not
+fall into, The one who does not hold, does not put the heart toward (victory).
+He has departed, departed, liberated, and from the bondage, and dwelt with a
+restrained heart." For the one who is a sense, does not stop.
+
+"Like that," Worldman is like that in five ways: for those who are satisfied or
+unsatisfied, the "abandoned" is like that, the "passed" for the like, and the
+"freed" for A person like that、It is described as like that。
+
+How is Worldworld for those who are satisfied or unsatisfied? Worldly is given
+as the one who is like that in not, as well as in [having] honor; for those who
+have no reputation; for those who are not honored; for those who are like in
+praise; and in rebuke For those who are also like that in the music; for those
+who are like in bitterness, some wrist spices will be painted with spices, some
+wrist work with an axe: He is not greedy in that way; there is no greedy in that
+way. Evil has been cut off with greed and evil, has overcome victory or defeat,
+has crossed obedience and opposition, so that Worldhm is the same in either
+satisfactory or dissatisfied.
+
+How is Worldman "Abandoned" as a person like that? Worldest greed has been
+abandoned, spit out, released, dismissed;... (medium) obsession... anger...
+resentment... obsession... obsession... obsession... obsession... jealous...
+hypocrisy... cunning... stubborn... Passion... slow... slow... slow... relax...
+all pollution... all evil deeds... all irritated... all hot... all irritated...
+all bad work has been abandoned, spit out, released, dismissed. 、Conception, so
+that the worldly "forsaken" is like that.
+
+How is Worldman who has passed it for like that? The torrents of worldly desires
+have passed; some of them have passed; the riot of sight has passed; the unclear
+rim has passed; all the circuits have passed, have come out, have crossed,
+crossed, overcome, he is Decreased, Actor, Completed Journey, Those who Have
+Arrived, Those who Have Arrived, Those who Have Been Guarded the Ganswalker,
+Reach the Highest Visionary, Trainee, DisconnectedThe polluter, the one who has
+passed unshakeable, has testified to him that bitterness has been known, the set
+has been cut off, the way has been practiced, destroyed has testified, has been
+known, known to be known, has been cut off A person who has been practiced
+should be practiced, and has testified shall be testified. He is the one who has
+been removed, the ditch is filled, the column has been pulled up, the latch, the
+saint flag has fallen, the burdens have been removed, the separated, five
+disconnected, six possesses, one guardian, four Trust is those who have removed
+their own truths, those who seek to be outraged and completely decimated, those
+who have no intention of turbid, those who have done serenity, those who are
+liberated in good faith, the supreme who have been fully completed, the supreme,
+the supreme, the supreme, the proven With great achievements, he is neither
+composed nor disassembled, does not build up, does not stand after stacking up;
+neither dissipates nor performs, and does not disperse (Thailand version) nor
+accumulate, dispersed after standing; neither extinguishes nor ignites, After
+extinguishing [SN.22.79], is a state of residence with no school abundance, a
+state of residence with no learning, a state of residence with no learning, a
+state of residence with no learning to escape The standers who have no learning
+to free the state of wisdom, the completion and passage through the real
+(meaning), the standerter after crossing the disturbance (move greedy), the
+resident after the polluting fire extinguished, completely no longer come to the
+state of residence The standerter, who has made [victory] grasp after the grasp,
+the settler by the state of relief, the mercy of pure dwellers, the sadness of
+pure dwellers, the joy of pure dwellers, calm and pure standers, what All the
+pure dwellers, no equivalent state (Ceylon version) all over the pure standers,
+the liberated state of the standers, the liveholder who has satisfied the state,
+the live in the ultimate (boundary), the ultimate in the boundary Renders, in
+the ultimate, in the end of the fun, the ultimate staker, in the end of life,
+the live in the ultimate life [, the ultimate stand-up on the existence of the
+ultimate, the dwelling on the ultimate in the reincarnation The man, the dweller
+on the ultimate rotation, the dwell in the line of the ultimate, the staker on
+the last, the staker on the last gathering (body), the worldly of the last body.
+
+"This is his last, this is the last gathering (body),
+
+Life and death reincarnation, without his regeneration.
+
+This is the Worldman who has passed it for like that.
+
+How is Worldman "freed" as a person like that? Worldly heart has been liberated
+from greed, liberated, and righteous; the heart has been from evil... from
+anger... from anger... from desperate... from desperate... from jealousy... from
+stingy... from hypocrisy... from cunning... ... from stubborn... from passion...
+from slow... from extreme slow... from easing... from all pollution... from all
+evil deeds... from all annoying... from all scorched heat... from all
+worsening... from all worsening... from the heart All unrighteous creates
+relief, expands relief, good relief, so that the worldly "freed" is like that.
+
+How is Worldplace that described as a person like that? Worldworld "is a ring in
+the ring" is described as a person like that; "Believer in the letter" is
+described as a person like that; "Vibrant in vitality" is described as a person
+like that; "in the mind is a thought It is described as a person like that; "On
+the Saying is a man," the one is described as such; "There is a Wisdom in the
+Hisan," the one described as such; "There is a Sanming in the clear." It is
+described as a person like that; "Ten in Ten Forces" is described as a person
+like that, and this is the Worldworld as a person like that." For the one who is
+a sense, the one who does not stop, and like that.
+
+"Non-tricky, come to the Lord": ""Non-trickery", "Three kinds of trickery: the
+means by means of the trickery, the trickery of deeds of behavior, and the
+circumference of the trickery.
+
+What is the trickery of the instrument? Here, the owners of the house invite
+Bichu with clothes, food, shelter, patient needs, medical necessities. He is a
+wicked desire, a person who desires nature, a person of hope, for clothing,
+food, shelter, the needs of the patient, Medical essentials expect more and
+refuse clothing, refuse to feed, refuse shelter, refuse patients' needs, medical
+essentials, and he says, "What is a high-value clothing for Samana! Where the
+salmon should be put on a coat after picking rag from the mound or in front of
+the garbage pile or shop door, it is appropriate. What is it for Samana with
+high value feeding! Where the Samana should take a little bit of the spike to
+survive, it is appropriate. What is it for Samana with a high value
+accommodation! It is appropriate that whamon should be those who live under the
+tree or in the mound or in the open ground. With high value diseaseWhat are
+human needs and medical necessities for Samana! [Where salmon should be used
+with bovine urine fermented medicine or crushed Haliel, which is appropriate.
+After taking it, he was wearing coarse clothes; he was feeding in coarse; dwelt
+in a rough place; and he used the necessities of a rough patient, and a medical
+necessity.] The owners knew him so: "This Samana is the little wishful, a man
+who is enough, alone, a man away from the masses, a man whose vitality has been
+initiated, and the head of the head." They are more and more inviting their
+clothes, feeding, shelter, patient needs, medical essentials. "And he says,
+"Three of the present states have faithfulness men produce many fords: the
+current state of faith is a good man. The current state of many fords, the
+present state of the mercy of a man produces many fords, worthy of the present
+state of the present state of faith good men produce many ford. You are the
+believers, and I am the recipient, and if I do not, then you will be an outsider
+of Ford, which is not needed for me, but for the sake of mercy on you And I
+accept it. After performing it, he received many clothes, as well as many food,
+lots of dwellings, and many patients 'needs, medical necessities. The frowning
+of whosoever such frowns; the path of the tricker, and the state of the
+trickery, this is the trickery of the instrument.
+
+What is the trick of behavior? Here some kind of evil desires, those who seek
+nature, and those who desire respect [thought]: 'Then people will respect me. '
+He is placed to walk, set to stand, sit down, lay down, lay down, walk for a
+desire, stand for a desire, sit for a desire, lie down for a desire, such as
+walking by a person who is established, standing as a person who is established
+、Sit down as a person who is determined, lying down, and become visible as a
+zen. Whoever acts like this place, strengthen the placement, complete placement;
+the frowning of the frowning; the path of the tricker, the state of the
+trickery, this is the trickery of the deed.
+
+What is the perimeter trick? Here some kind of evil desires, those who seek
+nature, and those who desire respect [thought]: 'Then people will respect me. '
+He spoke according to holy law, and he said, Whoever is dressed like this, he is
+the Samana of great power. He said, "Whoever holds a bowl like this... holding a
+copper bowl... holding a filter tank... holding a filter bag... holding the
+keys... wearing shoes... wearing a belt... the lacer, he is the salmon of
+power." And he said, Whosoever his monk is like this, he is the Samana of great
+power. He said, "Whosoever his teacher equates with a monk like this... as a
+teacher... friends... acquaintances... those who are close... companions like
+this, he is Samana, the great power." He said, Whosoever dwells like this, is
+Samana, the great power. He said, "Whoever lives in a half-roof like this...
+lives in high buildings... in flat houses... in cave... in the caves... in the
+cottage... in the chalet... in the Lookout... The round house... lives in a
+shed... in a lecture hall... in a tent... who lives under a tree like this, he
+is the Samana of great power."
+
+Or, the constant frowning; the constant frowning; the constant tricker; the
+constant nagging; the person who is respected by his mouth, who says such deep,
+secret, subtle, secret, secrecy, born, empty talk : 'This is for Samana to get
+this place like this [silence] until." Whoever frowns like this; the path of the
+tricker, the state of the trickery, this is the circumference of the trickery.
+"For Buddha and Worldhood, these three trickery things: the means to be subject
+to the scheme of trickery, deeds of behavior, the surrounding language of the
+trickery has been cut off, cut off, calmed down, stopped, cannot be born, It is
+burned by wisdom fire, so Buddha is a non-tricky." For non-tricky.
+
+"Coming to the Lord", "Lord", Worldly Lord, "Teacher of the Group" for the Lord,
+"Master of the Group" for the Lord, "He takes care of the group" for the Lord,
+"He admonds the group" as the Lord, "He admonds "Group" for the Lord, "He
+fearlessly to see the group" is the Lord, "the group wants to hear, ear, and
+know' for the Lord, "after the group is bad he establishes it in good" for the
+Lord, [he] is The lord of the Pichu, the lord of the Bichunes, the lord of the
+Eubos, the lord of the Uboa, the lord of the kings, the lord of the Zadirei, the
+Lord of the Brahmen, the Bisha The Lord of the Gundala, the lord of the godala,
+the lord of all the heavens, the lord of the heavens, the lord of the monks and
+the teachers "Come", Arrival, Full Arrival, Complete Arrival (Thailand Version)
+Fatty City. For those who do not trick, come to the lord.
+
+"Here belong to many of the bondage."Belonging to many Chateli, Brahmen, Bisha,
+the Gordala, those who are in the house, out of the house, the heavens,
+"Belonging to the bondage" belongs to the bondage, to the attendant, to the
+servant, to the disciples. For here belong to many of the bondage.
+
+"There is a need to come with questions": "To question I need to come, want to
+ask questions I arrived, want to hear questions I come." So there is a need to
+come with questions. Or, "is a question that is in need, belongs to those who
+want to ask questions, belong to those who want to hear, there will be a need to
+come, approaching, approaching, and visiting." It is also necessary to come with
+the question. Or, "For the coming of your question, you can, and you have enough
+reason to tell and answer what I asked, please bear this burden." It is also
+necessary to come with the question.
+
+Because then, the last Shiliver said:
+
+"He who is a sensation, he who does not stop, and he who is like that, the
+unwicked, and who cometh
+
+Here belong to many of the bondage, there is a need to come with problems."
+
+193. when Bichu is bored, close to the unmanned seat,
+
+Or under trees, between the caves, or in the cave
+
+"When Picchu gets bored": "When Picchu," Zenvan Picchu, or learn bicchu. "Be
+bored", tired, tired of old, sick... died... being grieved... suffering... be
+worried... being desperate and bored, by the bitterness of hell... by the
+bitterness of the animal world... by the hungry ghost world... ... the
+bitterness of man... is rooted in the birth of the bitterness... is rooted in
+the bitterness of the birth... the bitterness of the birth... is born of other
+bitterness... is [for] the suffering of efforts... ... suffering by other
+efforts... being suffering... being suffering... being easily suffering... being
+suffering by eye disease... by ear disease... by nose disease... suffering by
+tongue... suffering by a physical illness... by the head disease... The pain of
+the external ear disease... was suffering from mouth disease... was cough...
+being pumped... by external nasal disease... being fever... old... by abdominal
+disease... being unconscious... by the abdominal pain... by cholera. ... by
+leprosy... by tumor... by ringworm... by lung disease... Ringsoriasis... by
+scabies... being scratched (a kind of sickness)... cracked skin... bloody...
+choleopathy... ... Diabetic... Hemorrhoids... Rash (boils blisters)...
+Hemorrhoid fistula (ulcer)... Disease that is erected by the gall... Disease of
+sputum... Diseases waiting by the wind... Diseases... diseases born from
+changing times... diseases born out of improper posture... Diseases that are
+suddenly struck... the disease of the industry's killer, cold... being hot...
+hungry... thirst... Dung... was urinated, the bitterness of the contact of the
+mosquito, the bereavement of the mother... the suffering of the lost father...
+the lost brother... the lost sisters... lost to her family... lost their
+possessions... Loss... lost by disease... being lost by virtue... to be seen
+loss of distress, distress, anxious, disgust." For when Picchu gets bored.
+
+"Close to the unmanned seat": "He sat down is called a seat: bed, chair,
+cushion, small mat, leather pad, grass seat cushion, leaf seat cushion, straw
+seat cushion. The seat, the unsuitable shape of the sight is cut off, isolated,
+away from; the hearing of inappropriate sound is dismissed, isolated, away; [the
+smell of inappropriate smell... inappropriate taste of taste... improper touch
+[contact...] inappropriate five kinds of want to be dismissed, isolated, away
+from the seat, he is close, completely close, follow, bend to follow, completely
+follow, toward obey." For a seat that is close to no one.
+
+"Or under the trees and between the Tsukama": "It is under the tree, that is,
+the Tsukaman is For or under the tree、Tsuka。 "Or in the cave": "is the
+mountain is a mountain, that is, the cave is a cave, is the cave for the The
+inner body of the mountain is called the cave of the mountain." For or in the
+cave.
+
+Because then, the last Shiliver said:
+
+"When Bichu was bored, close to the unmanned seat,
+
+Or under trees, in the caves, or in the cave.
+
+194. How many horrible are there in every kind of lying place,
+
+Bichu should not be because of those fighters: in a quiet residence?
+
+"In the seeds": "In the seed, in the species, in the wretched and victorious,
+pure and evil. Houses, dwellings, half-roofed houses, tall buildings, flat
+houses, caves are called sleepers. For the kind of sleeping. "How many horrible
+are there": "How many tweets, yelling, sounds produced. Or, "how many", thoseHow
+many, how many, a few, how many - many. "Frightening": lions, tigers, leopards,
+bears, wolves, bison, elephants, snakes, scorpions, centipedes, or thieves or
+gangsters who do bad things or prepare For how many horrible there are.
+
+"Bichu should not be because of those fighters": "Because of those who are
+terrible, they should not tremble after seeing or hearing, they should not
+tremble (strong trembling), they should not tremble (mighty trembling), There
+should be no fear, should not be afraid (upward fear), should not fear (fear all
+over), should not be terror, should not come to fear, should be not afraid, not
+frightened, not frightened, not frightened, not fleeing, I should dwell in
+having cut off fear of terror, and have left the hair erected." For Picchu
+should not be because of those fighters.
+
+"In a quiet place": "In a quiet, quiet, away atmosphere, alone, suitable for
+sitting alone." In a quiet accommodation.
+
+Because then, the last Shiliver said:
+
+"How many horrible are there in all sorts of sleeper,
+
+Bichu should not be because of those fighters: in a quiet residence?"
+
+195. how much distress in the world, for the walkers who have not gone to the
+     direction,
+
+In those on Picchu should conquer: the residence on the edge?
+
+"How many distress in the world": "How many, how many, how many, a few, how many
+- many. "Difficult", there are two kinds of distress: obvious distress and
+  hidden hazard. What are the obvious distress? Lion, tiger, leopard, bear,
+  wolf, bison, elephant, snake, scorpion, centipede, or thief, rogue, eye
+  disease, ear, nose disease, tongue disease, body disease, head disease,
+  external ear disease, mouth disease , tooth disease, cough, wheezing, external
+  nasal disease, fever, old, abdominal disease, coma, dysentery, abdominal pain,
+  cholera, leprosy, tumor, ringworm, lung disease, epilepsy, Ringsoriasis,
+  Tricky, Scratching , blood disease, choleopathy, diabetes, hemorrhoids, rash
+  (boil blisters), hemorrhoid fistula (ulcer), gall etc. (medium) cold, hot,
+  hungry, thirst, feces, urine, contact with habbutymosquito These are called
+  obvious distress.
+
+What are the secret distress? Wicked deeds, words evil, malicious acts, wishful
+cover, malice cover, sleep cover, fall and regret cover, suspect cover, greedy,
+indignation, anger, resentment, hiding evil, arbitrary, jealous, stingy,
+hypocrisy, hypocrisy, cunning, Stubborn, passion, slow, very slow, slow, relax,
+all pollution, all evil, all annoying, all hot, all annoying, all bad work,
+these are called secret distress.
+
+What is the meaning of distress? "Conquer" is distress; "lead to loss" is
+distress; "living there" is distress.
+
+How is "Conquer" for Difficult? Those distress conquered, conquered, defeated,
+overwhelmed, ended, crushed that man, so it was "conquered" as distress.
+
+How is "lead to loss" as a hazard? Those distress leads to the obstacles,
+regression of good law, what good law? The right road, follow the road, the
+inverted sidewalk, not contradictory (no contradictory road), such as the
+meaning of the sidewalk, law with the law of the road, the ring completely,
+guarding the root door, the right amount of diet, specialized Sober, read and
+mindfulness, four hard practice, four good faith... four gods... five... five...
+seven senses... eight sacred shrines efforts to practice, leading to these good
+law obstacles, loss, this is " "Guide to fallback" is distress.
+
+How is it "perched there" for distress? There, these evil laws come together,
+such as caves lying in caves, aquatic animals lying in water, forested animals
+lying in the forest, and tree animals lying down on trees. In the same way,
+there, these laws of evil and misdemeanour come together. This is "perched
+there" for distress.
+
+This is said by Worldman [SN.35.151]
+
+"Bichu! Picchu, a disciple and a master, lived in bitterness and unease. And,
+the Picchu! How is Bichu, a disciple and a master, dwelt in bitter and unease?
+Bichu! Here, after the eyes of Bichu, born the memories and intentions of those
+who follow the evil bad law.
+
+Besides, the Bichu! After listening to the voice... nose smell... after the
+tongue tasted taste... after touching... after the law of consciousness, the
+memories and intentions of those evil and bad laws were born to follow the end.
+"They dwelt in him; and the law of evil and evil dwelt and enter (occupy)."
+Therefore, he is called a 'apprentice. ' "They conquered him; evil evil
+conquered him." Therefore, he is called "Master". Bichu! So Bichu, a disciple
+and a master, dwelt in bitterness and unease. This is also the"There inhabit" is
+distress.
+
+This was said by Worldman [It.88]
+
+"Bichu! There are three kinds of internal scale, internal non-friend, internal
+enemy, internal murderer, internal enemy, which three? Bichu! Greedy is internal
+scale, inner friend, internal enemy, internal murderer, internal enemy; Bichu!
+... (medium) Picchu! The evil is internal scale, not friends, internal enemies,
+murderers, internal enemies. Bichu! These are three types of internal scale,
+inner friend, internal enemy, internal murderer, internal enemy.
+
+"Greed is the cause of no interest, and greed for those who shake their hearts,
+
+Terror was born from it, and people do not understand it.
+
+Seekers do not know the interests, the cogedy cannot see the law,
+
+At that time he was blind and darkness: whoever could conquer.
+
+For the cause of no interest, For those who shake the heart,
+
+Terror was born from it, and people do not understand it.
+
+The angry do not know the interests, the anger does not see the law,
+
+At that time he was blind and dark: whosoever could conquer.
+
+The cause of no interest, stupid to shake the heart,
+
+Terror was born from it, and people do not understand it.
+
+The fools do not know the interests, the fools do not see the law,
+
+At that time he was blind and dark: whoever could conquer.
+
+It is also "inhabited there" as a distress. This was said by Worldman: [SN.3.2]
+
+"King! When the three laws of men are born, they are born unfavorable, bitter,
+and uncomfortable to live, which three? King! When the lust of the man himself
+is born, it is unfavorable, bitter, uncomfortable to live; king! When the man
+himself is born... (Medium) King! When the man's own idiot started, born
+unfavorable, bitter, uncomfortable, king! When these three laws in men are born,
+they are unfavorable, bitter and uncomfortable to live. '
+
+"Lust, lust, stupid, malevolent man,
+
+Hurt yourself, such as many fruits [hurt] their tree heart. '
+
+It is also "inhabited there" as a distress.
+
+This was said by Worldman: [SN.10.3]
+
+"From here there is greed and insane, from here to be unhappy, happy, and hair
+erected,
+
+From here and after being born with heart, such as a little boy put a crow."
+
+It is also "inhabited there" as a distress. "In the world," in the world of men.
+How much distress is in the world.
+
+"To the walkers who have not gone to the direction": "The direction has not
+been" is called undead, Nibbana, that is the end of everything, all according to
+the conviction, thirst of love extinct, away from greed, extinct, Nibbana. The
+direction you haven't been before, not the one you've been to before: take this
+long journey.
+
+If he transports, it is full of oil to the edge,
+
+Like this should have a heart guardian who hasn't been to the direction of the
+hope.
+
+To those who have not been in the direction of walkers, walkers, and forward.
+For walkers who have not been to the direction.
+
+"On those who should be conquered on Picchu": "On those distress he should
+conquer, should defeat, should overwhelm, end, should crush." For those on Bichu
+should conquer.
+
+"Accommodation on the edge of the land": "On the edge, on the edge, on the
+border, at the border, at the edge of the mountain, or by the forest, or by the
+river, or by the waterside, where not cultivated, not sown, human limits, after
+walking, to people It will not be close to [the] sitter." For accommodation on
+the edge.
+
+Because then, the last Shiliver said:
+
+"How much distress is in the world, for those who have not been in the direction
+of walkers,
+
+In those on Picchu should conquer: the residence on the edge?"
+
+196. what language should be? What should there be here?
+
+What should be the abduction and prohibition that belong to Bichu's
+self-efforts?
+
+"What language should be": ""What kind of language should be like, what kind of
+erected, what kind, what kind of contrast." He asked about the cleanliness of
+words. What is the cleanliness of words? Here, after Bichu has discarded his
+words, he is a person who dismisses the language, the true word, the one who can
+trust, the trustworthy, and the one who is free of deception to the world. After
+he has discarded the words, he is a distant word: after he heard it, he does not
+say there to be a divination to these people, or, after he heard it from there,
+he does not say here to divescend to them, like this, He is the mediator of
+division, a distributor of harmony, the loving, the loving and the collaborator,
+the person who likes and rejoins, and speaks of the word of harmony. He is a man
+who has discarded his bad words, such words are spoken by him that is gentle,
+delightful, adorable, and gracious, graceful, beloved by all, and the pleasing
+of all. After disconnecting the filthy words, he isUnfilthy: He is the Speakers
+of the Right Time, the Speakers of Facts, Good Speakers, as the Law, as the Law;
+He speaks, at the appropriate time, words of value, reason, restraint and
+interest [ AN.4.198]. He has four words of good deeds, and speaks four without
+fault. He should have been separated from 32 species of animal theory, quanned,
+quashed, removed, departed, freed, bondage, and he lived with a restrained
+heart. He said ten things to talk about, namely: to say less intentions, [say]
+contentology... solitary habitation theory... noncommunicative theory...
+admonition... admonition... discourse... discourse... liberation theory...
+remembrance... On the... positive theory... gods... root theory... force
+theory... the theory of consciousness... the theory of fruit, Nibbana theory.
+Discreet, discreet, guarded, protected, guarded, homemade words, which are all
+clean. It should have a clean word like this." For what should be the way.
+
+"What should be here": ""There should be a situation like what, what kind of
+erected, what kind, what kind of contrast." He asked about the border. There are
+border, there are non-border.
+
+What is a non-border? Here, a certain group of people are prostitutes, or
+widows, or unmarried women, or non-male (semi-selecga), or Bichuni [AN.5.102],
+or drinking alcohol In the border, he lives in inappropriate contact with the
+kings, the archancellors, outlanes and disciples. Or those who have no faith in
+Pichu, Bichuni, Yousseh, and Yomo, and Yobo, who do not have a net faith, do not
+become water, abusive, libelous, without profit, for no benefit, for no peace,
+and peace from the yoke The family, he closened, intersected, visited a family
+like this, which is called a non-border.
+
+Or, when Picchu is a visitor to his home, walker on the street, he walks
+unprotected: he walks as he looks at the elephant, looks at horses, looks at the
+car, looks at infantry, looks at women, looks at men The boy, looking at the
+girl, looking at the market, at the doorstep of the house, looking at the top,
+looking below, looking around all sides, this is also known as non-border.
+
+Or, Bichu became the executor of the phase after seeing it, because... (middle)
+when living in the unprotected roots, greed and worried bad law will flow in,
+and he does not act according to his own control, Does not protect the root, do
+not care to reach homemade [SN.35.120], which is also known as non-border.
+
+Or if some Samana, Brahmen, Master Brahmen, after receiving food from faith,
+they live in performances like this: dance, singing, music, drama, ancient
+speaking, handbell, cymbals, drums, magic, Iron ball play, bamboo stick play,
+stunt, elephant fight, horse fight, buffalo fight, bull fight, goat fight, ram
+fight, rooster fight, quail fight, stick fight, fist fight, wrestling, drill,
+soldier, Military Front, Parade [DN.1, para. 13], etc., such as this is the
+performer of the watch, which is also called non-border.
+
+Five kinds of desires are also non-border. This is said by the Worldmen, "The Do
+not go in improper situation, other frontiers. Bichu! Walking in improper
+situation, other realm, magic will get the opportunity, the magic will get the
+object. Bichu! What is Bichu's improper border and other realm? That is: five
+desires, which five? Can be known by the eye, the desired, cute, desirable, cute
+look, accompanied by the desire, greedy color; can be known by the ear... the
+sound; can be known by the nose... smell; can be known by the tongue... taste ;
+can be known, wanted, cute, desirable, cute, cute look, accompanied by desire,
+greedy touch [SN.47.7]. Bichu! This is called Bichu's improper border, other
+realm. This is also known as non-border.
+
+What is the border? Here, Bichu is not a prostitute, not a widow, not an
+unmarried woman, not a male (semi-selecga), not a bicuni trader, not a drinking
+place, he lives with the king The men, the great officials, the outways, and the
+disciples of the outside aisle communicate with appropriate contact. Or
+whosoever has faith in Bichu, Bichuni, and Yomasai, and Yopo, and the net faith,
+who are the water supply, and the cassock lights, and the fairy. And those who
+desire good, good, for peace, and for peace, who want to leave the yoke of
+peace, he is close, and intersected, and visited a house like this, which is
+called the way of the land.
+
+Or, when Picchu was a visitor to the home, a walker on the street, he walked
+defenderly: he walked without looking at the elephant, not looking at the horse,
+not the car, not the infantry...(Medium) does not look around all sides, this is
+also known as the border.
+
+Or, after the eyes of Bichu, do not become the execution of the phase, the
+execution of the fine phase... (slightly) care about the roots to achieve
+homemade, which is also called the border.
+
+Or, if some Samana and Master Brahmen have been given food, they do not live in
+performances like this: dance, singing, music... parade, etc., like this is the
+performance watching. The actors, which are also called the border.
+
+Four read live is the border. This is said by the Worldmen, "The What is the
+proper border of Picchu, the realm of his father and grandfather? That is: four
+read live, which four? Bichu! Here, Bichu live in the body [, zealous,
+cognitive, mindful, can revolt for the world's greed, worry]; in the subject...
+(medium) in the heart... (medium) live in the law follow the law, enthusiasm,
+Known, mindful, can revolt for the world of greed, worry. Bichu! This is the
+proper situation of Picchu, the realm of his father and grandfather. This is
+also called the border. It should have a situation like this." For what should
+be here.
+
+"What should be quanned and forbidden": ""What kind, what kind of erected, what
+kind of contrasting and forbidden should be there." He asked about the
+purification of the withdrawal and prohibition. What is the cleanser of the ring
+and the prohibition? There are abstraints and forbidden [but] not rings. What is
+Rings and Forbidden? Here, Bichu is a ring holder, lived in the self-made
+protection of Porotti wooden fork, with a positive and border, seen in the
+micro-crime horrible, in the school school after learning, where restrained,
+homemade, does not violate, this is Ring; whosoever observes it is forbidden
+Homemade as a ring; to abide by righteousness as a forbidden, this is called
+abdence and prohibition
+
+What is a forbidden [and not] a ring? There are eight heads: forest field
+branch, often beg, manure sweep, but three, second beg, after eating without
+food support, often sit [not lying] support, everywhere, this is known as
+forbidden [but] not ring. The observance of vitality is also called forbidden
+[but] not: "Preferring to leave only skin, tendons, bones; to dry the body's
+flesh and flesh, as long as human perseverance, human vitality, human efforts
+should be achieved and not reached, There will be no stop of vitality.
+[SN.12.22] "He was dedicated, diligent, and like this is the observance of
+vitality, [this] is called a forbidden [and not] a ring.
+
+"I will not eat or drink, I will not go out of my place,
+
+It will not cause the threat to fall (lying down), and the arrows of thirst love
+will not be removed." [Thag.223]
+
+His dedication, diligence, and the observance of vitality like this is also
+called forbidden [but not]. "As long as my heart is not relieved from the
+troubles of not being carried out, I will not break this leg! [MN.32]" His
+dedication, diligence, and the observance of vitality like this is also called
+forbidden [but not]. I will not get up from this seat... I will not come down
+from the wagon... I will not go out of the house... I will not go out of the
+half-roofed house... from the flat house... from the cave... from the cave. ...
+from the hut (lonely house)... from the lookout... from the circular house...
+from the shed... from the lecture hall... from the tent... "As long as my heart
+is not relieved from the troubles, I will not be under the tree. Go out. His
+dedication, diligence, and the observance of vitality like this is also called
+forbidden [but not]. "Just before this afternoon I will acquire, fully acquire,
+testify, reach and testify of the Holy Law." His dedication, diligence, and the
+observance of vitality like this is also called forbidden [but not]. It's at
+noon... in the evening... before eating... after eating... before... the
+night... midnight... after the night... at the time of death... during the white
+moon... in the rainy season... in winter... in summer... in adolescence. ... in
+the middle of old age... 'I will acquire, fully acquire, testify, reach and
+testify of the Holy Law in old age. ' His dedication, diligence, and the
+observance of vitality like this is also called forbidden [but not]. This is the
+cleanser of the reprimand and There should be a cleanser like this." For what
+should be quit and forbidden.
+
+"It belongs to the bichu self-efforts": ""It belongs to the self-effort",
+belongs to the vitality has been launched, belongs to the fortitude, belongs to
+the firm effort, belongs to not negligible, not negligent in the good law
+Responsibility. Or, the goal that belongs to yourself is issued in their own
+interests, in rightness, in particular, in reason, in reason and in reason, and
+unjusticiable: 'All doings are capriless' is issued by themselves; "All doings
+are bitter" is issued by their own; 'All doings are without me. 'It belongs to
+himself; 'by the cause of ignorance.'His issued... (middle) "by life and death"
+belongs to their own; "extinction and extinction" belongs to their own...
+(medium) "to destroy and have old death" is their own Issued; "This is bitter"
+is issued by their own... (middle) "This is the path of bitterness" is issued by
+their own; "This is the trouble" is issued by their own... (middle) 'This is the
+guide "The troubles of the trail" is issued by their own; "These laws should be
+known" are issued by their own... (medium) "these laws should be testified" is
+issued by themselves; Taw six touches the collection, extinction No, taste, too
+sick, departed is their own; five of the four sets, extinct, fun, too, away from
+their own; "any collection is extinction method" is their own; "any collection
+is extinction method" is their own Issued. "Belonging to Picchu," belongs to the
+Shanfanfu Picchu, or those who have learned it. To be self-working for Bichu.
+
+Because then, the last Shiliver said:
+
+"What should be the language? What should there be here?
+
+What should be the restraint and restraint that belongs to Bichu's
+self-efforts?"
+
+197. after being held, what he should learn, exclusive, wise, mindful,
+
+Such as forgings on silver, should remove their own dirt?
+
+"What he should learn after being held": "After taking, after holding, after
+taking, after taking, after taking, after taking, after taking, after
+performing, after persistence, what he should learn." What to learn after being
+held.
+
+"Monothy, wise, mindful": "Exclusive", heart, not scattered heart, smooth mind,
+luxury moto (stop), fixed root, steady force, positive. For the wise, the wise,
+the wise, the wise, the wise, the wise, the different, the wise, the wise, the
+wise. "Mindful", "in four ways: when the practice is mindful in the body, in the
+heart... when practicing in the law to live with the concept, he is called the
+mindful ." For the mindful. "What should he learn after being held," he asked to
+add to school. "The only one," he asked to add heart learning. "The mindful," he
+asked to add wisdom." For what he should learn after being held, exclusive,
+wise, mindful.
+
+"As forged against silver, should remove their filth": "The forge is called
+goldsmith, silver is called gold. Such as goldsmith on gold, he blows, fan fire,
+melt [AN.3.102] coarse dirt, also blow, fan fire, melt medium dirt, blow, fan
+fire, melt fine dirt. Similarly, the Bichu blows, fan fire, melt their crude
+pollution, cut off, dispel, and end, and make it non-existent. Moderate
+pollution... (Medium) also blow, fan fire, melt fine pollution, cut off, dispel,
+end, make it to the absence.
+
+Or, Bichu blows, fan fire, melt their greedy filth, foul filth, devil filth,
+slow filth, filth of seeing, filth of pollution, evil deeds, blindly works, do
+not make eyes, do not wit, do not wit, , annoying with the party, does not guide
+Nibbana [AN.3.72], cut off, dispel, end, make it to the absence.
+
+Or, with a positive blow, fan fire, melt the evil, cut off, dispel, and end, and
+make it non-existent. Take the Chi... (medium) evil will... In the normal
+words... evil words... To the business... evil industry... To life... evil... In
+the normal words... evil words... To be refined... evil refining. Take
+mindfulness... sinister. To positive... evil. Take rightness... evil wisdom. To
+free the blow, fan fire, melt evil free, cut off, dispel, end, make it to
+absent.
+
+Or, to blow the eight holy roads, fan fire, melt all pollution, all evil deeds,
+all troubles, all hot heat, all irritated, all bad work, and cut off, dispel,
+end, and make it not exist." For such as forging against silver, should remove
+their own dirt.
+
+Because then, the last Shiliver said:
+
+"After being held, what he should learn, the exclusive, wise, mindful,
+
+Such as forgings on silver, should remove their own filth?"
+
+198. [Worldplace: "Shariver!"] For those who are bored, close to the unmanned
+     seat and the sleeping area is indeed peace.
+
+I will say it for you, as the one who knows, according to the law.
+
+"For the bored... that is ease": "For the bored", "For those who are bored,
+tired of old, sick... die... being grieved... suffering... being worried...
+being desperate... ... (medium) for the distressed, distressed, anxious person
+who was seen loss (bad see). forFor those who are bored. "That is ease," I will
+tell everyone who lives at ease. What is Happy Live? Correct signs, follow the
+signs, the reverse signs, do not contradict signs, such as the meaning of the
+signs, the law of the road, all the rings, guarding the root door, diet
+knowledge the right amount, specializing in sober, read and mindfulness, four
+"Remember, four Zhengqin, four gods, five, five forces, seven, eight sacred
+paths, Nibbana and guided Nibbana, this is peace of life." For those who are
+bored... that is, peace of mind.
+
+"[Worldman: "Shariver!" : "Call that seat by name. "Worldworld", synonyms of
+respect. In addition, the "corrupt" is worldly; "destroyed" is worldly; "spoilt
+the slower" is worldly; "destroyed the slower" is worldly; "destroyed" is
+worldly; "has destroyed the thorns" for Worldship; "Destroy the polluter" for
+worldship; "division, analysis, distinction" for worldship; "some end" for
+worldship; "have been practiced, the heart has been practiced, the heart has
+been practiced, Hui has been practiced" for worldship ; or "Worldmaster close to
+the forest, wilderness, edge dwelling (sitting place): less voice, quiet, away
+atmosphere, person alone, suitable for sitting alone"; or 'Worldship is clothes,
+feeding, dwellings, The patient's needs, medical necessities are worldly; or
+"Worldworld is the meaning, flavor, relief, increase the ring, increase the
+heart, increase the whims, add the heart, increase the whimsiness"; or "Worldzou
+is four kinds of Zen, four infinite amount 、Four colorless to some points" for
+worldship; or "Worldship is eight relief, eight wins, nine times the first place
+to have points" for worldship; or "Worldworld is ten want to practice, ten
+places to wait to, to the mind, etc., "Worldest is four, four positive, four
+gods, five, five forces, seven senses, eight holy way" is worldly; or
+'Worldworld is ten as a force, four fearless, four fearless, four "There is no
+solution, six god, six senses" are worldly. Worldworld, this name is not given
+by the mother; not given by the father; given by a non-brother; given by a
+non-sister; given by a non-friend; not his relatives; not by Samana and Brahmen;
+Unheavenly This is the relief of the Buddha, worldly, and under the linden tree,
+and the acquisition and testimony of all wisdom and wisdom, that is, Worldom.
+For [Worldhotel: "Shalifer!"].
+
+"To be righteous according to the law": "The "right sense" is called in four
+ways of wisdom, wisdom, Wisen, Wigen, witty, choice of method, study,
+Bybashenah, positive view, the sense of desire, the desire to be awakened For
+those who want to be righteousness, those who want to gain, those who want to
+reach, and who For those who want to feel.
+
+"According to law": "What is the sense of law? Correct signs, follow the signs,
+the reverse signs, not contradictory signs, such as the meaning of the road, the
+law signs, all the rings, guarding the root door, diet to know the right amount,
+specializing in sober, read and mindfulness, this Known as the law of the
+sense." For those who want to feel according to law.
+
+"I will say it for you as the one who knows": "That," according to the law. "I
+will say," I will say, I will explain, I will teach, I will tell, I will build,
+I will uncover, I will parse, I will clarify, I will explain. "As Knower", such
+as the Knower; such as the Knower, the Knower, the other, the Knower, the
+Knower, the Intermediate, Non-rumor, Not from the Wind, Not from the
+Inheritance, Not from the Book, Not from Logical, Non-Reasoning, Non-Reasoning
+Thinking in theory, not because of contemplation, the opinion accepted after
+meditating, is self-evidenced by myself, and I will say that." For me will say
+it for you as a person who knows.
+
+Because then, Worldman said:
+
+"[Worldest: "Shariver!"] For those who are bored, close to the unmanned seat and
+the sleeping area is indeed peace.
+
+I will say it for you, as the one who knows, according to the law."
+
+199. There should be no fear of the five kinds of horror wise, and bounded
+     Picchu:
+
+To fly, moth, snake, contact to people, to four-legged animals.
+
+"The wise of the five horrors should not be afraid": "The wise, the wise, the
+wise, the wise, the wise, the sense, the wise, the different, the wise. Wise
+should not be afraid of the five horrors, should not tremble, should not fear,
+should not fear, should not fear, should not be afraid, should not come to fear,
+should not be afraid, do not frighten, do not frighten, do not flee They shall
+dwell in the fear of terror, and have been erected from the hair. Wise for five
+horrors should not be afraid.
+
+"Picchu": "Bicchu", Zenvan Picchu or learn to bicchu. "Conception (of)", in four
+ways for the mindfulness:When practicing in the body with the minds of the mind,
+in the subject... (medium) in the heart... when practicing in law follow the law
+to read the mindful, he is called the mindful. "Boundary line", there are four
+kinds of boundaries: ring self-made boundaries, root homemade boundaries, diet
+to know the right amount of boundaries, specializing in sober boundaries.
+
+What is Ring Homemade Boundaries? Here, Bichu is a ring bearer who lives in the
+protection of the home-made porotty forks, is well on the way and the border,
+seeing horrible in micro-crime, learning after being held in the school. When
+inspecting internal rotten state, he line internal ring self-made boundaries, do
+not break the boundary, this is the ring self-made boundaries.
+
+What is Root Homemade Boundaries? Here, after the eyes of Bichu, do not become
+the execution of the phase, the execution of fine phase... (medium) in the eye
+root to achieve homemade. After listening to the sound of the ear... nose
+smell... after the tongue taste... after touching the touch... after the
+consciousness of the law, do not become the executor of the phase, because when
+living in the root is not protected, greed, worried The evil evil law will flow
+in, he acts according to his own control, protect the root, care about the roots
+to achieve self-control. When the provinct burns the law door, he line internal
+root homemade boundaries, does not break the boundary, this is the root homemade
+boundary.
+
+What is the right amount of diet? Here, Bichu Ruri province after eating food:
+"neither for pleasure, nor for intoxication, not for good body, not for solemn,
+only for the survival, survival of this body, in order to stop harm, in order to
+support Van Van Row. In this way, I will repel my previous feelings, do not
+provoke new feelings, health, no fault, live well. When inspecting the axle oil,
+sores cover [SN.35.239], the metaphor of the son meat [SN.12.63] when he line
+the internal diet knows the right amount of boundaries, does not break the
+boundary, this is the right amount of diet Homemade boundaries.
+
+What is the sober boundaries of specialization? Here, Bichu sat down during the
+day, and purified the heart from the law of obstacles. At the beginning of the
+night, the heart should be purified from the law of obstacles by doing and
+sitting in peace. In midnight, the right threatened as a lion lying, put [left]
+foot on the [right] foot, mindfulness, and thought up. In the late night, and
+then to walk and sit, the heart should be purified from the obstacle method
+[SN.35.120]. When the province lived overnight [MN.131] He specializes in sober
+boundaries inside, does not break the boundaries, this is the root homemade
+boundaries." For the thought, bounded line of bicchu.
+
+"On the fly, moth, snake": "fly (brown flies) is called the fly. All flies are
+called moths. On what reason all flies are called moths? They fly up and over
+and after bites, and for this reason all flies are called moths. Snakes
+(creepers) are called snakes." For the fly, moth, snake.
+
+"Contact to man, to four-legged animals": "Thieves, rogues who do bad things or
+prepare to do bad things are called contact with people. They may ask Bichu
+questions, or they will join discussions, abusive, slander, anger, annoy, hurt,
+distress, kill, annoy, or hurt. Whoever is annoyed by any person from the
+contact of people. Four legged animals, lions, tigers, leopards, bears, dogs,
+wolves, bison, elephants, they crush, eat, hurt, distress, kill, annoy, or hurt
+Picchu. There are annoyances from the four-legged animal for whoever the horror
+of any four-legged animal." For contact with people, to quad legged animals.
+
+Because then, Worldman said:
+
+"There should be no fear of the wise of the five horrors, and the bicchu, who
+are mindful and bounded:
+
+To fly, moth, snake, human contact, to four-legged animals.
+
+200. Nor should be afraid to other law: even after seeing them many horrible,
+
+It is more important to conquer distress: good as the seeker.
+
+"There should be no fear of other law: even after seeing their horrible things":
+"Whoever has not believed in Buddhism, law, or monk is called any other law
+except the living beings of the law. They may ask Bichu questions, or join the
+discussion, or abuse, slander, anger, anger, hurt, distress, kill, annoy, annoy,
+hurt. Many of them are horrible who should not tremble after seeing or hearing,
+should not tremble (strong trembling), not trembling (strong trembling), should
+not be afraid, should not fear, not fear (upward fear), There should be no fear
+(fear all over), should not be terror, should not come to fear, should be not
+afraid, not frightened, not frightened, those who do not frighten, do not flee,
+should live in having cut off the fear of terror, have been erected. " For the
+rest of the law should not be afraid: even after seeing them many terrible.
+
+"More to conquer distress: Good with the Seeker": "More, there are those that
+should be conquered, defeated, overtaken, should be ended, should be crushed.
+"Difficult", there are two kinds of distress: obvious distress and hidden
+distress... (medium) this is also "inhabited there" as distress. "Good Seeker",
+the right path (right way), the follow, the reverse track, the uncontradicted
+trajectory... (in the middle) eight sacred paths, Nibbana and the guiding
+Nibbana trajectories to seek, to seek, "All that distress should be conquered,
+defeated, overwhelmed, ended, should be crushed." For more to conquer distress:
+the Seeker of Good.
+
+Because then, Worldman said:
+
+"There should be no fear for other law: even after seeing them many horrible,
+
+It is more important to conquer distress: the good follow the Seeker."
+
+201. by the ill contact, hunger touched, should endure cold and heat,
+
+Homeless he was touched by those kinds, vitality, effort he should be solid.
+
+"By the contact of disease, hunger touched": "the contact of sick and bitter is
+called the contact of disease. Will be the contact of diseases reached,
+tortured, combined, with: will be eye contact, torture, combined, have; ear
+disease... by the nose disease... by tongue disease... by the body disease...
+(medium) flies mosquito wind sun snake Contact reach, torture, bind, have.
+Hunger is called hunger. It will be touched, tortured, combined, possesses." To
+be diseased contact, hunger reached.
+
+"Should endure cold and heat": "Cold" is cold with two factors: cold due to
+internal agitation, or cold due to external times. "Heat" is heat based on two
+factors: heat due to internal agitation, or heat due to external times. For cold
+and hot. "Should endure", it should be cold, hot, hungry, thirst, and the
+contact with the fly mosquito wind sun snake patient patient, should be abusive,
+defamatory language, physical suffering, intense, intense Unwittingly,
+unintended, deadly ninjors and the like." For the cold and heat should endure.
+
+"Homeless he is touched by all sorts": "'He is by those who are touch', 'will be
+touched by ill, hungry, cold, hot touched, tortured, combined, possesses." For
+him was touched by those. "Various kinds", "will be touched, tortured, combined,
+possesses." For him was touched by those kinds. "Homeless", "The opportunity to
+know the creation of the club is not done." For homeless [SN.22.3]. Or, the
+chance of evil deeds, words of evil or evil doings shall not be done." For
+homeless." He was touched by those kinds of homeless.
+
+"Vitality, effort he should be solid": all the heart of the vitality of inspire,
+diligent, hard, diligent, diligent, not fearful, fortitude, persistence, not
+relaxation of the state of courage, do not give up the will state 、The state of
+responsibility, the support of responsibility, vitality, vitality, vitality,
+vitality, positive progress is called vitality, effort. "Vitality, effort, he
+should be strong": "vitality, effort he should be strong, should be solid,
+should be a strong holder, established holder." For vitality, effort he should
+be solid.
+
+Because then, Worldman said:
+
+"By the contact of sickness, hunger touched, should endure the cold and heat,
+
+Homeless he was touched by those kinds, vitality, effort he should be strong."
+
+202. There should be no theft, and should not speak falsely, and mercy should
+     reach the weak and the strong.
+
+Whenever his mind is cloudy, he should know that he should dispel the "dark
+side".
+
+"Should not be stealing, and should not speak falsely": "'should not be
+stealing. 'Here, after Bichu is not given and taken, he should be the one who
+has not been given, the person who is given, the given shall be given To be
+expected; they should live without stealing, and to become clean. for which
+should not be stealing. "Should not speak in vain," 'Here, after Bichu has
+discarded his words, he should be a delusional, true, truthful, trustworthy, and
+a person who is free of deception to the world. '" It should not be stealing,
+and should not speak falsely.
+
+"Mercy should reach the weak and the strong": "Mercy", whoever has good will,
+mercy, mercy, mercy, pity, compassion, mercy, alotherness, mercy, mercy, no
+malice, no harm, no harm, no pity, good root. The "cowardly" belongs to those
+who tremble, thirst and love is not cut off, and to those who fear fear not
+being cut off. For what reason are they called the cowardly? They tremble, fear,
+terror, fear, and come to fear, for this reason they are called the cowardly.
+The "strong" belongs to those who tremble, thirst has been cut off, and to those
+who fear that terror has been cut off. For what reason are they called the
+strong? They do not shake, do not fearFear, not terror, not afraid, do not come
+to fear, for this reason they are called the strong. "We shall reach the
+cowardly and the strong with mercy": "In the cowardly and the strong should be
+reached with mercy, filled with mercy, with mercy, with mercy, with great, with
+no amount, with no resentment, with no evil heart After all the world lived." To
+reach the weak and the strong with mercy.
+
+"Whenever the mind is cloudy he should know": "Whenever" is whenever. "Mind",
+all hearts, intentions, hearts, hearts (heart), white (whites), intentions,
+intentions, roots, consciousness, knowledge, and those who correspond to that
+consciousness. To act evil and heart become cloudy, agitating, moving,
+impacting, volatile, rotating, uncalm; in words of evil deeds... Deed in bad
+faith... with greed... with anger... with resentment... in order to hide evil...
+to jealousy... to conserve falsehood... with hypocrisy... to cunning...
+stubborn... Passion... to slow... slow... to slow... to relax... with all
+pollution... with all evil deeds... to all annoy... with all hot heat... with
+all indigence... to make heart in all bad. Turbid, agitating, moving, impulsive,
+volatile, rotating, uncalm. "Whenever the mind is cloudy, he should know": "The
+turbid state of the heart he should know, should know, should not, should know,
+should know, should be through." For every time the mind is cloudy he should
+know.
+
+"He should depart from the Dark Side": "Darkness", the family of the demon, the
+ruler of the darkness, the family of those who go to the limits, the demons, the
+relaxation. "The dark side is the side of the magic, the magic trap, the magic
+hook, the food of the magic, the land of the magic, the place of the magic, the
+land of the magic, the magic bondage, he should be cut off, should be discarded,
+should end, should make it come to Does not exist." So that's where he should
+dispel the "dark side". Or, "The dark side is the magic side, the bad side, the
+bitterness, the bitterness, the guide to the hell, to the animal world, the
+guide to the world of starvation, he should be cut off, should be discarded,
+should end, and should make it come to Does not exist." So also he should dispel
+the "dark side".
+
+Because then, Worldman said:
+
+"Thieves should not be stealing, and not speak in falsehood, and to the weak and
+the strong with mercy,
+
+Whenever his mind is cloudy, he should know that he should depart from the Dark
+Side."
+
+203. should not fall into anger, extremely slow control, dug out their roots
+     should live,
+
+Second cute or uncute, the winner should indeed conquer.
+
+"Should not fall into anger, extremely slow control": "Anger", that is the anger
+of the heart, hostility... (medium) brutal anger, anger, heart displeasure.
+"Extremely slow", here, a certain category of people either by birth, or with a
+surname... (middle) or disdain others with something. "Should not fall into
+anger, extremely slow control": "Should not fall into anger and extremely slow
+control, anger and extremely slow he should be cut off, should be deported,
+should end, should make it to absent." As should not fall into anger, extremely
+slow control.
+
+"After digging out their roots should live": What is the root of anger? Unclear
+is the root, as well as the reason is the root, I am slow is the root, ashamed
+is the root, the root is the root, it is the root of outrage. What is an
+extremely slow root? Unclear is the root, as the reason is the root, I am slow
+is the root, shameless is the root, is the root, it is the root, it is very slow
+root. "After digging out their roots should live": "Anger and extremely slow
+root he dug out, after pulling out, after pulling out, after pulling out, after
+removal, after removal, completely removed, after disconnection, deportation,
+after end, make it After the absence should live, should live completely." After
+digging out their roots should live.
+
+"Second cute or uncute, the winner should indeed conquer": "Second", the
+continuation of the sentence; the link of the sentence; the success of the
+sentence; the combination of words; the connection of words; this is the second
+sentence, for "second" . "Lovely", there are two kinds of cute: living beings or
+all kinds of lines. What is a lovely living? Here, whoever is a mother who is of
+interest to him, who wants to be good, or a father, or brother, or sister, or
+son, or daughter, or a friend, or a colleague, or a family, or a blood People,
+these are cute beings. What are cute lines? The color of the consensual... the
+scents of the sounds... the taste, the agreeable touch, these are cute lines.
+"Uncute", there are two types of uncute: living beings or all kinds of things.
+What is an uncute living? Here, whosoever they want to have no interest in him,
+they want no benefit, and not to dismiss.Those who are safe and want to kill,
+these are uncute beings. What are not cute lines? Unintended colors, undesired
+voices... smells... all tastes, unsatisfactory touches, these are uncute lines.
+"Indeed", this is the decisive (always) word, no doubt, a word of confidence, a
+word of no doubt, a word of no doubt, the word of instruction, the words of no
+error [, the words of no failure], this is the definitive word, for" "Indeed".
+"Second cute or uncute, the victor should indeed conquer": "Lovely, uncute;
+consensual, undesirable; happy, bitter; joy, worry; wanted, undesirable, The
+conqueror should win, or the winner should conquer." For the second cute or
+uncute, the winner should indeed conquer.
+
+Because then, Worldman said:
+
+"Should not fall into the control of anger, extremely slow, digging out their
+roots should live,
+
+Second cute or uncute, the winner should indeed conquer."
+
+204. Hui placed in front and after good joy, should revolt those distress,
+
+Should conquer the unjoy in the edge, should conquer four sorrows of sorrow.
+
+"Hui placed in front of good joy": "Hui", that is Hui, understanding, simple
+selection, study, choice... (middle) insane, positive. "Hui placed in the front
+behind", here, a certain kind of people put (for) Hui in front of the line, Hui
+for the flag, Hui for the flag, Hui for the increase, multiple choice, more
+simple, more deeply considered (Sri Lanka version), more completely deeply
+considered , To dwell in the person who knows, that character, more than that,
+the heavier, the person who targets it, to the struggler, to the tilt to that,
+to the triumph, to which the person who increases, that character, and more It
+is the one who hears it, and those who target it, toward the hard man, tilt to
+it, to the triumph, and to the one who ascend, to it, so that he is placed in
+front and behind.
+
+Or, 'When walking, he knew, "I walk." Or, when he stood, he knew, "I stand." Or,
+when sitting, he knows, "I'm sitting." Or, when lying down, he knew, "I lay
+down." Or, he knows as the movement of the body." So that's also the Hui placed
+behind the front.
+
+Or, "cognitive to the actor when moving forward and backward; in front and back
+view of the actor; cognitive to the actor when [limbs] are stretched; cognitive
+in behavior when [wearing] clothing, holding a bowl and a coat is cognizant of
+the actor when eating, eating, chewing, tasting, and knowing to the actor; in
+the act, living, sitting, lying, sober, speech, and silence is cognizant of the
+actor. [MN.10] This is also where Hui is placed in the front and behind.
+
+"Good joy", because of the Buddha's revelation, joy is good joy. Because of the
+law... monk remembrance... ring remembrance... alms... day... in and out of
+mind... death remembrance... because of the heart of mind... because of the
+silent remembrance [AN.1.297] born joy, joy For good joy." For Hui placed in
+front of good joy.
+
+"Should repress those distress": "distress", there are two kinds of distress:
+obvious distress and secret distress... (medium) These are called obvious
+distress... (medium) these are called secret distress... (Medium) This is also
+"inhabited there" for distress. "Should repress those distress": "Those
+distress, he should win, should defeat, should overwhelm, should end, should be
+crushed." For those who should be in distress.
+
+"To conquer the disjoy in the side of the earth": "Unjoy," whoever is
+unrejoicing, disjoy, great disjoy, displeasure, discontent, horror. "On the
+edge," he is displeased that he should conquer, be defeated, overwhelmed, ended,
+crushed, crushed." For the disjoy that should conquer on the side.
+
+"Four sorrows of sorrow should conquer": "Four sorrow law he should conquer,
+should conquer, should win, should be overwhelmed, should end, should be
+crushed." Four sorrows of sorrow should be conquered.
+
+Because then, Worldman said:
+
+"Hui is placed in front and after the good joy, and it should be against those
+distress,
+
+It should conquer the unjoy in the edge, should conquer four sorrows of sorrow."
+
+205. What will I eat or where will I eat? Do you sleep well or where will I
+     sleep today?
+
+These will be sad to find, scholars should revolt: homeless walk.
+
+"What will I eat or where I will eat": "'What will I eat", 'what rice, or
+porridge, or noodles, or fish, or meat will I use. ' For me will eatWhat. "Where
+will I eat", where will I take it: in the house of Chateli, or in the house of
+Brahmen, or in Bisha, or at the house of the Sudala?" For what I will eat or
+where I will eat.
+
+"Do not sleep well or where I will sleep today": "This night is bad: on a wooden
+board, or on a small mat, or on a leather pad, or on a grass mat, or on a leaf
+mat, or on a straw mat. Where will I sleep well at night: in bed, or on a bed,
+or on a cushion, or on a long pillow, or in a monk house, or in a half-roof
+house, or in a tall building, or in a flat house, or in a cave?" To do not sleep
+well or where I will sleep today.
+
+"These sorrow hunts": "These hunts are two kinds of hunt related to food and two
+kinds of shelter. "Will be sad," will cry as 'will be sorrow'. For these will be
+sad to find.
+
+"Learners should revolve: homeless trailers": "scholars", for what reason is
+called a scholar? "He learns" as a learner. What does he learn? He learns to add
+quit, also learn to add heart studies, and also learn to add Hui learning. What
+is Xi Zhen on the quit... (middle) This is the addition of Wisdom. These three
+studies, when toward (notice), he learns; when he knows... when seeing... when
+inspecting... when he is careful to establish (resolve) when he learns; when he
+wins with faith, he learns; when energetic efforts... Now... beware (focus)...
+when he learns with Hui; when the testimony is supposed to be known; when the
+knowledge should be known... when the disconnection should be dismissed... when
+the practice should be dismissed... When he should be practiced... when
+testifying should be testified, he studied, practiced, good practice, and after
+being held. Known as a scholars for this reason. "In order to revolve, exclude,
+break off, calm, dismiss, stop, he should learn to increase the ring, he should
+learn to increase his heart, and he should also learn to increase the wisdom.
+These three studies should be learned when toward (notice); when you know...
+(medium) should learn, practice, good practice, hold and turn up when
+testifying." For scholars should be revolt.
+
+"Homeless", how is the home of the doorker? Here, a certain category of people
+has barriers to home, group barriers... barriers to shelter... barriers to
+clothes... barriers to food groups... barriers to accommodation... with the
+needs of patients and medical necessities. Obstacles, so that is home to the
+walk. How is a homeless walk? Here, Bichu does not have barriers to home, group
+barriers... shelter barriers... barriers to clothing... barriers to food
+groups... barriers to accommodation... not having the needs of patients and
+medical necessities. Obstacles, so that is homeless for the walk.
+
+"To Mojadha; to Suzaro, and some in the region of Phajai
+
+Like a wild deer, the Picchu have no place to live. [SN.9.4]
+
+"The peers are good, the good ones are good, homeless dwellings are always good,
+
+Meaning to ask skilled behavior, which is without all salmon sex." [Thag. 1.36]
+
+For the scholars should be revolved: homeless walk.
+
+Because then, Worldman said:
+
+"What will I eat or where will I eat? Do you sleep well or where will I sleep
+today?
+
+These will be sad to find, the scholar should revolt: homeless trader."
+
+206. after getting food and clothing in a timely manner, he should know the
+     meaning of the right amount, to be satisfied here,
+
+He is a guardian on those, a self-pacer in the village, and he should not speak
+crude and evil words even when he is enraged.
+
+"After getting food and clothes in time": "food", rice, porridge, noodles, fish,
+meat. "Clothes", there are six types of clothing: linen, padded, silk, sweater,
+burlap, hemp coat. "After obtaining food and clothing in due time": "After
+obtaining clothing, after obtaining food: no tricks, no talk, no hints, no
+sarcastic, not in exchange for other maintenance, do not use wood cloth, do not
+use wood cloth, not to Bamboo cloth, do not apply leaves, do not use flower
+cloth, no bath cloth, no powder cloth, no clay cloth, no toothed cloth, do not
+use wash cloth, not to flattering , do not open the river in the mouth, not to
+meet, do not slander behind (Sri Lanka version), not to domesticate, not to
+animal life, not to astrology, not to [when] envantment, not [when] send, not to
+[when] the errands , do not take medical care [, not to build new work], do not
+give food in return, do not give to cloth, after he obtained, after obtaining,
+after acquiring, after possession, after receiving." After getting food with
+clothes in due time.
+
+"He should know the right amount, the meaning of being satisfied here": "'He
+should know"Appropriate amount", he should know the right amount in two ways:
+from acceptance or from use. How is the right amount to know from the
+acceptance? Even if only some were given, out of mercy [Lord] home, guarding
+[Lord] home, mercy [Lord] house, mercy [Lord] house he accepted; although many
+were given, only clothing to protect the body he received and protected his
+abdominal feeding He accepted. This is to know the right amount from the
+acceptance. How is to know the right amount from use?
+
+Ruli province after inspection with clothes: only for the cold defense, heat
+defense, and fly mosquito wind sun snake contact defense, only for the
+collection of the pussy.
+
+Such as after inspection of food: neither for pleasure, nor for intoxication,
+not for good body, not for solemn, only for the survival, survival of this body,
+in order to stop injury, in order to finance Van Hong. In this way, I will repel
+my previous feelings, do not provoke new feelings, health, no fault, live well.
+
+Ruli province after the use of residence: only for the cold defense, heat
+defense, and fly mosquito wind sun snake contact defense, only for the removal
+of the climatic hazard, sitting alone happy.
+
+After inspection of the patient's needs, medical necessities: only for the
+defense that has arisen a feeling of annoyance, at most in order to be
+uncomfortable. [MN.2]
+
+This is to know the right amount from use. "He should know the right amount,"
+'In both ways he should know, should know, should know, and should pass through
+the right amount. ' For him should know the right amount.
+
+"Here the sense of satisfying", here, Bichu is a satisfied person for whatever
+clothes, but also for whatever clothes has been satisfied, he does not come to
+inappropriate evil by clothes, do not get Clothes do not fight, get clothes are
+not tied, not faintly, sinless, have seen the affected place, out of the Hui
+earth to use [SN.16.1], and he neither with this kind of clothing has been
+satisfied Praise oneself and do not defy others, who are there skilled, not
+lazy, cognitive, and mindful, this is known as the Bichu, which lives in the
+highest caste of the past [DN.33/AN.4.28].
+
+In addition, Bichu is no matter what food has been satisfied, and no matter what
+food has been satisfied praise, he does not come to improper evil because of
+feeding, not getting feeding is not fighted, not tied The end of the land, not
+faintly, without sin, saw the affected land, and took away from the land of Hui;
+and he neither praised himself for the knowledge of this feeding, nor contempt
+for others, where skilled, not lazy, positive Knowing and mindfulness, this is
+known as the bicchu of the highest sacred caste of the past.
+
+In addition, Bichu is satisfied no matter what place of accommodation, and is a
+praise for what accommodation has been satisfied, he does not come to improper
+evil because of accommodation, not to get shelter is not fighted, get shelter is
+not And he neither praised himself for the knowledge of this dwelling, nor
+despise others, who are skilled there, and do not be lazy, Known and
+mindfulness, this is known as Picchu, which lived in the highest caste of the
+past.
+
+In addition, Bichu is a person who has met whatever patient's needs and medical
+necessities, and is a praise for what patient needs and medical necessities have
+been met. Medical necessities came to improper evil, not get the patient's needs
+and medical necessities do not fight, get the patient's needs and medical
+necessities are not tied, not faintly, innocent, have seen the affected area And
+he does not praise himself for the knowledge of the necessities of this patient
+and medical necessities, nor disdain others, whoever is there skilled, not lazy,
+cognitive, and mindful, this Known as Picchu, who lived in the highest caste of
+the past. For he should know the right amount、Meaning of satisfaction here。
+
+"He is a guardian in those, and a self-made man in the village": "'He is a
+guardian in that', ''he is a guardian in this', 'guardian of clothes, food,
+shelter, patient needs and medical necessities. , Guardians, Guardians. So he
+was a guardian on those. Or, 'He is a guardian, protector, guardian, guardian in
+all areas. ' So he is also the guardian on those.
+
+"In the village is a homemakers, prudent, cautious, guardians, guardians,
+guardians, guardians, guardians, guardians, guardians." For him is a guardian on
+those, and self-made in the village.
+
+"Even when he is exerted, he should not speak crude and evil words": "When
+defamed, reprimanded, defamed, annoyed, blamed, blamed, abuded, he should not go
+back in vain, crude, and he should not return to the argument. should notBack
+abusive, should not go back to anger anger, should not return to argument
+[person, SN.7.2], should not be quarrel, should not argue, should not be
+disputed, should not be argued, should not be done Uncontested, quarrel, argue,
+argue, argue, dissent, he should be disconnected, should be discarded, should
+end, should make it to nonexistent. He should have been separated from quarrels,
+arguments, disputes, arguments, disobedience, quashed, quashed, departed,
+departed, freed, bondage, and he should live with a restrained heart." To speak
+crude and evil words even when they are enraged.
+
+Because then, Worldman said:
+
+"After getting food and clothing in a timely manner, he should know the right
+amount and the sense of satisfying here,
+
+He is a guardian on those, a self-pacer in the village, and he should not speak
+crude and evil words even when he is enraged."
+
+207. eyes down and do not wander, dedicated to Zen, belongs to more sober,
+
+After going to calm into the state, he should cut off the intention of thinking,
+regret.
+
+"Eyes down and not wandering": "How are eyes confused? Here, Bichu is a man who
+is unrestless in the eyes, "The one that should be seen is not seen, and the one
+that should be crossed shall be seen." From garden to garden, from garden to
+garden, village to village, from town to town, city to city, from country to
+country, from place to place, he is in order to see a long processions,
+irregular processions Ever, this is confusing eyes.
+
+Or, when Picchu is a visitor to his home, walker on the street, he walks
+unprotected: he walks as he looks at the elephant, looks at horses, looks at the
+car, looks at infantry, looks at women, looks at men Boys, gazing at men and
+women, looking at the market, at the doorstep of the house, looking at the top,
+looking below, looking around all sides, this is also confusing eyes.
+
+Or, Bichu became an executor of the phase after seeing it, because when living
+in the root of the eye is not protected, the law of greed and evil bad will flow
+in, he does not act according to his own control, does not protect the root of
+the eye, Do not reach homemade [SN.35.120] on the root of the eye, so it is also
+confusing eyes.
+
+Or if some Samana, Brahmen, Master Brahmen, after receiving food from faith,
+they live in performances like this: dance, singing, music, drama, ancient
+speaking, handbell, cymbals, drums, magic, Iron ball play, bamboo stick play,
+stunt, elephant fight, horse fight, buffalo fight, bull fight, goat fight, ram
+fight, rooster fight, quail fight, stick fight, fist fight, wrestling, drill,
+soldier, Army, military parade, etc., this is also confusing eyes.
+
+How is it not confusing eyes? Here, Bichu is not a person who is unrestless in
+the eyes, and does not have an eye unrestless: "What should be seen is not seen,
+and the crossing should be seen." Not from garden to garden, not from garden to
+garden, not from village to village, not from town to town, city to city, not
+from country to country, not from place to place, he is not in order to see long
+processions in all its forms, The practitioners of irregular processions. This
+is not confusing eyes.
+
+Or, when Bichu is a visitor to his home, a walker on the street, he walks
+defensively: he does not walk while watching like... (middle) does not look
+around all sides, so it is not confusing eyes.
+
+Or, Bichu does not become the executor of the phase... (medium) to achieve
+homemade on the root of the eye, so that it is not confused in the eyes.
+
+Or, for example, some Samana, Brahmen, after being given food by faith...
+(middle) parade, etc., are evaders watching performances like this, so it is not
+confusing eyes." For the eyes down.
+
+"And not wandering", how is wandering? Here, Bichu is a wandering, wandering:
+from the garden to the garden... (middle) he is in order to see all kinds of
+processions, irregular processions, so is wandering.
+
+Or Bichu vandering in the monk park, wandering: no interest, no reason to lift
+the ground, without silence from the monk to the monk, from the residence...
+(middle) said if there is no matter, this is Wandering.
+
+"And the unwandering", he should be cut off, should be discarded, should end,
+and should make it non-existent. Should have been separated from wandering,
+quanned, quashed, departed, left, freed, unbound, he should live from the
+restricted heart, should become happy to sit alone, loving alone, inner stop
+Practitioners, do not disregard the Zen, have viewers, gain empty houses,
+meditators, Zen loving, monochism practitioners, self-Redeemer of their
+interests." For eyes down with no wandering.
+
+"Committed to Zen, belongs to how sober": "Committed to Zen", to two aspects:
+"For the birth of Zen at the beginning of the birth of Zen became the yoke,
+strong yoke, toward the yoke, toward the yoke, completely upward The yoke, or
+for the sake of the second Zen... (middle) the third Zen... for the birth of the
+fourth Zen shall become an upper yoke, strong, toward the upper yoke, to the
+upper yoke. This is dedicated to Zen. Or, "He has been born to practice,
+practice, practice, practice, or have given birth to a second Zen... Third
+Zen... He has given birth to a fourth Zen to practice, practice, and more." This
+is also dedicated to Zen.
+
+"To be sober," here, Bichu sat down during the day, to purify the heart from the
+law of obstacles. At the beginning of the night, walk and sit, so that the heart
+is purified from the law of obstacles. In midnight, the right threatened as a
+lion lying, put [left] foot on the [right] foot, mindfulness, and thought up. In
+the late night, then sit down, and purify the heart from the law of obstacles.
+[SN.35.120]" is a dedication to Zen, who belongs to the sober.
+
+"Calm": "Calm", which is the calm, uncaring, bystandstill, the end of the heart,
+the equality of the heart, the quiet state of the heart, the neutral state of
+the heart. "Stable state", that is the end of the heart, stability, stability,
+not scattered, smooth mind, luxury motor (stop), fixed root, steady force,
+positive. "To calm after the settling state": in the fourth Zen to calm after
+becoming a state of mind, heart is not confused, mind stable state. To proceed
+to calm after a fixed state.
+
+"He should sever the intention to seek, regret": "seek", there are nine kinds of
+seek: seek, malicious search, harm, kiss, land search, undead search, and
+compassion related to other people, related to the good and respectful
+reputation Seeks, and those associated with not being contempt, these are called
+nine kinds of hunts. For the purpose of seeking intent, for malicious search,
+malicious intent is intended, for harm to seek harm is intent. Or, for thinking,
+seeking, thinking, thinking is not clear intention; it is not as intended; I am
+slow as intention; worthy of intention; fall as intention.
+
+"Regret", the inaction of the hand (mischievous restlessness) is to regret, and
+the failure of the foot is also to regret, and the improper is thought
+(considered) as appropriate, appropriate is thought to be inappropriate, The
+sinless is thought of sin, sinful is thought to be sinless, where such regret,
+the path of regret, the state of regret, the remorse of the heart, the confusion
+of intent, this is called regret.
+
+In addition, the remorse of the heart, the confusion of mind aroused by two
+factors: what was done and what was not done. What is the confusion of remorse,
+the regret of the heart and the remorse of the mind? "I have done my deeds, and
+good deeds have not been done by me." He was born of regret, the remorse of his
+heart, the confusion of intent; words and evil were done by me... Good deeds
+were not done by me... "I did the death, and the death was never done by me." He
+was born of regret, remorse of heart, confusion of intent; not given but taken
+by me... Evil was done by me,... delusional words were made by me... offensive
+words were made by me... foul words by me... Done... Greed was done by me...
+Malice was done by me... "Wickedness was done by me, and I didn't do it." He
+gave birth to remorse, the remorse of his heart, and the confusion of intent,
+which was done and what was not done, remorse of the heart, the confusion of his
+mind.
+
+Or, "I'm not all branches on the ring." He was born of regret, remorse of heart,
+confusion of intent; "I am not the guardian of the root." ... (medium) "I'm not
+the right amount of diet." ... "I am not a sober." ... "I do not have a sense
+and mindfulness." ... "Four thoughts have not been practiced by me." ... "Four
+is not practiced by me." ... "Four gods have not been practiced by me." ...
+"Five are not practiced by me." ... "Five forces have not been practiced by me."
+... "Seven sensations have not been practiced by me." ... "Eight sacred roads
+have not been practiced by me." ... "Suffering is not known to me. ... "Bitter
+set was not cut off by me." ... "The way was not practiced by me. ...
+"Extermination has not been my testimony." He was born of remorse, heart regret,
+confusion of intent. "He should sever the intention of thinking, regret": "The
+intention of seeking and thinking and regret that he should sever, cut off, cut
+off, cut off, should be discarded, should end, should bring it to non-existence
+." Regret for his intention to sever the thought.
+
+Because then, Worldman said:
+
+"The eyes down and the wandering, dedicated to Zen, belongs to the sober,
+
+After the start of calmIn order to enter the state, he should sever the
+intention of thinking, regret."
+
+208. Those who read when they are urged by words should rejoice, and in the
+     desolation of the Ganswalker he should destroy,
+
+He should release good words [but] do not go beyond the boundaries of the
+people's dispute law he should not be intended.
+
+"Rejoice should be rejoiced when prompted by the words": "Came", pro teacher, or
+Ajali pear, or equivalent to a pro teacher, or a friend, or acquaintance, or
+close, or companions: Alumni! It is not appropriate for you; it is something you
+have not achieved; it is not for you; it is not for you; it is for your
+unrestrained interests." After remembrance, it urged him to rejoice, should
+rejoice, should be happy, should want, should accept, should seek, should pray.
+Such as a young woman or man who likes to decorate, the head has been washed,
+get green lotus garland, large jasmine garland, kindness wreath, received in
+both hands, after wearing on top of his head [MN.5] He should rejoice、 Should
+be happy, should be happy, should want, should accept, should seek, should pray.
+
+"As he shouted the treasure, whosoever sees sin shall see,
+
+The blame, the wise, and the wise man like that, should be close,
+
+Only those who are close like that are better and worse.
+
+May He teach and admonition, and let him stop the despicable,
+
+Indeed, he is loved by the good, and the unrighteous ones do not." [Dha. 76-77]
+
+"Those who read when they are urged by words should rejoice, and the desolation
+on the Gansman shall destroy": "The same act, the same recitation, the same
+learner. "The desolation of the Parker shall be destroyed." The state of the
+blows and the state of desolation on the Gansman should be destroyed. There are
+five kinds of heart barren [MN.16] He should break, there are three kinds of
+barren [SN.45.166] He should also break: the greedy barren, the barren of the
+barren, the barren of the idiot, he should break, should destroy, Should be
+completely broken." For the desolation on the Gansman he should destroy.
+
+"He should release good words [but] not exceed the limits": ""He should be wise
+to wait words that have interests, have the law, at the right time, with reason
+and restrained words he should release and should be issued. " For him should
+release good words. There are two kinds of boundaries: "[but] not exceed the
+bounds", "Boundaries": the boundary of the appropriate timing and the boundary
+of the ring. What are the boundaries of the right timing? Words that have passed
+due time he should not say, words that have passed the boundaries. He should not
+say, the right time, words that have passed the boundaries. He should not say,
+words that come at the right time. Words he should not say, the right time, the
+boundaries of the coming words he should not say.
+
+"Whosoever indeed comes to the right time, and he says beyond the bounds,
+
+So he was found to lie down, as the son of a cuckoo bird. [Jat.4.121]
+
+This is the boundaries of the appropriate timing. What is the boundary of a
+ring? He should not say, he should not say, the words of evil, he should not
+say, ignorant words he should not say, false words, he should not say, he should
+not say, he should not say, unspoken words, he should not say, unclean words he
+should not say, It should not be told, should not talk, should not say, it
+should not be said, this is the line of the ring." For him should release good
+words [but] do not go beyond the limits.
+
+"The law of controversy over people should not be intended": "People" are
+Chateli, Brahmen, Bisha, Sudala, in family, out of the family, the heavens, the
+heavens, people. Disputes, reprimations, reprimations, reprimations, blame,
+unpraised, not carried praise, or bad bad, or bad bad, or bad, or bad
+livelihood, he should not give birth to heart, should not give birth to intent,
+It should not be made to make it happen." For the controversy law on the people
+he should not have intended.
+
+Because then, Worldman said:
+
+"The rejoice of those who read when they are urged by the words, and the
+desolation of the Paraders shall be destroyed,
+
+He should release good words [but] not for a long time, he should not have
+intended to the law of controversy."
+
+209. go further in the world there are five kinds of dirt, for those who are in
+     order to revolve should learn,
+
+In the colors, the voices and the smells, he shall conquer greed upon the tastes
+and all the smells.
+
+"Further there are five kinds of dust in the world": "More", the continuation of
+the sentence; the link of the sentence; the success of the sentence; the
+combination of words; the connection of words; this is the second sentence, for
+'more'. "Five kinds of dirt", color dirt, sound dirt, odor dirt, taste dirt,
+touched dirt.
+
+Greedy, not dust, is called dirt, "dirt." This is the same as greedy.semantics,
+
+After abandoning this dust, the wise men live in the teachings of those who are
+away from the dirt.
+
+instead of dust is called dirt... (medium slightly),
+
+..., they live in the teachings of those who are away from dirt.
+
+Dementia rather than dust is called dirt... (medium slightly),
+
+..., they live in the teachings of those who are away from dirt.
+
+"In the world, in the worlds of bitterness, in the world of mankind, in the
+world of heaven, in the world of the world, in the world of worlds, and in the
+world." There are five kinds of dirt in the world for a further step.
+
+"For those who have a mind to revolve": "For those," color dirt, sound dirt,
+odor dirt, and on the dirt touched. "There are notions", all thoughts, memories,
+memory state, memory state, do not float state, do not forget the state, [read]
+read root, mindfulness, mindfulness, mindfulness, thought support, no fork in
+the road, this is known as reading. Has, fully has, walked in, fully entered,
+fully sufficient, fully sufficient, with this concept, he is called a mindful.
+"Should learn", there are three schools: add school, increase the heart, add Hui
+learning. What is Xi Zhen on the quit... (middle) This is the addition of
+Wisdom. "For those who are rebellious in order to revolve should learn": "A
+mindful person is greedy to those who are greedy, greedy to voice, smell greedy,
+smelt greedy, smells greedy, smells greedy, smells, smells, smells, Learning to
+increase the ring, should also learn to increase the heart, should also learn to
+increase the Hui. These three studies should be learned when toward (noted);
+when you know it should be learned... (medium) should be learned when
+testifying, should be practiced, should be practiced, should be carried out
+well, and should turn after being held." For those who have a mind to revolve
+should learn.
+
+"In the colors, the voices and the smells, he shall conquer greed in the tastes
+and the smells of the tastes and the smells.": "In the colors, the voices, the
+smells, greed in the tastes, and the smells, he shall conquer, It should be
+defeated, should be overwhelmed, should end, and should be crushed." To conquer
+greed in the colors, the voices and the smells, to touch upon the tastes and all
+the things.
+
+Because then, Worldman said:
+
+"Further, there are five kinds of dirt in the world, and for those who are
+mindful of revolting should learn,
+
+In the colors, the voices and the smells, he shall conquer greed in the tastes
+and the touches of them."
+
+210. In these laws he should be tempted: Bichu, a free mind,
+
+Appropriate and rightly consider the law, to become the exclusive he should kill
+the darkness. [Like this Worldman (said)]
+
+"In these laws he shall be tempted": "On these," touched upon the colors, the
+voices, the smells, in all the tastes. "Wills", which are the wills of the
+desire, greed, joy of desire, thirst love, the desire of love, the taking of
+desire, the scorching heat of desire, the obsession of desire, the flow of
+desire, the yoke of desire, the yoke of desire, the execution of desire, Desire
+will cover. "In these laws he shall revolve": "The desires of these laws shall
+be repulsed, expelled, cut off, shall be discarded, shall end, and should be
+made to non-existent." For in these laws he should be revolt.
+
+"Bichu," "Bichu", Zenvan Picchu, or learn bicchu. "Mindful", every reading, with
+the mind... (medium) mindfulness, thinking, no fork in the road, this is known
+as reading. With, completely has... (medium) this idea, which is called there.
+
+"Bichu of mind and heart relief": "into the heart of the first Zen has been
+dissociated from the cover, relief, good relief, into the heart of the second
+Zen has been dissociated from all seeking, into the heart of the third Zen has
+been dissociated from joy, liberation, good Free, into the heart of the fourth
+Zen has been dissociated from pleasure and bitterness, relief, good relief, into
+the void the heart of the boundless people has come from color thought, right
+thought, all kinds of want to break away, relief, good relief, into the heart of
+knowing the infinitely From the void to think... into the heart of the nowhere
+has nothing to think... into the heart of the people who want to do not want to
+be there has been no place to escape, relief, good relief, the heart of the
+wuanhuan has come from the presence, doubt , forbidden, see the potential trend
+of troubles, troubles potential trends, as well as with the existing pollution
+dissociation, relief, good relief, a person's heart has [crude want to be
+corrupt, bad knot,] from the rough desire to worry potential Trend, the
+potential trend of evil troubles, as well as with the existing pollution
+dissociation, relief, good relief, not the heart of the remnant from the
+residual desire to be greedy, evil knot, residual desire to annoy potential
+trend, suspected evil troubles potential Trend, and with its existence of
+pollution dissociation, relief, good relief, Alohan's heart has been from color
+greed, colorless greedy, slow, lifeless, unclear, slow worry potential
+trend、There is a potential trend of greedy troubles, potential trend of unclear
+troubles, and with its existing pollution and external separation from
+everything, relief, good relief." For the bichu of mind and kindness.
+
+"Timely and correctly, he considers the law": "Timely", in order to luxury when
+the heart is floating, it is the right time, beware of the time has entered the
+timed for Basha that is the right time.
+
+"At the appropriate time he is dedicated and further in other [timing] he stops,
+
+At the right time he is delight, at the right time he can focus on his focus,
+
+At the appropriate time he watched, he was a Zen, a skilled man at the right
+time.
+
+When is the right time to try your best? When is the right time to inhibit?
+
+When is the right time for joy? And what is the right time to lush him?
+
+Calm of the Heart Appropriate Timing: How to express it to the Zen?
+
+Try to be in the heart retreat, suppress in the fall,
+
+When the heart comes to the unhappy, he should immediately delight.
+
+Whenever beware of joy, become not back, do not fall off,
+
+That was the right time for him, and his own intentions should be delight.
+
+Whenever by these methods, become fixed,
+
+After knowing the mind, you should immediately watch.
+
+In this way, the wise become the person who knows the right time, the person who
+knows the right time, and the knowledge of the right time,
+
+It should always be discernible, the phase of the heart.
+
+"Appropriate and rightly consider the law": rightly consider the law:
+"Everything is unconstant." Correctly consider the law: "All doings are bitter."
+Correctly consider the law: "All law is without me." ... (medium) correctly
+considered the law: "Any set law is extinguishing."
+
+"To be exclusive, he should kill the darkness. [Like this worldly (say)]": "The
+"monothy", the heart, the heart is not scattered, the smooth mind, the luxury of
+him (stop), fixed root, constant force, positive" to become exclusive. "He
+should kill the darkness," the darkness of greedy, the darkness of the devil,
+the darkness of darkness, the darkness of the slow, the darkness of the
+polluted, the darkness of evil, done blindly, without the eyes, the unwise, With
+the party, he should not lead to Nibbana should kill, should kill, should be cut
+off, should be discarded, should be done to end, should make it to non-existent.
+
+"Worldworld", synonyms of respect. In addition, the "corrupt" is worldly;
+"destroyed" is worldly; "spoilt the slower" is worldly; "destroyed the slower"
+is worldly; "destroyed" is worldly; "has destroyed the thorns" for Worldship;
+"Destroy the polluter" for worldship; "division, analysis, distinction" for
+worldship; "some end" for worldship; "have been practiced, the heart has been
+practiced, the heart has been practiced, Hui has been practiced" for worldship ;
+or "Worldmaster close to the forest, wilderness, edge dwelling (sitting place):
+less voice, quiet, away atmosphere, person alone, suitable for sitting alone";
+or 'Worldship is clothes, feeding, dwellings, The patient's needs, medical
+necessities are worldly; or "Worldworld is the meaning, flavor, relief, increase
+the ring, increase the heart, increase the whims, add the heart, increase the
+whimsiness"; or "Worldzou is four kinds of Zen, four infinite amount 、Four
+colorless to some points" for worldship; or "Worldship is eight relief, eight
+wins, nine times the first place to have points" for worldship; or "Worldworld
+is ten want to practice, ten places to wait to, to the mind, etc., "Worldest is
+four, four positive, four gods, five, five forces, seven senses, eight holy way"
+is worldly; or 'Worldworld is ten as a force, four fearless, four fearless, four
+"There is no solution, six god, six senses" are worldly. Worldworld, this name
+is not given by the mother; not given by the father; given by a non-brother;
+given by a non-sister; given by a non-friend; not his relatives; not by Samana
+and Brahmen; Unheavenly This is the relief of the Buddha, worldly, and under the
+linden tree, and the acquisition and testimony of all wisdom and wisdom, that
+is, Worldom. To become exclusive he should kill the darkness. [Like this
+Worldman (said)]
+
+Because then, Worldman said:
+
+"In these laws he should be tempted: Bichu, a free mind,
+
+Appropriate and rightly consider the law, to become the exclusive he should kill
+the darkness. [Like this Worldman (said)]"
+
+Sixteenth [completed] statement of the Scripture of Sharif.
+
+Eight sets of products sixteen classic instructions have been complete.
+
+Great interpretation classic has been completed.
+
+
+
 
 
 Excerpt:
- 1. live in a quiet place should have the resistance and morality.
- 2. whenever the mind is cloudy (all bad work) shouldKnowing that should be evicted.
- 3. unclear, not as well as rational/I am slow/shameless, shameless, fall is the root of anger and very slow.
- 4. meditators should cut off their intention and regret.
- 12/15/2020 16:20
+
+1. live in a quiet place should have the resistance and morality.
+
+2. whenever the mind is cloudy (all bad work) shouldKnowing that should be
+   evicted.
+
+3. unclear, not as well as rational/I am slow/shameless, shameless, fall is the
+   root of anger and very slow.
+
+4. meditators should cut off their intention and regret.
+
+12/15/2020 16:20
+

@@ -1,292 +1,2057 @@
 14. Quick explanation
-     Secondly, the quick explanation will say:
-     150. Sun people! I ask you, the realm of far away and silence, Great Immortal!
-How did        see the post-bhikkhu reach Nibbana and become one who has no clinging in the world?
-     "Sun people! I ask you": "Inquiry (ask)", there are three kinds of inquiries: inquiry about unseen explanation, inquiry about confluence of what you see, inquiry about cutting off doubt. What is the unseen explanation inquiry? It was originally a feature that was unknown, unseen, unmeasured, unjudged, unclear, unclear. For his wisdom, seeing, measuring, judging [, clear], understanding, he asked questions, this is Inquiries about unseen explanations. What is the confluence of what is seen? It was originally a characteristic that was known, seen, measured, judged, clear, and understood. He asked questions for the purpose of confluence with other wise men. This is a question of confluence of seen. What is the question of the cut-off of doubt? It was originally a jump-in (Sri Lankan version) doubter, a jump-in doubter, and a doubter: "Is that so? Isn't it? What is it? How is it?" He asked questions for the purpose of cutting off doubts, this It is a question of cutting off doubts. These are three types of queries.
-     The next three kinds of inquiry: human inquiry, non-human inquiry, and human inquiry. What is a human inquiry? Everyone asked questions after they went to see the Buddha and the World-Honored One: asked bhikkhus, bhikuni, yobosai, yoboyi, kings, kshatriya, brahmins, and vishas, The heads of the dhara asked, the lay people asked, the monks asked, this is a human question. What is an inhuman inquiry? The non-people asked questions after they went to see the Buddha and the Blessed One: asked the dragons, asked the golden-winged birds, asked the yasha, asked the asuras, asked the gandapo, asked the kings, asked the Indra, asked the Brahmas , Asked the gods, this is an inhuman inquiry. What is an inquiry from a human? All the body and limbs of the physical body produced by the creation intention of the Blessed One are not lacking in the roots. The Blessed One will ask questions after seeing the Buddha and the Blessed One, and the Blessed One will answer him. This is a question of the Blessed One. These are three types of queries.
-     The next three kinds of inquiry: inquiry for one's own benefit, inquiry for the benefit of others, and inquiry for the benefit of both. The next three inquiries: inquiries about current interests, inquiries about future interests, and inquiries about highest interests. The next three kinds of inquiry: inquiry of the benefit of no fault, inquiry of the benefit of no pollution, and inquiry of the pure benefit. The next three types of queries: [about] past queries, future queries, and current queries. The next three inquiries: [About] Inquiries within oneself, inquiries outside oneself, and inquiries within and outside oneself. The next three inquiries: [about] good inquiries, unkind inquiries, and non-remembering inquiries. The next three types of queries: [about] Yun, Jie, and Chu. The next three inquiries: [About] Inquiry about Mindfulness, Inquiry about Diligence, Inquiry about Spiritual Content. The next three kinds of inquiry: [about] the root inquiry, the strength inquiry, the enlightenment inquiry. The next three kinds of inquiry: inquiry of Tao, inquiry of fruit, inquiry of Nibbana.
-"[Sun tribe!] I ask you": ""I ask you; I beg you; I beg you; you make me clear; please tell me." Ask you for me. "Sun tribe", Sun (Ādicco ) Is called the sun (sūriyo), the sun is surnamed Gautama, the Blessed One is also surnamed Gautama, the Blessed One is a relative of the sun surname, a relative of the surname of the sun, so the Buddha is a member of the sun tribe. "For the sun tribe! I ask you.
-"Far away and quiet, great immortal": "Far away," there are three types of distance: body distance, heart distance, and clinging distance. What is body distance? Here, monks close and live alone: forests, trees, mountains, caves , Caves, cemeteries, forests, open fields, straw piles, living away from the body [living away from the body-Ni.2,7 偈], he walks alone, stands alone, sits alone, lies alone, and enters the village alone for alms To return alone, to sit alone in a quiet place, to perform alone, to walk alone, to live, to act, to turn, to guard, to survive, to survive, this is to stay away from the body.
-     What is the mind away? The mind of the person who enters the first jhana has been separated from the covers, the mind of the person who has entered the second jhana has been separated from the search and service, the mind of the person who has entered the third jhana has been separated from happiness, the heart of the fourth jhana has been separated from happiness and suffering Far away, the mind of the person who enters the void and boundlessness has already thought about things, there is antithetical thinking, and all kinds of desires to be far away, the heart of the person who enters the boundlessness of consciousness has wanted to stay away from the void and boundlessness, and the mind of the person who has entered nowhere has thought from the boundlessness of consciousness To stay away, to enter the mind of the person who has no thoughts, and wants to stay away from nothing. The mind of the Sudhahuan person has changed from seeing, suspicious, forbidden, seeing the potential trend of defilement, the potential trend of doubt defilement, and the same. Stay away from the existing pollution,The mind of the one who has come has changed from crude desire and greed knots, from the potential trend of crude desire and greed, the potential trend of disgust and trouble, and the pollution of the same existence. The heart of those who do not return has been knotted from the residual desire and greed. , Disgust knot, from the residual potential trend of greed and greed, the potential trend of disgust, and the pollution that exists with it, the heart of Arahat has changed from color greed, colorless greed, slowness, abandonment, ignorance, potential trend of slow trouble, The latent tendency of greed and defilement, the latent tendency of ignorance defilement, and the pollution that coexists with are far away from the outside and everything.
-    What is keeping away? Relying on is called pollution and various aggregates and various works; Relying on distance is called immortality, Nibbana, that is the cessation of all actions, the cessation of all dependence, the extinction of craving, greed, extinguishment, and Nibbana , This is to stay away. The distance of the body belongs to the continuous separation of the body and the willingness to leave the desire; the separation of the mind belongs to the purity of the heart and the highest purity; the separation of the body belongs to the unattached person, who comes to leave. "Silence" refers to a form of silence and a state of silence, that is, immortality and Nibbana, which is the cessation of all actions, the cessation of all attachments, the extinction of craving, greed, extinction, and Nibbana. This is said by the Blessed One: "This is the state of silence, this is the state of victory, namely: the cessation of all actions, the cessation of all attachments, the extinction of craving, greed, extinction, Nibbana [SN.48.50] . "With another aspect: all dhammas lead to the realization of silence, the touch of silence, and the testimony of silence, just like these four mindfulness, four righteousness, four divine feet, five faculties, five powers, seven enlightenment factors, and eight Supporting the Holy Way, these are called the realm of silence, the realm of refuge, the realm of refuge, the realm of refuge, the realm of no fear, the realm of no death, the realm of immortality, and the realm of Nibbana.
-     "The Great Immortal", the Great Immortal is the Blessed One, and the "Seekers, Pursuers, and Seekers of the Great Precepts" are the Great Immortals. Dading Yun... (slightly omitted) Da Hui Yun... Great Liberation Aggregate... "The seeker, pursuer, and seeker of the Great Liberation Wisdom and Insight" is the great immortal; the fragments gathered by the dark... The destruction of the great upside down... …The pulling out of the big thirsty arrow…The unraveling of the accumulation of sight…The lifting of the big slow flag (Thailand version)…The calming of the great work…The increasing of the big storm…The laying down of the heavy burden… ...The severance of the cycle of the great reincarnation...the disappearance of the great heat...the cessation of the great heat..."the seeker, the pursuer, and the seeker who made the establishment of the Dafa flag" become the great immortal; the great minds... Dazhengqin...the great gods...the great roots...the power...the great enlightenment branches...the big eight branches of the holy path..."the immortality of the great supreme benefit, the seeker of Nibbana, the pursuer, the seeker" is Great Immortal; "Seeked, pursued, and searched by powerful beings: Where is the Buddha? Where is the Lord? Where is the god among the gods? Where is the king of cows among people? "Is a great immortal. "For the realm of distance and silence, Great Immortal!
-"How to see the post-bhikkhu to reach Nibbana": "How to extinguish one's greed (to reach Nibbana) after seeing, after seeing, after weighing, after judging, after separating, after clarifying, to extinguish one's anger, to make one's ignorance Extinguish, anger... (slightly) resentment... hiding evil... bossy... envy... stingy... fake... cunning... stubborn... passion... slow... extremely slow... slow... letting go ...All pollution...all evil deeds...all afflictions...all scorching heat...all heat afflictions...all unwholesome deeds make it annihilate, calm it, quiet it, calm it down, and stop it. "Bhikkhu," a monk, a monk, a monk, or a monk who learns." To see how the monk reaches Nibbana.
-"Become the one who has no clinging in the world": "From the four kinds of works to become the one who does not take the author, the one who does not hold, the one who does not cling, the one who does not cling to. "In the world", in the world of suffering, the world of humans , The world of heaven, the world of aggregates, the world of realms, the world of existence. "Any", any form, feeling, thinking, behavior, consciousness." Become one who has no clinging in the world.
-     Because of that, Huaren said:
-     "Sun people! I ask you, the realm of far away and silence, Great Immortal!
-How did        see that the post-bhikkhu reached Nibbana, as one who has no clinging in the world? "
-    151. [Like this Blessed One (saying):] The root of the false name: After consideration, all "I am" should be stopped,
-       Any cravings within oneself should always be learned consciously for those adjustments.
-"[Like this Blessed One (say):] The root of the name of vain: after consideration, we should stop all "I am"": "Fantasy is the name of vain (concept/cognition): the name of vain, the name of vain Name. What is the root of the illusory name of craving for love? Ignorance is the root; not as the root of reason; I am the root of slowness; without shame as the root; being ashamed as the root; falling as the root, this is the root of craving FalsehoodThe root of the name. What is the root of the false name of seeing? Ignorance is the root; ignorance is not the root of reason; I am slow as the root; without shame as the root; worthy of the root; falling as the root, this is the root of the vain name of seeing.
-     "Blessed One", synonymous with respect. In addition, the "destroyed greedy person" is the world-honored; the "destroyed gangster" is the world-honored; the "destroyed idiot" is the world-honored; the "destroyed slow" is the world-honored; the "destroyed seer" is the world-honored; "The Thorns" is the Blessed One; the "who has destroyed the pollutants" is the Blessed One; the "one who divides, analyzes, and distinguishes the magic weapon" is the Blessed One; "someone who ends" is the Blessed One; "the body has been practiced, the precept has been practiced, the mind has been practiced, Those who have learned wisdom are the world-zun; or "the world-zun is a woodland, barren forest, border dwelling place (sitting place): low-voicing, quiet, away from people, living alone, and suitable for sitting alone. "The Blessed One" is the Blessed One; or "The Blessed One is the one who divides clothes, food, shelter, the necessities of the patient, and medical necessities" as the Blessed One; or "The Blessed One is the taste of righteousness, the taste of the Dhamma, the taste of liberation, the precept and the mind "The one who has increased wisdom" is the world-zun; or "The world-zun is the four kinds of jhana, four immeasurable, four-colorless, etc." as the world-zun; or "the world-zun is the eighth liberation, the eight victories, the ninth abode, etc. The one who is the most divided is the Blessed One; or "The Blessed One is the practice of ten-thinking, the tenths, the one who waits for the tenths, the one who enters and exits the mind, the one who is impure, the one who is the Blessed; or the "the Blessed one is the four mindfulness, One who has the four righteousness, the four gods, the five senses, the five powers, the seven enlightenments, and the eight branches of the holy path" is the world-blessed one; or "the world-blessed one is the tenth, four fearless, four unobstructed, six magical powers, six enlightenments The "divider of Dhamma" is the deity. "World Honored One", this name is not given by (made) by mother; not given by father; not given by brothers; not given by sisters; not given by friends; not given by relatives; not given by Samana or Brahman What is given; what is not given by heaven is ultimate liberation; the establishment (pseudonym) for the acquisition and testimony of the Buddha, the Blessed One, under the Bodhi tree, and all knowledge and wisdom, that is, the Blessed One. "It is [Like this Blessed One (Speaking):] The root of a false name.
-"After consideration, you should stop all "I am"": "After consideration, it is called wisdom, which is wisdom, knowledge and understanding... (slightly) no delusion, choice of law, right view. "I am", about the "I am" "There is a latent trend of troubles such as slow "I am" and desire "I am", about feeling...about thinking...about behavior...about consciousness "I am", slow "I am" and desire The potential trend of the troubles of "I am"." "[Like this Blessed One (saying):] The root of the false name: After consideration, everything should be stopped. "I am": "After consideration, it should be prevented, stopped, eliminated, calmed, and eliminated No, stop the slowness of the root of all false names and I am." For [Like this Blessed One (said):] The root of false names: After consideration, we should stop all "I am".
-"Anything within one's thirst for love": ""Anything", all completely, every aspect completely, no surplus, the whole earth, this is the word that is taken all over, which is "anything". The craving for sex... (in the abbreviated) Dhamma craving. "In oneself", "Waiting for that craving in oneself (Thailand version)." In oneself. Or, "The one in oneself is called the heart: the heart , Mind, mind, heart (dirty), white (purified), mind, mind location, mind root, consciousness, consciousness accumulation, corresponding to the consciousness realm, the mind is coexistent, coexistent, and intermingled by that craving , Correspondence, co-existence, co-extinction, the same place of dependence, and the same object" are also within oneself." It is any desire within oneself.
-"For those modulations, we should always learn it with a mindfulness": "always", always; everything; all the time; always; eternal time; always constant; continuous; uninterrupted; successively; water wave It arises without interval; continuously accompanies it to reach; in the early noon, noon, first night, midnight, and late night; in the dark moon, bright moon, rainy season, winter, summer; in youth, middle age, old age. "Conscientiously (of)" means being conscientious in four ways: when practicing mindfulness on the body and mindfulness, being mindful, on receiving...in the mind...when practicing mindfulness in the Dhamma Mindfulness is mindful. The next one is conscientious in four ways: the state of avoiding non-mind is conscientious, the state of the Dhamma that should be done in response to thoughts is conscientious, the state of the Dhamma that is obstructed in mind is being destroyed, the state of being conscientious, right Mind factor (phase) [的法-Ni.1,3偈] The state of not forgetting is mindful.
-The next one is mindful in four ways: the state of mindfulness is mindful, the state of mindfulness is mindful, the state of mindfulness is mindful, and the state of mindfulness is not reduced. of.
-    The next one is conscientious in four ways: the state of conscientiousness is conscientious, the state of silence is conscientious, the state of calmness is conscientious, and the state of having the Dhamma of SilenceBe mindful; take Buddha's mindfulness as mindful, use Dhamma and mindfulness as mindfulness, take Sangha's mindfulness as mindfulness, take precepts and mindfulness as mindfulness, and take alms and give as mindfulness , With the mind of the sky as the mind; the mind of entering and exiting the breath as the mind, the mind of death as the mind, the mind of the body as the mind, the mind of the silence as the mind; the general mind and the mind , Remembrance, the state of remembrance, retention, non-floating, non-forgetting, the root, power, mindfulness, support of mindfulness, and the path of no divergence of mind are called mindfulness. Having, being fully possessed, reaching, fully reaching, possessing, being fully possessed, possessing this thought, he is called mindful.
-     "Learning", there are three kinds of learning: increasing precept learning, increasing mind learning, and increasing wisdom learning. What is to add to school? Here, the bhikkhu is a preceptor who lives and is protected by the self-control of the Polo Timucha. He has sufficient righteousness and state of affairs. He sees the terrible in minor sins, and learns after being upheld at the school. The small and large precepts are the basis of the abstinence, the [self] restraint of behavior, the entrance of self-control, the head of the virtuous dhamma (achieved), the virtuous dhamma (achieved), this is to increase the precept learning .
-    What is to learn more? Here, the bhikkhu lives in the first jhana of seeking and serving after he is absent from desires and unwholesome Dhamma, and after detachment produces joy and happiness, he calms down with seeking and serving, with confidence, and one mind. After entering, he lives in no seeking, The second jhana of happiness and happiness is born without waiting, concentration, which fades with happiness and dwells in peace, has mindfulness and right knowledge, and feels happiness with the body. After entering, dwelling in this holy disciple proclaimed: "He is calm and possessed. The third jhana of "Mindfulness and abide in the happy", the renunciation of pleasure and the renunciation of suffering, and the extinction of the joy and sorrow before, after entering, dwell in the stage of not suffering or unhappy, from being calm and chanting completely. Four jhana, this is to increase the mind.
-    What is to go to school? Here, the bhikkhu is a wise person, possessing the wisdom that leads to the arising and passing away; the holy, insight, and the complete extinction of suffering [zhihui], he truthfully knows "this is suffering." truthfully knows "this is the collection of suffering "Knowing the truth "This is suffering." Knowing the truth "This is the path leading to suffering." Knowing the truth: "These are troubles." Knowing the truth: "This is the collection of troubles." Knowing the truth: "This is the extinction of defilements." To know the truth: "This is the path leading to defilement of defilements." This is to increase the wisdom of school.
-"For those who want to tune up, he should always learn it with a sense of mind": "For those who want to tune, eliminate, let go, calm down, cut off, and stop, he should learn to increase precepts, and he should also learn to increase his mind. Learn to increase wisdom. These three learnings should be learned when heading towards (noting); learning when knowing; learning when seeing; learning when introspecting; learning when establishing (decision); You should learn when you are vigorous; you should learn when you are vigorous; you should learn when mindfulness arises; you should learn when mind concentration (concentration); you should learn when you know with wisdom; you should learn when you know what should be known; Learn when omniscience should be omniscience; learn when renounce what should be renounced; learn when practice should be practiced; learn when practice should be practiced; learn, practice, and practice well when practice should be witnessed After being held up, you should turn it around." For those adjustments, you should always learn it conscientiously.
-     Because of that, the Lord said:
-     "[Like this Blessed One (saying):] The root of the false name: After consideration, we should stop all "I am",
-       Any cravings within oneself should always be learned consciously for those adjustments. "
-    152. Anyone who can prove and know the Fa, whether inside or outside of himself,
-       should not be fortitude because of that, because that is not said to be dying by the good.
-"Anyone who can prove the knowledge of the Dhamma is within himself": "Any one of his own virtues, he can know whether it is good or unrecognized. What is his own merit (good quality)? Will it be a monk from a noble family, or It may be a monk from a wealthy family, or a monk from a wealthy family, or it may be a famous person or a famous person in the same household and a monk, or it may be in clothes, food, shelter, patients The person who gains the necessities and medical necessities" may be a scribe, or a lawyer (law holder), or a speaker, or a person who lives in the wild, or a beggar, or Is a person who wears feces sweeping clothes, or who is only three-clothed, or who is a second-time beggar, or who is not eaten after eating, or who is often sitting [not lying], or who lives anywhere, or It will be the "receiver of the first jhana", or it will be the "receiver of the second jhana", or it will be the "receiver of the third jhana", or it will be the "receiver of the fourth jhana", or it will be " The one who waits until the void is boundless", the one who waits until the boundless knows...and waits until there is nothing...may be a "the one who waits for nothing but wants," and this is called his own merit. Whatever his own virtues, he can know, canTo know, to know, to know, to be able to understand. "For anyone who can prove and know the Fa, within himself. "Or external": "It will be those who are pro-teacher, or the merit of the teacher (Ari)." It is also external.
-"You should not be fortitude because of that": "You should not be fortitude, stubbornness, arrogance, tribute, and sluggishness based on your own merits or the merits of others. Pride should not be produced because of that. That way, you become a stiff, very stiff, head-raising person." Because you should not be fortitude because of that.
-"Because the one who is not good is said to be dying": "To the good (Satānaṃ), to the good (santānaṃ), to the good (sappurisānaṃ), to the Buddha, to the disciples of the Buddha, and to the Pichi Buddha, "That is sane "Exit" is not said, not explained, not explained, not taught, not told, not established, not revealed, not analyzed, not clarified, not explained." Because that is not good. Said it was dying.
-     Because of that, the Lord said:
-     "Anyone who can prove and know the Fa, inside or outside of himself,
-       should not be fortitude because of that, because that is not said to be dying by the good. "
-    153. It should not be considered a winner, inferior or equivalent because of that,
-       is touched by more than one person, and he shouldn't keep his own classification.
-"Should not be considered a winner because of that": "Should not be born, or surname, or good family, or beauty as a lotus, or property, or research (acquisition), or career, or Use skill, or clarity (academic), or hear, or argue, or something that makes "I am the winner" very slow to produce." It shouldn't be considered a winner because of that.
-"Is the inferior or the equivalent": "Should not be born, or by the surname... (omitted) or something to make "I am the inferior". It should not be born or by the surname, Or with good family, or with beauty as a lotus flower, or with property, or with research (acquisition), or with kamma, or with skill, or with light (academic), or with hearing, or with argument, Or use something to slow down "I am the equivalent"." It is the inferior or the equivalent.
-     "To be touched by more than one form": "To be touched by various forms, tortured, combined, possessed." To be touched by more than one form.
-     "He should not maintain a classification of himself": "He is called me. He should not keep constructing, classifying, and arrogantly distinguishing me (self)." Because he should not maintain a classification of himself.
-     Because of that, the Lord said:
-     "You should not think that you are the winner, the inferior or the equivalent just because of that,
-       is touched by more than one person, and he shouldn't keep his own classification. "
-    154. There should be silence only within oneself, monks should not seek silence from others,
-       The silent person within himself, where can he refuse what he has not taken?
-"Only oneself should be quiet": "The greed in oneself should be calmed; anger should be calmed; ignorance should be calmed; anger... (slightly) resentment... hiding evil... bossy... envy... stingy …False deception… Cunning… Stubborn… Passion… Slow… Very slow… Slow… Relax… All pollution… All evil… All troubles… All scorching heat… All heat Annoyance... All bad deeds should be calmed, quieted, calmed, silenced, and ceased." For only oneself should be quiet.
-"Bhikkhus should not seek silence from other things": "From other things, with impure ways, evil ways, and non-departures, except for the mindfulness, except for the righteousness, except for the feet of the gods In addition, apart from the roots, apart from the forces, apart from the enlightenment factors, and apart from the eight branches of the holy path, one should not seek, seek, and seek silence, silence, peace, cessation, and cessation." Bhikkhus should not seek silence from others.
-"The Silent One in Oneself": "The one who desires silence within oneself; the one who averts the silence; the one who ignorantly stops... "For the silent person within himself.
-"Where can I refuse the one that is not taken?": "The "no" is negative. The "taken" is for me, but he doesn't. He doesn't hold the ones, and the ones that "reject" are those that should be released. He doesn't. Anything that should be held, there is something that should be released [; that which should be released, there are those that should be held] . For him, it is a transcendence who grasps and releases. The Arahat has surpassed growth and retreat.Practicing actors... (slightly omitted) The cycle of life and death, without his rebirth. "For those who haven't taken it, where can there be rejection."
-     Because of that, the Lord said:
-     "Only oneself should be silent, monks should not seek silence from others,
-       Those who are silent within themselves, who have not taken it, and where can they refuse. "
-    155. As in the middle of the sea, it is stable without waves being generated.
-       Those who live and do not disturb like this, the bhikkhu will not increase prosperity no matter where he is.
-"As in the middle of the sea, it is stable without waves being produced." "The ocean is high and deep for 40,000 ys. The water below forty ys is swayed by fish and turtles, and the water above forty ys is swayed by wind, and the middle is 40,000. The water of Yushun does not shake, shake strongly, do not move,, does not tremble, does not tremble (strong tremor), does not tremble much (strong tremor), not passive, not stirred, not waved, not stirred, not rotated , Is calmed down, where no waves are generated, it is a stable sea." Like this is like in the middle of the sea, no waves are generated, it is stable.
-Or, "In the middle of the seven mountains there is a colored peach evening, a big peach, and the sea, where the water does not shake, does not shake strongly, does not move, does not tremble, does not tremble, does not tremble too much, does not passivity, is not stirred, is not fluctuated, Not to be disturbed, not to be rotated, to be calmed down, where no waves are generated, it is a stable sea." Like this, it is also in the middle of the sea, where no waves are generated, it is stable.
-"Like this one who lives and does not disturb": ""Like this" is a metaphorical arrangement. "The one who lives (stable)", "He does not shake when he gets it; he does not shake when he does not get it; [Yes] He does not shake when he is famous; he does not shake when there is no reputation (bad reviews); he does not shake when praised; he does not shake when he reprimands; he does not shake when he is happy; when he is suffering He does not shake, does not shake strongly, does not move, does not tremble, does not tremble, does not tremble greatly." This is the one who stands. "The one who does not disturb", disturbance is called thirst, that is greed, greed (complete greed) )…… (omitted) greed, greed, and unwholesome roots. For him who is disturbed, craving is cut off, cut off, cut off, calmed down, stopped, unable to arise, and burned by the fire of wisdom, he Known as the undisturbed. The undisturbed state is regarded as the undisturbed. He does not shake when he gets it; he does not shake when he does not; he does not shake when [has] reputation; he does not shake when he has no reputation; He doesn't shake during bad reviews; he doesn't shake during praise; he doesn't shake during reprimand; he doesn't shake during happiness; he doesn't shake during suffering. He doesn't shake, shake, move, or tremble. , Don't tremble, don't tremble too much." This is the one who lives and does not disturb.
-"Bhikkhus will not increase prosperity no matter where they are": "In "increasing prosperity", there are seven increasing prosperity: greed, aversion, delusion, slow increase, see increase, pollution increase, kamma increase Sheng, he will not do, will not produce, will not produce, will not cause it to arise, will not cause it to arise. "No matter where", no matter where, no matter where, no matter where, inside or outside Or inside and outside." For the monk, no matter where he is, he will not increase prosperity.
-     Because of that, the Lord said:
-     "As in the middle of the sea, it is stable without waves being generated,
-       Those who live and do not disturb like this, bhikkhus will not increase prosperity no matter where they are. "
-    156. The discerning person tells the self-certification of distressed modulation,
-       respect the teacher! Please tell me about the Taoism, Polo Timucha or even set.
-"Speaking of the discerning person": ""telling", "telling, explaining, explaining, teaching, informing, establishing, uncovering, analyzing, clarifying, explaining." is the narration (Thailand version). The five eyes are the clear eyes: the naked eye is the clear eye, the heavenly eye is also the clear eye, the clear eye is also the clear eye, the Buddha's eye is also the clear eye, and all eyes are also the clear eye.
-     How does the Blessed One regard the naked eye as a discerning person? There are five colors in the eyes of the Lord: cyan, yellow, red, black, and white. The eye hairs of the Blessed One are blue, extremely blue, straight, beautiful, and the same as flax (Sri Lanka version) where the eye hairs stand. The others are yellow, extremely yellow, golden, and straight. Beautiful, equal to the flower of the winged tree. The two eyes of the Blessed One are red, extremely red, straight, beautiful, and equal to cochineal, and in the middle are black, extremely black, not coarse, moist, straight, beautiful, and equivalent to wet The others are white, extremely white, white, yellow-white, upright, beautiful, and equivalent to the Taibai star. With the naked eyes of the Blessed One who belonged to the natural individual and was born in the previous good industry, he saw everything in Yiyushun day and night, when there are four branches of darkness: sunset, black side [moon] busa, heavy forest, and timeThe black cloud of Nimbus (Thailand version) appears. Like this, when there is the darkness of the four branches, he also sees everything in Izumi day and night. There are no walls, or shutters, or fences, or mountains, or bushes, or Gemans, which are obstacles to his vision of form and form. If a sesame is marked and put into a cart full of sesame, he can select that sesame. In this way, the Blessed One's natural naked eye is pure, and the Blessed One takes the naked eye as a clear eye.
-     How does the Blessed One regard the eyes of the sky as the discerning one? With a pure and transcendent celestial eye, the Blessed One sees that when all beings die and pass away, they are inferior, triumphant, beautiful, ugly, fortunate, and misfortune, knowing that all beings flow according to their kamma: "These beings and monarchs have body, evil, behavior, Evil deeds, deeds of intention and evil, rebuke the saints, wrong views and kamma of holding wrong views, they have passed away after death to the suffering realm, evil interest, lower realm, hell, or these beings, who have good deeds of body, good deeds of speech, To do good intentions, do not condemn the saints, right view and uphold the right view of the kamma, they have passed away to the world of goodness and heaven after death by disintegrating their bodies. "In this way, with a pure, transcendent heavenly eye, he saw that when all beings are living and dying, when they are reborn, in the inferior, triumphant, beautiful, ugly, fortunate, and unfortunate, he knows the flow of all beings according to kamma. When he wants, the Blessed One can see one world world, two world worlds, three world worlds, four world worlds, five world worlds, and ten worlds. Realm, I can see 20 world realms, 30 world realms, 40 world realms, 50 world realms, 100 world realms, and you can see These thousand small world realms can also see these two thousand middle world realms, and three thousand great thousand world realms (Sri Lanka version) [AN.3.81]. Or if he wants to, he can see it. In this way, the Blessed One's heavenly eyes are pure, and the Blessed One is such a person who takes the heavenly eyes as his clear eyes.
-     How does the Blessed One regard the discerning eye as the discerning person? The Blessed One is the one who has great wisdom, the one who has the wisdom, the one who has the wisdom, the one who has the wisdom, the one who benefits the wisdom, the one who perceives the wisdom, the one who is skilled in the type of wisdom, the one who has developed wisdom, the one who has proved that there is no obstacle, the one who has reached four fearless, There are ten powerful people, people like cows, people like lions, virtuous people, people who can afford, people who have no bounds, those who have no bounds, those who have boundless reputation, the rich, the rich, the rich, the guide, the moderator , Soothes, informs, makes them consider, makes them see, makes them clear, the Blessed One is indeed the founder of the unborn Tao, the producer of the unborn Tao, and the unannounced preacher; It is the one who knows the Tao, the one who knows the Tao, the one who knows the Tao, and [its] disciples now live in the accompanying Tao, and will be those who have it in the future.
-The Blessed One is indeed the one who knows and the one who sees, he knows and sees; he is the one who is born with eyes, is born with wisdom, is born with Dhamma, and is born with Brahma; is an interpreter, promoter, and interpreter of righteousness, The immortal giver, Dhamma King, Tathagata, none that the Blessed One did not know, did not see, did not know, did not testify, did not touch with wisdom, the past, the future, and the present came to the Buddha and the Buddha with all the deeds In the field of wisdom, anyone with any name that should be guided to reason can be known: one's own righteousness or others' righteousness or both, or the righteousness of the current life or the righteousness of the next life or both , Or deep or hidden or hidden, or should be guided to infer, or have been guided to determine, or no fault or pollution, or clear or top interest , Everything revolves in the Buddha's wisdom.
-All body kamma follows the wisdom of the Buddha and the Blessed One; all language kamma...all mental kamma...the past wisdom of the Buddha and the Blessed One is barrier-free; [Buddha, the world-zun] regarding the future...the present wisdom is barrier-free , All that should be guided to infer is the reach of wisdom; all that should be guided to inference is the reach of wisdom, the ultimate that should be guided to inference is wisdom; the ultimate of wisdom is what should be guided to infer, Transcendence should be guided to infer the back intellect not to turn; Transcendence to infer has no way to be guided to infer. These methods are restricted to each other, such as two box covers are completely contacted, and the lower box cover does not pass over the upper one. ; The upper box cover does not go over the lower one, and is restricted to each other. [Similarly,] All that should be guided to infer that is the reach of wisdom; all that should be guided to inference is the reach of wisdom; the ultimate that should be guided to inference is wisdom; the ultimate of wisdom is to be Those who lead inference, transcendence should be led to infer, and the post-intellect does not turn; transcendence has no way to be led inferential. These laws live in mutual restriction.
-     The wisdom of the Buddha and the Blessed One is transferred in all the Dhamma, all Dhamma is the Buddha, the Blessed One's turning system, the hope system, the intention system, the arising mind system, the Buddha,The Blessed One's wisdom is transferred to all sentient beings. The Blessed One knows the intentions of all sentient beings, knows the potential tendency of troubles, knows the behavior, knows the solution (ambition), knows about the less dusty, the more dusty; the rooted and the dull rooted; Good deeds and evil deeds; easily teachable and unfavorable; capable and incapable sentient beings, including the world of heaven, demons, and Brahman; generations of saman, brahman, heaven, and human are all in the Buddha's wisdom Turn up.
-     Just as all fish, turtles, and even big fish swallowing boats revolve in the sea, the same is true of the world including heaven, demon, and Brahman; generations including Samana, brahman, heaven, and human all revolve in the wisdom of Buddha. Such as any bird and even the gold-winged birds of the descendants of Wei Na were turning around in the void field. In the same way, those who have the same wisdom as Sariputta also revolve around in the field of Buddha wisdom. The wisdom of the Buddha is pervasive and transcends heaven and human. Those wise Kshatriya, wise Brahmins, wise homeowners, wise Samana, smart dissidents, sharp breakers who want to do evil views with a wise attitude, they are ready Later, I saw the Tathagata and asked about the hidden and secret [yili]. Those questions were discussed and answered by the Blessed One with reasons, but they abandoned those nearby and became the [disciples] of the Blessed One. At that time, the Blessed One was there, "Yihui" "Hui Yao. The Blessed One regards the insight as the discerning one.
-    How does the Blessed One regard the Buddha's eyes as a discerning person? When the Blessed One observes the world with the eyes of the Buddha, he sees those with less dust and more dust; those with roots and blunt roots; those with good deeds and evil deeds; those who are easy to teach and difficult to teach; some who live in other worlds Sinful and horrible beings, others who do not live in seeing the sins and horrors in other worlds. Just like in the green lotus pond, the red lotus pond, and the white lotus pond, some green lotus, red lotus, and white lotus grow in the water, stay in the water, sink and grow underwater; some green lotus, red lotus, and white lotus grow in the water and grow in the water. In the water, they live at the same height as the water surface; some green lotus, red lotus, and white lotus grow in the water, and rise above the water to live and stand without being stained by water. Similarly, when the Blessed One observes the world with the eyes of the Buddha, he sees those with less dust and more dust; those with sharp roots and blunt roots; those with good deeds and evil deeds; those who are easy to teach and difficult to teach; The sins and horrors of other worlds, and others who do not live in seeing the sins and horrors of other worlds [DN.14, 69 para.]. The Blessed One knows: "This person is a greedy person, this person is an abusive person, this person is a foolish person, this person is a pathfinder, this person is a believer, and this person is a wise person. The Blessed One said to the greedy people. The Blessed One informs those who hate walkers of the practice of compassion. The Blessed One makes them settled in recitation, questioning, hearing of the law at the right time, discussion of the law at the time, and co-living with teachers. The Blessed One informs the person who seeks the path. The Blessed One tells those who believe in a confident form: the good sense of Buddha, the good nature of the Dhamma, the good practice of the Sangha and his precepts. The Blessed One tells Vipassana to those who are wise practitioners: impermanence, ascetic, and non-self.
-     "If you stand on the top of a rocky mountain, you can see all the people,
-      Similarly, those who are virtuous and all-eyed climbed up the tall building of Dhamma,
-       Those who are divorced, looking at people who are in sorrow, conquered by birth and old age.
-       please get up! hero! Victor on the battlefield! Caravan leaders, debt-free people walk in the world,
-      World Lord! Please teach Dhamma! There will be (will) knowers. [DN.14, paragraph 70]"
-     The Buddha takes the Buddha's eyes as a discerning person like this.
-     How does the Blessed One regard all eyes as the discerning one? All eyes are called state wisdom of all knowing. The Blessed One arrives (has), fully arrives (has), enters, fully enters, has enough, has all the state wisdom of knowing.
-    "For him, there is nothing unseen here (in this world), there are still unknowable, unknowable things,
-       He proves that everything that exists should be led to infer, because the Tathagata is like that for all eyes. [Ps.1, paragraph 121]"
-    The World Honored One who takes all eyes as a discerning one. "For the discerning person.
-"The self-evidence method of distress adjustment": ""self-evidence method", "not from rumors, not from rumors, not from inheritance, not from sutra teaching, not from logical inference, not from reasoning, not from theoretical thinking, The opinion that is accepted not because of contemplation is the method that is personally proven and self-proven." It is the method of self-evidence. "The adjustment of distress" and "distress". There are two kinds of dangers: obvious danger and secret danger .Which are the obvious dangers? Lions, tigers, leopards, bears, dogs, wolves, bison, elephants, snakes, scorpions, centipedes, or thieves, hooligans who do bad things or are ready to do bad things, eye diseases, ear diseases, nose diseases, Tongue disease, body disease, head disease, externalEar disease, mouth disease, tooth disease, cough, asthma, external nose disease, fever, old age, abdominal disease, coma, diarrhea, abdominal pain, cholera, leprosy, tumor, ringworm, lung disease, epilepsy, ringworm, scabies, wind Ringworm, scratches (a type of hysteria), dry and cracked skin, blood gall bladder disease, diabetes, hemorrhoids, rashes (boils), hemorrhoids (ulcers), diseases caused by gall bladder, diseases caused by phlegm, diseases caused by wind, [ Three] collective diseases, diseases caused by changing seasons, diseases caused by improper postures, diseases caused by sudden attacks, diseases caused by kamma, cold, heat, hunger, thirst, feces, urine, and The contact of fly mosquitoes, wind and sun snakes, etc., are called obvious dangers.
-     What are the hidden dangers? Body evil, speech evil, intentional evil, desire cover, malice cover, sleepy cover, demotion and regret cover, doubt cover, greed, aversion, ignorance, anger, resentment, hide evil, bossy, jealousy , Stingy, deceit, cunning, stubbornness, passion, slowness, extreme slowness, stubbornness, letting go, all pollution, all evil deeds, all troubles, all anxious heat, all heat, and all unwholesome deeds, these are called hidden Secret danger.
-     "Distress", what is the meaning of distress? "Conquer all over" is a crisis; "guide to retreat" is a crisis; "live there" is a crisis. How is "conquering all over" as peril? Those distresses who conquer, conquer, defeat, overwhelm, end, and crush that person are "conquer all over" as distress.
-     How is "guided retreat" in distress? Those obstacles and retreats that lead to good dhamma in crisis, which good dhamma? The correct way, the following way, the way that is not reversed, the way that does not contradict (the way of no contradiction), the way as it means, the way of the law, the precepts are perfect, guarding the roots, knowing the right amount of food, specializing in sobriety, and mindfulness The hard practice with right knowledge, four mindfulness, four right diligence...Four divine feet...Five roots...Five powers...Seven enlightenment elements...Eight ways of diligent practice lead to the obstacles and retreats of these good dhamma , This is a crisis of "guided retreat".
-     How is "inhabiting there" in danger? There, these evil and unwholesome laws arose to be restrained by individuals, such as burrowing animals lying in caves; aquatic animals lying in water; forest animals lying in the forest; arboreal animals lying in trees. In the same way, these evil and unwholesome laws give rise to mutual dependence. This is the danger of "living there".
-     This was said by the World Lord [SN.35.151]: "Monks! Bhikkhus with apprentices and masters live in misery and restlessness. But, monks! How is it that monks with disciples and masters live in distress and uneasy? Bhikkhus! Here, after seeing the color with his eyes, the bhikkhu has the memories and intentions of those evil and unwholesome Dhamma that follow the knot. "They live in him; evil and unwholesome laws live and enter (occupy)." Therefore, he is called "a disciple." "They conquer him; evil and unwholesome laws conquer him." Therefore, he is called "the master."
-     Besides, monks! After listening to the sound with his ears...(omitted) after smelling the smell with his nose...after tasting the taste with his tongue...touching the touch with his body...after knowing the Dhamma with consciousness, the memory of those evil and unwholesome Dhamma that follow the knot arises And intention. "They live in him; evil and unwholesome laws live and enter (occupy)." Therefore, he is called "a disciple." "They conquer him; evil and unwholesome laws conquer him." Therefore, he is called "the master." Bhikkhus! In this way, monks with disciples and masters live in misery and restlessness. "This is also the danger of "living there".
-     This was said by the World Lord [It.88]: "Monks! There are these three types of internal grime, internal non-friends, internal enemies, internal killers, and internal grievances. Bhikkhus! Greed is internal grime, internal non-friends, internal enemies, internal killers, internal grievances; monks! Sorrow... (slightly) monks! Infatuation is internal dirt, internal non-friends, internal enemies, internal killers, and internal grievances. Bhikkhus! These are the three types of internal grime, internal non-friends, internal enemies, internal killers, and internal grievances. "
-    "Creed is the cause of no benefit, and greed is the one who shakes the heart,
-       horror arises from it, and people don't realize it.
-       The greedy person does not know the benefits, the greedy person cannot see the law,
-       At that time he was a blind dark one: anyone who can conquer with greed.
-      瞋 is the cause of no benefit, anger is the one that shakes the heart,
-       horror arises from it, and people don't realize it.
-       The angry do not know the benefits, the angry cannot see the law,
-       At that time he was a blind dark one: a man who can conquer.
-       foolishness is the cause of no benefit, foolishness is the one that shakes the heart,
-       horror arises from it, and people don't realize it.
-       fools don't know the benefits, fools can't see the law,
-       At that time he was a blind dark one: anyone who can be conquered by idiots. "
-     This is also "inhabiting there" in danger.
-     This was said by the Blessed One [SN.3.2]: "The King! When the three laws within a man arise, disadvantage, suffering, and restlessness arise. Which three are there? King! When the greed within the man himself arises, disadvantages, sufferings, and restlessness arise; lord! When the aggression within the man himself arises... (Omitted) King! When the foolishness within the man arises, disadvantages, sufferings, and restlessness arise, Lord! When these three methods within the man arise, disadvantage, suffering, and restlessness arise. "
-    "Greed, aversion, foolish, disgusting man,
-       hurt oneself, like many fruits [damage] its tree heart. "
-     This is also "inhabiting there" in danger.
-     This was said by the Blessed One: [SN.10.3]
-    "From here, there are greed and anger, from here unhappiness, happiness, and body hair stand up.
-       arises from here and then seeks intentionally, like a little boy letting a crow go. "
-     This is also "inhabiting there" in danger.
-     "modulation of distress", modulation of distress, surrender of distress, death of distress, thought of distress, cessation of distress, immortality, and Nibbana. "It is a self-certification method for distress adjustment.
-"Master! Please tell me the path": ""Please tell me the path", "Correct path (right path), follow path, path not upside down, path not inconsistent, path path as its meaning , The path of the Dhamma following the Dhamma, the perfection of the precepts, the guardian of the roots, the right amount of dietary knowledge, the specialization of sobriety, the mind and the right knowledge, the four mindfulness, the four righteousness, the four divine feet, the five roots, the five powers, the seven enlightenment factors, The path to support, Nibbana, and the path leading to Nibbana, please tell, please explain, please teach, please inform, please establish, please uncover, please analyze, please clarify, please explain." In order to invite you to tell the Taoist deeds. "Master", that person calls the Blessed One. Or, everything that explains, teaches, informs, establishes, uncovers, analyzes, clarifies, and explains that all that should be practiced is excellent and auspicious , The kind, the non-faulty." For the teacher! Please tell me the truth.
-"Bolotimucha or even concentration": ""Bolotimucha" is the foundation of abstinence, the [self] inhibition of behavior, self-control entrance, good law and so on to (reach) the head. Or even concentration", that is the mind's cessation, stability, stability, undistracted, stable mind, samatha (stop), concentration, concentration, concentration." For Polo Timucha or even concentration .
-     Because of that, Huaren said:
-     "The discerning person tells the self-evidence method of distress adjustment,
-       respect the teacher! Please tell me about the Taoism, Polo Timucha or even set. "
-    157. If you don't become unstable with your eyes, your ears should be isolated from the village theory.
-       should not be greedy in taste, and should not take any [things] in the world as one's own.
-     "If you don't use your eyes to become unstable": What is a person with unstable eyes? Here, there is a category of people who have eye restlessness: "Those that should be seen become unseen, and those that should be crossed become seen. "From gardens to gardens, from gardens to gardens, from villages to villages, from towns to towns, from cities to cities, from countries to countries, from localities to localities, he did so in order to see long and irregular parades. Those who engage in it, such are those with restless eyes.
-Or, when the bhikkhu is a visitor to his home, a walker on the street, he walks unprotected: he looks at the elephant, at the horse, at the car, at the infantry, at the women, at the men, at Looking at the boy, looking at the girl, looking at the market, looking at the door of the house, looking at the top, looking at the bottom, looking at all directions, this is also a restless eye.
-Or, after seeing color with his eyes, the bhikkhu becomes a grasper of appearance and a grasper of details, because when he stays at the base of his eyes, greed, sorrow and evil will flow in. He does not act according to his self-control. If you don't protect the roots of the eyes, and do not achieve self-control [SN.35.120] on the roots of the eyes, this is also a person with unstable eyes.
-Or if some Samana and Brahmin masters received food offered by faith, they lived in performers who performed and watched like this, namely: dancing, singing, music, drama, speaking about ancient times, handbells, cymbals, drums, magic, and iron balls. , Bamboo stick play, stunts, elephant fighting, horse fighting, buffalo fighting, bull fighting, goat fighting, ram fighting, rooster fighting, quail fighting, club fighting, fist fighting, wrestling, exercises, army formation, army formation, military parade [DN .1, paragraph 13] etc., this is also a restless person.
-     How can you not be a restless person? Here, when the bhikkhu is a visitor to his home and a walker in the street, he walks in a protective manner: he does not look at the elephant, the horse, the car, the infantry, or the women as he walks. No noteLooking at men, not boys, men and women, the market, the door of the house, the upper part, the lower part, and the everywhere. This is not a restless person.
-Or, after the bhikkhu sees the color with his eyes, he does not become a grasper of the form or a grasper of the subtle form, because when he stays at the root of the eye, greed, sorrow and evil will flow in, and he will act according to his self-control , Protect the roots of the eyes, and achieve self-control on the roots of the eyes, so that it is not a person who is unstable.
-Or, after some Samana and Brahmin masters received the food offered by faith, they lived in those who did not perform and watch like this, that is: dance, singing, music, drama, talk about ancient times... (omitted) military parade, etc. The avoider of erotic performance watching is not a restless person.
-"Do not become unstable with the eye": "He should let go of the unstable state of the eye, he should be driven away, it should end, and it should go to non-existence. It should have been separated from the unstable state of the eye, and abstained. Absolute, quit, renunciation, renunciation, liberation, renunciation, he should live with the heart of renunciation and restraint." To not become unstable with the eyes.
-"Ears should be isolated from the village theory": Village conversations are called thirty-two animal theory, namely: king theory, thieves theory, minister theory, army theory, fear theory, war theory, food theory, drink theory, clothing theory Theory, Bedding Theory, Garland Theory, Odor Theory, Proli Theory, Village Theory, Town Theory, City Theory, Land Theory, Woman Theory, [Man Theory,] Hero Theory, Street Theory, Water Well Theory, Ancestral Spirit Theory, Various Theories , World origin theory, ocean origin theory, if there is no matter [DN.1, paragraph 17], etc. "The ear should be isolated from the village theory": "The ear should be isolated from the village theory, it should be prevented, it should be self-control, it should be guarded, it should be protected, it should be closed, it should be cut off." It should be isolated from the village theory.
-"You should not be greedy in taste": ""In taste (in taste)", there are root, branch, peel, leaf, flower, fruit, sour, sweet, bitter, spicy Taste, salty, alkaline, sour, astringent, pleasant, unpleasant, cold, and hot. Some Samana and Brahman are taste-seekers. They wander around for the best taste with their tongues. They get the sour taste. After getting no sour taste, after getting no sour taste, then asking for sour taste... (omitted) after getting cold and getting hot again, getting hot and getting cold again, they often ask again and again because of dissatisfaction after getting it. Greedy, craving, tied, fascinated, tainted, attached, fixed, obstructed in the taste of the desired taste, for him, this taste is cut off or cut off... (omitted) ) After being burned by the fire of wisdom, he eats food after inspection: "Neither for pleasure... (Omitted) No fault, live in peace."
-For example, if he applies oil to the sore, it is only for the purpose of [growing flesh], or if he applies oil to the axle, only for the purpose of cargo transportation, or if he eats the food of his son's meat only for the desert In the same way, the monk ate food after careful examination: "Neither for pleasure... (Omitted) No fault, live in peace." He should let go of the craving for taste, he should be driven away, it should be ended, and it should be made to cease to exist. He should have been separated from taste and thirst, has renounced, has renounced, has renounced, has renounced, has been liberated, has renounced bondage, he should live with the heart of separation and limitation. "Because you should not follow greed in terms of taste.
-"And you shouldn't take any [thing] in the world as your own": "There are two kinds of self-attachment: [because] thirsty self-holding and [cause] seeing self-holding.... (Omitted) This is The thirsty self-holding...(slightly omitted) This is the seeing self-holding. To cut off the thirsty self-holding; to cut off the thirsty self-holding, you should not regard your eyes as your own...ears... Nose...Tongue...Body...Colors...Voices...Smells...Smells...All touches...Dhamma...Family...Group (congregation)...Residence...Profit...Fame …Praise…le…clothes…food…housing…patient's necessities and medical necessities…the world of desire...the world of color...the world of colorlessness...the world of desire...the world of color...the world of colorlessness... I want to have...I don't want to have...I don't want to have...One aggregate has...The four aggregates have...The five aggregates have...the past...the future...now...should not take what you see, hear, or feel , The dhammas that can be understood as their own, should not be grasped, should not be clinging, should not be attached. "Any [thing]", any form, feeling, thinking, behavior Such, knowledge and the like. "In the world", in the world of the suffering world... (omitted) in the world." For and should not regard any [thing] in the world as one's own.
-     because of that, The Lord said:
-     "If you don't become unstable with your eyes, your ears should be isolated from the village theory.
-       should not be greedy in taste, and should not take any [things] in the world as one's own. "
-    158. When being touched, the bhikkhu should not cry no matter where he is,
-       should not pray for existence, and should not tremble in fear.
-"When being touched": ""touch", contact with disease. Will be touched, tortured, combined, possessed by contact with disease; will be touched, tortured, combined, possessed by contact with eye diseases; be touched by ear diseases...by nose Illness...by tongue...being body...being head...being outer ear...being mouth...being tooth...being coughed...being gasping...being outer nose...being fever... ...Being old...being sick...being unconscious...being diarrhea...being abdominal pain...being cholera...being leprosy...being tumor...being ringworm...being lung disease...being epilepsy...being wheeled Ringworm...mange...being rheumatoid...being scratched (a type of skin disease)...being dry and cracked...being blood gall bladder...being diabetic...being hemorrhoids...being rashes (boils)...being hemorrhoids and fistulas (Ulcer)...disease caused by gallbladder...disease caused by phlegm...disease caused by wind...disease caused by [three]...disease caused by changes in seasons...incorrect Illness caused by posture... Illness struck suddenly... Illness caused by kamma...being cold...being hot...being hungry...being thirsty [...being feces...being urine] ...Will be touched, tortured, combined, possessed by the fly mosquito, wind, sun, and snake." When being touched.
-"Bhikkhus should not be weeping wherever they are": "It should not be done, should not be produced, should not be produced, should not be caused to arise, should not be caused to give birth to a state of lament, weeping, crying, crying, lamentation, The state of weeping, speech, unhelpful words, muttering, weeping, weeping, weeping, weeping. "Wherever it is", no matter where, no matter where, no matter where, inside or outside or inside and outside." Bhikkhus should not weep wherever they are.
-     "Should not pray for existence": "There should not be desire for existence; there should be no desire for sex; there should not be hope for colorlessness, he should not hope; he should not pray for existence."
-     "And you shouldn't tremble a lot when you are afraid": "The one who is afraid", the one who is terrified in one aspect is the one who is afraid. This was said by the Blessed One: "If it is impossible to abandon the terror and fear, what if it comes?" The external objects are said to be lions, tigers, leopards, bears, dogs, wolves, bison, horses, elephants, snakes , Scorpion, centipede, or thieves or gangsters who do bad things or are ready to do bad things. Or the horror of other behaviors is called the horror of waiting for the heart, the stiff state of horror, the horror of the body, the horror of the heart: the horror of life, the horror of old, the horror of sickness, the horror of death, the horror of the king Terror, the terror of thieves, the terror of fire, the terror of water, the terror of self-reprimand, the terror of others, the terror of sticks, the terror of horror, the terror of waves, the terror of dragons, the terror of whirlpools, the terror of crocodile Fear [AN.4.122], the horror of livelihood, the horror of dishonesty, the horror of cowardice in the group, the horror of intoxication, the horror of horror of evil, the stiff state of horror, the erection of body hair, the fear of fear of the heart. "And when you are afraid, you should not tremble greatly": After seeing or hearing the fear, you should not tremble, you should not tremble (strong tremor), you should not tremble greatly (strong tremor), you should not be afraid, you should not be afraid (fear upward ), should not be afraid (fear all over), should not be afraid, should not come to fear, should be not timid, not frightened, not frightened, not fleeing, should live in the fear of fear, have left The hair is erected. "Because and in fear, there should be no tremors.
-     Because of that, the Lord said:
-     "When being touched, the bhikkhu should not weep no matter where he is,
-       should not pray for existence, and should not tremble in fear. "
-    159. And for food, drink, hard food, clothes,
-       should not be stored after getting, and should not shudder when not getting those.
-"For food, drinks, hard food and clothes": ""For food", rice, porridge, noodles, fish, and meat. "For drinks", there are eight kinds of beverages: mango juice, Yanfu juice, and Kuro juice , Plantain juice, honey juice, grape juice, lotus root juice, quite sand juice. The next eight kinds of beverages: Shushangmi juice, date juice, red date juice, ghee beverage, [sesame oil, etc.] oil beverage, milk beverage, [cool] porridge beverage, [vegetable juice, etc.] juice beverage. "For hard food", hard food made of powder, biscuit hard food, root [type] hard food, leather material [type] hard foodFood, leaf [type] hard food, flower [type] hard food, fruit [type] hard food. "For clothes", there are six types of clothes: linen, cotton, silk, sweater, hemp, and hemp. "For food and drinks, hard food and clothes."
-"After you get it, you should not store it": ""After you get it", "After you get it, after you get it, after you get it, after you have it, after you receive it: no tricks, no talk, no hint, no sarcasm, no profit Nourishment in exchange for other benefits, don't use wood to give things, don't use bamboo to donate things, don't use leaves to donate things, don't use flowers to donate things, don't use bathing to donate things, don't use washing powder to donate things, don't use clay to donate things, Don't give things with teeth, don't give things with cleansing water, don't use flattery, don't talk with words, don't flatter, don't slander behind (Sri Lanka version), don't use homesteading, don't use animal life, don't use astrology, don't With [being] an envoy, not [when] sending an envoy, not [when] running errands, not using medical treatment, not building a new job, not giving food or food in return, and not giving anything by giving, he is righteous with the law After getting, after getting, after getting, after having, after receiving." After getting. "Should not be stored", storage of food, storage of beverages, storage of clothes, storage of cars, storage of bedding, storage of spices Storage, the storage of property, should not be, should not be produced, should not be produced, should not be caused to arise, and should not be caused to arise." It should not be stored after it is obtained.
-"And you should not tremble when you don't get those": "I didn't get food, or I didn't get drinks, or I didn't get clothes, or I didn't get home, or I didn't get groups, or I didn't get shelter, or I I didn't get a profit, or I didn't get a reputation, or I didn't get praise, or I didn't get pleasure, or I didn't get clothes, or I didn't get group food, or I didn't get a place to live, or I didn't get the patient's needs and Medical necessities, or if I did not get a patient caregiver, he should not tremble, should not be afraid, should not be scared, should not be afraid, should not come to fear: "I am a non-famous person." Should be a person who is not timid or panic , Those who don't frighten, those who don't run away. They should live where they have given up their fear of fear, and have left their bodies erected." For and when you don't get those, you should not shudder.
-     Because of that, the Lord said:
-    "For food, drink, hard food, clothes,
-       should not be stored after getting, and should not shudder when not getting those. "
-    160. To become a meditator instead of a wanderer, one should stop regretting and should not let go,
-       While the seat is in the sleeping area, the monk should live in a quiet place.
-"Become a meditator rather than a wanderer": ""Meditator", "Become a meditator with the first jhana, and also with the second jhana as a meditator, and with the third jhana as a meditator, and with the The four meditations become meditators, they also become meditators with seeking and serving meditations, they also become meditators with no-seeking only [has] serving meditations, they also become meditators with happiness meditation, and they also become meditations with unhappy meditation. The meditator also becomes a meditator with walking meditation with joy, and a meditation with walking meditation with mindfulness, a meditation with walking meditation with music, and a meditation with walking meditation with peace. He also becomes a meditator with emptiness meditation, a meditator with non-phase meditation, a meditator with unwilling meditation, a meditator with mundane meditation, and a meditator with transcendental meditation. He is Zen lovers, singular practitioners, and admirers of the highest interests." For meditators.
-     "not a wanderer", how is a wanderer? A certain type of people here are wandering: from gardens to gardens, from gardens to gardens, from villages to villages, from towns to towns, from cities to cities, from country to country, from place to place. He lives in long parades, not Those engaged in regular parades. This is the wanderer.
-Or the bhikkhus are wandering in the monk's garden: there is no reason for benefit, no reason for lifting the ground, walking from the monk's room to the monk's room without silence, from the residence to the residence, from the half-roofed house to the half-roofed house, From tall buildings to tall buildings, from bungalows to bungalows, from caves to caves, from caves to caves, from huts to huts, from heavy pavilions to heavy pavilions, from observation decks to observation decks, and from tents To the tent, from the shed to the shed, from the lecture hall to the lecture hall, from the round house to the round house, from the tree to the tree, or where the bhikkhus sit, he walks to that place, where he becomes The second place, or the second place becomes the third place, or the third place becomes the fourth place. There were a lot of obscene words, namely: king theory, thieves theory, minister theory, army theory, fear theory, war theory, food theory, drink theory, clothing theory, car ride theory, bedding theory, wreath theory, smell theory, Pro-li theory, village theory, town theory, city theory, land theory, woman theory, [man theory,] hero theory, street theory, water well theory, ancestorSpiritualism, various theories, theories of the origin of the world, theories of the origin of the oceans, etc., this is also a wanderer.
-     "Not a wanderer", he should abandon the wandering nature, should be driven away, should end, should make it go to non-existence. He should have been separated from wandering, abstained, abstained, detached, detached, detached, detached, detached, detached, detached from bondage, he should live away from being restricted, should practice, should act, should act, should Turn up, should guard, should survive, should survive. Should be a person who is willing to sit alone, a person who likes to sit alone, a practitioner of inner cessation, a person who does not despise Zen, has a viewer, and gains an empty house [MN.32, paragraph 334], a meditator, a Zen lover, The practitioner of unity, the admirer of the highest interest. "To become a meditator rather than a wanderer.
-"Should stop regretting and should not let go": ""Regret", the improper behavior of the hands is regret, and the improper behavior of the feet is also regret, and the improper behavior of the hands and feet is also regret. ) Is appropriate, appropriate is considered improper, innocent is considered to be sin, sin is considered to be innocent, any regret like this, path of regret, state of regret, regret of heart The confusion of mind is called regret.
-     In addition, regret, heart regret, and confusion of mind arise from two factors: what is done and what is not done. How do things that have been done and things that have not been done cause regret, heart regret, and confusion of mind? "I did the evil deeds, but I didn't do the good deeds. "He has regrets, regrets in his heart, and confusion of mind; "I did the evil deeds of speech, and I did not do the deeds of good language." "He has regrets, regrets in his heart, and confusion in his mind; "I did the evil deeds, but not the good deeds... (Omitted) I did the killing, and I didn't do the quit of killing. "He regrets...(slightly) confusion of meaning; "I did it without giving it... I did it for lewdness,... I did it for the liar... I did it for the vicious language... I did... Miscellaneous language was done by me... Greed was done by me... Malice was done by me... I did wrong view by me, right view was not done by me. "He has regrets, heart regrets, and confusion of mind. This is what has been done and what has not been done, and regrets, regrets, and confusion of mind arise.
-    Or, "I am not a full branch in the ring. "He has regrets, heart regrets, and confusion of mind; "I am not a guardian of the roots." "…… (omitted) "I am not a person who knows the right amount of food. "... "I am not a sober person. "... "I don't have mindfulness and right knowledge. "... "Satisfaction has not been practiced by me. "... "Sizhengqin was not studied by me. "... "The four gods have not been trained by me. "... "The five elements have not been studied by me. "... "The five powers have not been studied by me. "... "The seven enlightenment factors have not been studied by me. "... "The eight holy paths have not been practiced by me. "... "The suffering is not known to me. "... "The episode was not cut by me. "... "The Tao has not been studied by me. "... "Mie was not testified by me. He had regrets, regrets in his heart, and confusion in his mind. "Should stop regretting", "Regret he should stay away, should stop (abstain), should avoid, should give up, should be driven away, should end, should make it go to non-existence. He should have been separated from regret, abstained, quit, renounced, renounced, renounced, renounced, he should live with the heart of separation and limitation. "I should stop regretting.
-     "Should not let go", one should be a respectful author, a regular author, a non-stop author, a habit of not being stuck, a person who does not neglect his desires, a person who does not neglect responsibility, and a person who does not let go of good law. "How can I complete the unfinished precepts, or can I fund the completed precepts with wisdom?" "Where he has desire, diligence, courage, hard work, fortitude, non-shrinking, mindfulness, righteous knowledge, enthusiasm, diligence, establishment, practice, and perseverance in good Dhamma; how can I complete the unfinished concentration... …(Omitted) How can I complete the unfinished wisdom accumulation... liberating accumulation... liberating wisdom seeing accumulation... "How can I perceive the suffering of the unknown, or I can abandon the pollution that has not been renounced, or I Can I practice the way I have not practiced, or can I testify without testifying? "Where he has desire, diligence, courage, hard work, fortitude, non-shrinking, mindfulness, right knowledge, enthusiasm, diligence, establishment, practice, and perseverance in good law. "Because we should stop regretting and should not let go.
-"And when the seat is in the sleeping place, the monk should live in a quiet place": ""And", the continuation of the sentence... (omitted). "The place where he sits is called a seat: bed, chair, cushion, small cushion , Leather cushions, grass cushions, leaf cushions, straw cushions. Houses, dwellings, half-roof houses, tall buildings, flat houses, and caves are called sleeping places. "Before you sit on the sleeping place."
-    "The monk should liveIn a place where there is little voice", it should be in an atmosphere of low sound, quiet, away from people, living alone, suitable for sitting alone, walking in the house, walking around, living, moving, turning, guarding, making existence, making existence. In order to sit and sleep, the monk should live in a quiet place.
-     Because of that, the Lord said:
-     "Being a meditator instead of a wanderer, one should stop regretting and should not let go,
-       While the seat is in the sleeping area, the monk should live in a quiet place. "
-    161. You should not sleep more, you should stay awake and be enthusiastic,
-       Laziness, deceit, laughter, entertainment, lust, decoration, he should give up.
-     "Should not have more sleep": "Day and night [minutes] should be divided into six parts and the five parts should be towards the Tao, and one part should be lying down." This means that you should not sleep more.
-"Should stay awake and become an enthusiastic person": "Here, during the daytime, the monk cleanses the mind from obstacles by walking and sitting peacefully. In the first night, by walking and sitting peacefully, the mind should be purified from obstacles. In the midnight period , With the right side as a lion lying, put the [left] foot on the [right] foot, have mindfulness and righteous knowledge, and think about it. In the later night, you should walk and sit peacefully to make the mind free from obstacles Method of purification.[SN.35.120]
-     "should stay awake", "should keep, should keep completely, should obey, should bend to obey, should be totally obedient, should be awake towards obey. "Because you should stay awake.
-"Enthusiastic", enthusiasm is called vitality, which is the stimulation of the vitality of the heart, diligence, hard work, courage, diligence, effort, diligence, courage, persistence, non-relaxation, the state of courage, the state of will not give up, and no negligence State of responsibility, support of responsibility, vitality, root of vitality, power of vitality, positive progress. To reach (to have), to reach (to have), to enter, to enter, to have enough, to have enough, to have this enthusiasm, he is called an enthusiast. "To stay awake and become enthusiastic.
-"Laziness, deception, laughter, entertainment, lust, decoration, he should give up": "Laziness": the lazy person is the state of laziness whose purpose is laziness, and the heart is realized by laziness [defeated]; laziness is laziness Laziness for the purpose. "Deception": The act of deception is called deception. Here, after a certain type of person has carried out evil deeds with the body... (omitted) in terms of... Desire: "May he not know me!" Intention: "May he not know me!" Say: "May he not know me!" words [AN.6.45]; physical effort: "May he not know me!" Any situation like this [deception,] deception, transgression (violation), deception, concealment, secret confusion, concealment, keeping secret, concealing (keep secret all over), covering, covering all over, unclear behavior, non-disclosure Acts and cover up evil acts are called deception. "[Aloud] laugh": Here, a certain type of people grin excessively. This is said by the deity: "Monks! In the law of the saints, this is a child, that is: excessive grinning. [AN.3.108]"
-     "Entertainment": There are two kinds of entertainment: physical entertainment and verbal entertainment. What is physical entertainment? They play with elephants, horses, carts, bows [and swords and other weapons], octagonal chess, ten-eye chess, and aerial chess. Hopscotch is also played with stone blocks, dice boards, wooden sticks, hands, dice, leaf flutes, toy hoes, and somersaults. Play with toy windmills, toy measuring instruments, car games, toy bows and arrows, guess words, guess ideas, and imitate flaws [DN.1, paragraph 14 ] This is physical entertainment. What is verbal entertainment? The sound of playing a drum with a mouth, the sound of a drum being smeared with the mouth [imitating] the sound of a drum that has been conquered by the mouth [imitating] the sound of a bend of the lips, the playing of a drum with the mouth [imitating], the mouth [imitating] The hollow sound of drums, loud cheers, commotion at dancers, singing, and joking are verbal entertainment.
-     The law of lust is the law of lewdness, the law of evil (village law), the law of evil, vulgarity, washing with water after friendship (waterside), secret, one-to-one etc. For what reason is it called the law of lust? "It belongs to two people who are greedy, greedy, full of desire and greed (leakage), entangled, the heart is overwhelmed, and two people are in the same way." For that reason, it is called the law of lust. If there are two quarrelers, they are called "prostitutes"... (omitted); there are two disputers...two discussants...two disputers...two defenders... There are two speakers...There are two interlocutors, and they are called "prostitutes." same, "It belongs to two people who are greedy, greedy, full of desire and greed (leakage), entangled, the heart is overwhelmed, and two people are in the same way." For that reason, it is called the law of lust.
-     "Decoration": There are two kinds of decoration: there are decorations for lay people and decorations for monks. What is the decoration of the family? Hair, beard, wreath, spices, balm, accessories (璎珞), accessories (璎珞), clothes, bedding, headscarf, massage, rubbing, bathing, rubbing, mirror, applying eye ointment, wreath [spices] balm, Face powder, face cream, bracelets, ribbon hair accessories, sticks, tubes, swords, parasols, colorful shoes, buns, jewelry, whisks, long and short white clothes (Thailand version), etc. This is the decoration of the layperson. What is the decoration of monks? The decoration of clothes, the decoration of the bowl, the decoration of the bedding, the decoration of the rotten body or the decoration of necessities, beautification (solemnity), desire to dress up, good-looking, greedy state, greedy state, impetuous state, impetuous and shallow, this It is decoration for monks.
-"Lazy, deceived, laughed [out loudly], entertained, lustful, decorated he should give up": "Lazy, deceived, laughed out loud, entertained, lust, decorated, have followers, surrounded by people, have necessities (Materials) He [all] should abandon it, should be driven away, should end, should make it go to non-existence." For laziness, deception, [out loud] laugh, entertain, lust, be decorated, he [all] should Give up.
-     Because of that, the Lord said:
-     "You should not sleep more, you should stay awake and become enthusiastic,
-       Laziness, deceit, laughter, entertainment, lust, decoration, he should give up. "
-    162. Magic (Ata Po), dreaming, phasing, and astrology should not be engaged.
-       beast sounds, pregnancy techniques, medical techniques, believers should not engage in it.
-"Magic (Atapo), horoscopes, horoscopes, and astrology should not be used": Magicians are engaged in magic: When the city is under siege or a war arises, they arouse in the enemy, the enemy, the enemy Disaster; cause harm; cause disease; cause disease; cause abdominal pain; cause cholera; cause diarrhea. Magicians like this engage in magic.
-The dreamers told the dream: Anyone who sees a dreamer before noon, he has a reward like this; whoever sees a dreamer at noon, he has a reward like this; anyone who sees a dreamer in the evening, he has A retribution like this; wherever it divides in the first night... (omitted in the middle) where it divides in the middle of the night... whoever divides in the latter night... whoever lies on the right side... whoever lies on the left side... whoever lies on the right side ...Everyone lying upside down...everyone seeing the moon...everyone seeing the sun...everyone seeing the sea...everything who sees Mount Xumi...everyone seeing an elephant...everything a horse Seeing the carriage...everything that sees infantry...everything that sees army formations...everything that can be pleasant gardens...anything that can be pleasant forests...anything that can be pleasant land...seeing a lotus pond that can be pleasant Or, he has a reward like this. Like this, the dreamers inform the dream.
-The occupiers inform the phases: the orb phase, the rod phase, the clothing phase, the sword phase, the arrow phase, the bow phase, the weapon phase, the woman phase, the man phase, the girl phase, the boy phase, the female slave phase, the male slave phase, Elephant, horse, buffalo, cow king, bull, goat, ram, chicken, quail, lizard, lotus peel, turtle shell, and deer are the same. "Accounters like this tell the phase.
-Astrologers told the constellations: "There are twenty-eight constellations. This constellation should be entered by the writer, this constellation should be tied to the headpiece, this constellation should be made for marriage, and the transport of the seeds of this constellation should be made. This constellation cohabitation should be entered." Astrologers like this told the constellations.
-"Magic, astrology, astrology, and astrology should not be engaged": "Magic, astrology, astrology, astrology should not be engaged in, should not be practiced, should not be practiced, should not be turned after being held, or, It should not be studied, should not be memorized, should not be understood, should not be discerned, and should not be dedicated." It should not be engaged in magic, dreaming, phasing, and astrology.
-     "Believers should not engage in animal sounds, pregnancy techniques, and medical skills.": The animal sounds are called animal language. Zhan beast whispers tell beasts: "They know the roar and call of birds or four-legged beasts." Like this, Zhan beast whispers tell beasts. They use pregnancy techniques to make the fetus live, and the fetus does not live there for two reasons: with [parasitic] worms or with wind shaking. Herbs are given to defend against insects or wind sway, and like this, they use pregnancy techniques to live the fetus. There are five types of treatments for "treatment": ophthalmology, surgery, internal medicine, exorcism, and pediatrics. "Believers", believers in the Buddha, believers in the Dhamma, believers in the Sangha. He regards the Buddha as his own, or the Buddha holds that person. This was said by the Blessed One: "Monks! Bhikkhus who are deceitful, stubborn, slanderous, hypocritical, tall and uncertain, monks! Those monks are not my believers, monks! Those monks have left this law and law, and those monks do not come to grow, grow, and expand in this law and law. But, monks! Bhikkhus who are not deceitful, talkative, strong, not stupid, and kind, bhikkhus! Those monks are my believers, monks! Those monks did not leave this law and law, but those monks came to grow, grow, and expand in this law and law. "
-     "Cunning, stubborn, false talk, hypocrisy, slow, uncertain,
-       They don't grow in the law taught by the Enlightened One,
-       Those who are not deceitful, talkative, sturdy, not rigid, good-natured,
-       They grow in the Dhamma taught by the Enlightened One. "[AN.4.26]
-"Beast sounds, pregnancy techniques, medical techniques, believers should not engage in": "Beast sounds, pregnancy techniques, medical techniques, I [willing] [all] should not be engaged in, should not be bent to engage in, should not be fully engaged in Should be oriented towards engaging in, should not be practiced, should not be practiced well, and turn around after being held, or should not be learned, should not be remembered, should not be understood, should not be discerned, and should not be devoted." For the beast voice, pregnancy technique, Believers should not engage in medical skills.
-     Because of that, the Lord said:
-     "Magic (Ata Po), dreams, signs, and astrology should not be used either,
-       beast sounds, pregnancy techniques, medical techniques, believers should not engage in it. "
-    163. You should not tremble with accusations, and bhikkhus should not become high or slow in complimenting.
-       Greed and stinginess, anger and divorce he should get rid of.
-"Should not tremble with accusations": "Some people here are either born, or surnamed, or good family, or beautiful as a lotus, or property, or research (acquisition), or career, or Ingenious work, either in the clear (academic), or in the heard, or in the debate, or in the rebuke of something, they accuse, scold, and reprimand, when they are accused, scolded, reprimanded, they should not be blamed, Scolding, reprimanding, not complimenting, trembling with no praise, trembling (strong tremor), big tremor (strong trembling), fear, fear (fear upward), fear (fear all over), horror, fear, should To become a person who is not timid, scared, scared, or fleeing, one should live where he has given up terror and fear, and has stood up from his body." You should not tremble in response to accusations.
-"Bhikkhus should not be high or slow": "Some people here are born, or surname, or good family, or beauty as a lotus, or property, or research (acquisition), or career, Either by skill, or by the bright (academic), or by what they heard, or by their eloquence, or by something. They praise, admire, praise, praise, and when they are praised, praised, praised, praised, they do not Should be praised, praised, praised, praised and praised, arrogant, arrogant, [made fortitude,] stubborn (arrogance), should not be caused by that, and should not be stiff and very rigid because of that Those who hold their heads high." Complimenting for the monk shouldn't be high or slow.
-     "Greed and stinginess, anger and divorce he should get rid of": "Greed", that is the state of greed, greed, greed, greed, stained, stained state, greed, greed and bad roots. There are five kinds of stinginess: [to] stinginess in residence... (omitted), this is called stinginess. "Anger", that is the heart's anger, hostility, disgust, hostility, anger, anger, anger, aversion, anger, evil, heart aversion, anger, anger, anger, state of anger, anger , Anger, state of anger, aggression, anger, state of anger, hostility, hostility, cruel anger, rage, displeased heart [this is called anger]. "Separated language", here, a certain type of person is a divorced speaker. After he hears it from here, he speaks there to separate these people, or he hears it from there and speaks here to separate those people, like In this way, he is the destroyer of harmony, the disseminator of division, the disagreeable, the disagreeable, the disagreeable, and the disagreeable speaker. This is called the divorced speaker.
-     In addition, there are two reasons for divorce: to be cute by desire, or by desire for division. How to produce divorce from desire to be cute? For this one, I will be cute, I will be agreeable, I will be close, I will be a close friend, I will be kind, so that the desire to be cute will produce divorce. How to produce divorce with the desire for division? "How will these become all kinds, will become separation, will become division, will become two kinds, will become spearThe shield will become the second faction, causing it to break, not to reunite, and to live in suffering and restlessness. "This is the desire for division to produce divorce. "Greed and stinginess, anger and divorce, he should eliminate": "Greed, stinginess, anger, divorce, he should be eliminated, should be eliminated, should be discarded, should be driven away, should be terminated, should be made to go to non-existence. He should get rid of greed and stinginess, anger and divorce.
-     Because of that, the Lord said:
-    "You should not tremble with accusations, and bhikkhus should not become high or slow in complimenting.
-       Greed and stinginess, anger and divorce he should get rid of. "
-    164. Should not be involved in buying and selling, no matter where the monk is, he should not make reprimands,
-       and should not be attached to the village, should not flatter people for gain.
-"Should not be involved in business": "Any business that is rejected in the law does not exist in the interest here. How is involved in business? Exchange together among the five types of [people]: or bowl, or clothing, or any other Necessities, making things that can be deceived, or wanting to increase, is involved in buying and selling. How to not be involved in buying and selling? Exchange together among the five types of [people]: or bowls, or clothes, or any other necessities, don't make things that can be deceived , Or do not want to increase, this is not involved in trading. "Should not be involved in trading": The trading should not be involved in, should not be established, the business should be discarded, should be driven away, should be terminated, should be allowed to go To nonexistent. He should have been separated from business, quit, quit, renounced, renounced, renounced, renounced, he should live with the heart of renunciation. "It shouldn't be involved in trading.
-"Bhikkhus should not make rebuke no matter where they are": "What is the pollution that causes rebuke? Some Samana and brahmins are those with magical powers, those with heavenly eyes, and those who know their hearts. They see from a distance, not from a close distance. The heart knows the heart. Some gods are also those who have magical powers, celestial eyes, and those who know his heart. They see from a distance, not from close, and know the heart with their heart. They will be due to coarse pollution, or due to moderate pollution, or Reprimanded for fine pollution. What is gross pollution? Body evil, speech, and mind are called gross pollution. What is medium pollution? Seeking, seeking maliciously, and seeking harm, these are called The pollution is moderate. What is the fine pollution? Seeking in the family, looking for the land, looking for the immortal, looking for sympathy with others, looking for respecting reputation, looking for not being scorned, these are called fine Pollution. They will not be blamed for coarse pollution, or for medium pollution, or for fine pollution. They should not create blame, should not create pollution that causes blame, should not be caused, should not be produced, or not It should be made, and it should not be made. It should have been separated from the pollution that caused the rebuke, has been abstained, has been given up, has been separated, has been separated, has been freed, has separated from the bondage, he should be separated from the restricted heart And live... "No matter where you are", no matter where, no matter where, no matter where, inside or outside or inside and outside." No matter where the monk is, there should be no rebuke.
-     "And should not be attached to the village": How is attachment (attachment) to the village? Here, the bhikkhu lives in the village to socialize with his family members, sharing joys and sorrows: when they are happy, and when they are suffering, he is involved in their affairs and duties [SN.22.3], so It is attached to the village.
-Or, the bhikkhu puts on his clothes in the early afternoon and takes the mantle. He does not guard the body, words, heart, mind, thoughts, and roots to enter the village or town in order to beg [SN. 20.10], he was stuck everywhere, hooked everywhere, tied everywhere, and came to misfortune and disaster [SN.17.4] everywhere, so he was also stuck to the village.
-     How does it not stick to the village? Here, the bhikkhu lives in the absence of communication with his family members, and has different joys and sorrows: not when they are happy when they are happy, not when they are suffering when they are suffering, he does not involve himself in their affairs and duties, so that he does not stick to the village.
-Or, the bhikkhu puts on his clothes in the early afternoon and takes the mantle. He has guarded the body, the words, the heart, the mind has emerged, and the roots have been protected. In order to enter the village or town, he will Sticking everywhere, hooking nowhere, tying nowhere, and coming to misfortune and disaster from nowhere, this is also not sticking to the village. "And should not be attached to the village": "Should not be attached to the village, should not be held, should not be tied, should not be tied everywhere. It should be non-greed, non-fettered, non-obsessed, innocent It should be separated from the greedy, the greedy, and the greedy... (Omitted) You should live as a brahman." For and should not be attached to the villagedrop.
-     "Should not flatter people for profit": What is flattery? Based on the respectful reputation, evil desires, desire nature, focus on property, all the talks, small talk, conversation, talk, dialogue, entanglement, complete entanglement, false talk, complete false talk, flattery, Flattery, eloquence, flattery, slander behind the back (Cambodia version), where there is soft language, dear language, slow language, non-crude language, this is called flattery.
-     In addition, flattering people in two ways: make oneself in a humble position, make others in a noble position and flatter others, or make others in a humble position, make oneself stand in a noble position and flatter others. How to make yourself humble and make others stand up noble and flatter others? [Thinking:] "You are very helpful to me. I rely on you to get clothes, food, shelter, the needs of the sick, and medical necessities. Anyone who gives or wants to do it thinks that I rely on you. Those who are regarded as you, all my previous names from my parents have disappeared to me, because you are known as those who frequent [some]'s home like that; those who often visit [some]'s home like that." This is to make oneself humble, to make others stand noble and flattering others.
-     How to make others humble, make yourself noble and flatter others? [Thinking:] "I am a person of great benefit to you. Because of me, you have turned to the Buddha, to the law, and to the Sangha. You are free from killing, free from giving and taking, free from adultery, free from false speech, free from For those who drink wine, fruit wine, and wine to relax, I will give you instructions, give me a lot of questions, explain busa, and build temples. However, after you abandon me, you respect, respect, respect, and respect other people." Make others humble, make yourself noble and flattering others.
-"We should not flatter people for gains": "We should not flatter people with gains as a cause, condition, or reason for gains, for gains to arise, to make gains familiar to others, and to flatter people. He should give up flattery and drive away. It should end, it should be made to cease to exist. It should be separated from flattery, abstained, abstained, separated, separated, freed, separated from bondage, and he should live with the heart of separation and limitation ." Flattering people because they shouldn't be profitable.
-     Because of that, the Lord said:
-     "The monk should not be involved in trading, and should not make reprimands no matter where,
-       and should not be attached to the village, should not flatter people for gain. "
-    165. Bhikkhus should not be boastful and should not speak related words,
-       should not learn to be arrogant, and should not talk about controversial discussions.
-"Bhikkhus should not be boasts": "Here, a certain type of people are boasts and braggers, who boast and brag: I am a "restricted person", or a "restricted person", or a "precept and restrained person" , Or by birth, or by surname, or by good family, or by appearance and beauty like a lotus, or by property, or by research (acquisition), or by profession, or by skill, or by insight (academic), Either by what you have heard, or by arguing, or by something, or "from a noble family"[, or "from a large family"], or "from a large wealthy family", or "from a rich wealth A monk" [, or "Anyone who is in the same house or a monk is a well-known person or a famous person", or "A gainer in clothes, food, shelter, patient needs, medical necessities"], or "Teacher ", or "lawyer (law holder)", or "speaker", or "live in the woods"... (abbreviated) or "the one who does not want to wait to get it", he boasted and showed off. Like. In this way he should not boast, he should not show off. Boast that he should give up, should be driven away, should end, should make it non-existent. Should have been separated from boasting, quit, quit, renounced, already Leaving, being freed, and bound, he should live with the heart of being free and restricted." As a monk, he should not be a boastful person.
-     "and should not say related words": What are related words? Here, a certain type of people speak related words about clothes, words related to giving food, words related to residence, and words related to the needs of patients and medical necessities. This is called related words.
-Or, using clothes as a cause, food as a cause, shelter as a cause, patient's needs and medical necessities as a cause, it is also false to say truth, to say that separation is not to say that it is not to be separated, to say that evil is also not to be evil, and to say that Non-qiyu also speaks intelligent language, which is also called connected language. Or, to teach others the Dhamma of Purifying Mind: "Ah! I should indeed hear my Dhamma. After hearing the Dhamma, I will be able to become clear and pure. My clear and pure actions can produce clarity." This is also called a connected word. "And should not say related words": "Even related words about the teachings of the law should not be said, should not be told, should not be talked, should not be explained, should not be said. Related words should beLet it go, it should be driven away, it should be ended, it should be made to cease to exist. He should have been separated from the related language, quit, quit, renounced, renounced, renounced, renounced, he should live away from being restricted. "For and should not say related words.
-"You should not learn arrogance": ""Pride", there are three kinds of arrogance: physical arrogance, speech arrogance, and heart arrogance. What is physical arrogance? Here, a certain type of people come to the Sangha to show physical arrogance, come It also shows the arrogance of the body in the group, the arrogance of the body in the cafeteria, the arrogance of the body in the bathroom, the arrogance of the body in the bath, and the arrogance of the body when entering the [vulgar] home. Show the arrogance of the body even when you have entered the [vulgar] home.
-     How does it come to show the arrogance of the body in the Sangha? Here, a certain type of people come to the Sangha without being a respecter. When they touch the elder monks, they stand, when they touch them, they sit down, stand in front of the [elder monks], sit in the front, and sit in the high seats. Sitting down, sitting down with his head covered, he stood and talked, waving his arms to talk, so that he came to the Sangha to show his arrogance.
-     How is the arrogance of coming to the group to show the body? Here, a certain type of people come to the group to be disrespectful. To the elder monks who walk without shoes, he walks in shoes, to those who walk in low places, he walks in high places, and to those who walk in the ground, he walks in high places. He walked through the passage, stood when touched, sat down when touched, stood in front, sat down in front, sat down on the high seat, sat down with his head wrapped, he stood and talked, Speaking with waving arms, this is to show the arrogance of the body in the group.
-    How is it to show the arrogance of the body in the cafeteria? Here, a certain type of people are not respectable in the cafeteria. He invades the elders and sits down, blocking the new bhikkhus with their seats, standing when they touch, and sitting down when they touch, sitting in front of them, Sitting down on the high seat, sitting with his head covered, he stood and talked, waving his arms to talk, so that he showed the arrogance of his body in the cafeteria.
-    How to show the arrogance of the body in the bathroom? Here, a certain type of person is not a respecter in the bathroom. He stands when touched, sits down when touched, sits down in front, sits down in the high seat, does not ask for permission to put the firewood, does not ask It is allowed to close the door and speak with waving arms, which is to show the arrogance of the body in the bathroom.
-    How is the arrogance of the body shown in the bath? Here, a certain type of person is not respectable in the bathing place. When he touches the elder monks, he jumps in, jumps in front, when touched, he bathes, bathes in front, bathes above, when touched, he goes from Out of the water, out of the water in the front, out of the water above, this is to show the arrogance of the body in the bath.
-     How is it to show the arrogance of the body when entering the [vulgar] home? Here, a certain type of person is not a respecter when entering the [vulgar] home, and when he touches the elder monks, he walks, walks in front, and [repeatedly] walks from the front of the elder monks after leaving the right way. It is to show the arrogance of the body when entering the [vulgar] home.
-     How is the arrogance of showing the body when you have entered the [vulgar] home? Here, when a certain type of people have entered the [vulgar] home, they are "Great Virtue!" Please do not [want to] enter" when he is said to enter, as "Great Virtue!" Please don't [want to] stand." He stood when he was said to be "Da Virt! Please don't [to] sit down." When being said, he sits down, he enters when there is no space, he stands when there is no space, and he sits down when there is no space, where the inner room of the [vulgar] family is hidden and secret : The lay woman, the lay woman, the lay wife, and the lay girl sit down, where he enters roughly, and he touches the boy's head. This shows the arrogance of the body when he enters the [vulgar] home. This is showing the arrogance of the body.
-    What is verbal arrogance? Here, a certain type of people show verbal arrogance when they come to the sangha, show verbal arrogance when they come to the group, and show verbal arrogance when they have entered the [vulgar] family. How does it come to show the arrogance of words in the Sangha? Here, a certain type of people come to the Sangha without being respected. After not asking the elder bhikkhus for permission, or without being invited [just] to speak to the bhikkhus who enter the monastery, answer questions, and recite the Parati Mucha, He stood and spoke, waving his arms to speak, so he came to the Sangha to show the arrogance of words.
-     How does it come to show the arrogance of words in a group? Here, a certain type of people come to the group to be disrespectful. After not asking the elder bhikkhus for permission, or not being invited [just] to speak to and answer questions to the bhikkhus entering the monastery's garden, he stands and speaks, waving his arms to speak, Talking to and answering questions to the bhikkhunis, Upasai, and Upas who entered the monk's garden, he stood and spoke, waving his arms to speak, soIt is coming to the group to show the arrogance of words.
-     How is it to show the arrogance of speech when you have entered the [vulgar] home? Here, when a certain type of people have entered [vulgar] homes, they say this to women and girls: "What is the name of this person and the last name of this person: Is there milk porridge, food, and hard food? What shall we drink? What shall we eat? What will we chew? Or something: what will you do to me? He muttered. Anyone who is in such a state of speech, unhelpful words, muttering, verbosity, polyphony, and verbosity is the arrogance of the body when he has entered the layman. This shows the arrogance of the body.
-    What is the arrogance of the heart? Here, a certain type of people who are not a monk from a noble family consider themselves the same as a monk from a noble family with their heart, [a person who is not a monk from a large family family is equal to a monk from a large family family with their heart Those who are not a monk from a wealthy family have a slow person who consider themselves to be equated with a wealthy monk. Those who are not a monk from a wealthy family consider themselves the same as a wealthy monk. , Those who are not a teacher who are slow are equating themselves with the teacher in their heart. Those who do not hold the law are slow... those who do not speak are slow... those who do not live in the woods are slow... those who are very begging for food are slow. Those who don't wear dung-sweeping clothes, there are slow people...not only those who are in three clothes, there are slow people...the people who are not begging for food, there are slow people...the people who do not eat after eating, there are slow people...very sitting [not lying] There are slow people... those who don't live everywhere, those who don't live anywhere are equated with those who live everywhere with their minds, those who don't get the first jhana are equated with those who have the first jhana with their hearts, and those who do not get the second jhana. There are slow people...slow people who don't get the third jhana...the slow people who don't get the fourth jhana...the slow people who don't get the void and boundlessness...the slow people who don't get the boundless knowledge... There is a slow person who does not get no possessions...The slow person who does not get any thoughts and waits is equal to the person who gets the thoughts and waits. This is the arrogance of the heart. "Should not learn", should not learn to be arrogant; should not be practiced, should not be fully practiced, and should not be changed after being held. Arrogance should be cut off, he should be driven away, he should end, and he should make it cease to exist. He should have been separated from arrogance, quit, quit, renounced, renounced, renounced, renounced, he should live with the heart of separation and limitation. "Because you should not learn to be arrogant.
-"Should not talk about controversial discussions": "What is a controversial discussion? Here, a certain type of people are talking like this: "You don't know the law and the law... (Omitted) Please dismantle, if you Yes." This was said by the World-Honored One: "Mudan! When there is a controversial argument, it can be expected; when it is said, there will be a fall; those who do not have self-control; [AN.7.61]". How should we not talk about controversy? Controversial discussions should not be discussed, should not be discussed, should not be explained, should not be spoken. Controversial discussions should be discarded, and should be driven away , It should be ended, it should be made to cease to exist. It should have been separated from the controversial discussion, abstained, abstained, separated, separated, released, separated from the bondage, he should be restricted by separation Stay with your heart." Because controversial discussions should not be discussed.
-     Because of that, the Lord said:
-     "The monk should not be a boast, and should not speak related words,
-       should not learn to be arrogant, and should not talk about controversial discussions. "
-    166. It should not be taken away in false speech, deliberate deception should not be committed,
-       shouldn't be scornful of other people with survival, wisdom, precepts and restraints.
-"Should not be taken away in false speech": false speech is called false speech. Here, a certain type of people go to the hall or the meeting place... (omitted) or there are few temptations and therefore deliberately false speech [AN. 3.28], this is called false speech. Or, use the three behaviors as liars: just before [saying] [mind]: "I will say liars." When speaking [mind]: "I say liars." When already said [心想]: "The liar has been said by me." These three behaviors are used as liars. Or, with four aspects... with five aspects... with six aspects... with seven aspects... with eight aspects as a lie: just before [say] [心想]: " I will say liar." When I said [thought]: "I'm talking liar." When I've said it [Mind]: "I have said the liar." There is a disagreement (wrong) view, a disagreement Believe in forbearance, have the hobby of different attachments, have the desire to have different attachments, and have the nature of different attachments. These eight behaviors are lie. "Should not be taken away in false speech": "Should not be carried away in false speech, should not be taken away, should not be carried, should not be carried. He should abandon false speech, should be driven away, Should end, Should make it go to non-existence. He should have been separated from the false speech, quit, quit, renounced, renounced, renounced, renounced, he should live away from being restricted. "Because it should not be taken away in terms of falsehood.
-     "Intentional fraud should not be committed": What is fraud? Here, a certain type of people are scammers and scammers. Where there is fraud, fraud, fraud, deception, falsehood, pretend, and pretend, this is called fraud. "Intentional deception should not be committed": After becoming deliberately deceptive, he should not (build), should not produce, should not produce, should not cause it to arise, and should not cause it to arise. He should have been separated from deceitfulness, abstained, quit, renounced, renounced, renounced, renounced, he should live away from being restricted. "For deliberate fraud, it should not be done.
-     "You should not contempt other people with survival, wisdom, precepts and restraints": "again", "the continuation of the sentence... (Omitted) This is the order of the sentence, which is "you". Here, a certain kind of crude life supporter scorns other triumphant life supporters: "How rich this is, he eats everything, namely: root seeds, stem seeds, knot seeds, fall seeds, seed seeds [for ] Fifth, the hammer with thunderous teeth is also known as Samana! [DN.25, Lot 61] He scorned other survivors with that cruel life.
-Here, a certain kind of survivor of the wonderful life scorns other survivors of cruel life: "This unknown incompetent is not a gainer of clothes, food, shelter, the needs of patients, and medical necessities." He said that Sheng Miao Life scorns other cruel life supporters. Here, a certain type of people is a wise man. He answered the question asked. He thought this way: "I am a wise man, but these other people are not wise man." He scorned other people with that wise man. Here, a certain type of people are full of restraints. They live and are protected by the self-control of Borodim. They have full righteousness and state of affairs. They see fear in minor sins, and learn after being upheld at the school. He thinks like this: "I They are those who have full restraints, but these other monks are those who break the precepts and evil spirits." He scorned other people with that restraint. Here, a certain type of people is forbidden to have enough: those who live in the woods, or those who often beg, or those who wear feces and sweeping clothes, or those who are three-clothed, or the second-time beggar, or those who do not eat after eating, or who often sit [not lying ], or live everywhere. He thought this way: "I am forbidden to have enough, but these other people are not forbidden to have enough." He scorned other people with that restriction. "You should not scorn other people with life, wisdom, precepts and restraints": "You should not live with bad practices, or live better than good, or with wisdom, or restraint, or forbidden to contempt and despise other people. Pride should be generated because of that, and should not be stiff, very stiff, and head-raising because of that." We should not contempt other people with survival, wisdom, precept and restraint.
-     Because of that, the Lord said:
-     "Should not be taken away in false speech, deliberate deception should not be committed,
-       shouldn't be scornful of other people with survival, wisdom, precepts and restraints. "
-    167. After hearing many words of Samana or ordinary people, when provoked,
-       shouldn't say back in a rude manner, because the Silent ones don't fight back.
-"After hearing many words of Samana or ordinary people, when you are irritated": "When irritated," when you are slandered, rebuked, annoyed, slandered, humiliated, or insulted. "Samen" is anything Those who walk into the parade from here, enter the parade. "Ordinary people" are Kshatriya, Brahman, Vaisha, Sudra, layman, monk, heaven, and people. They will say many undesirable, Unpleasant, unpleasant words insult, slander, irritate, anger, hurt, distress, kill, annoy, and hurt. Many of their undesirable, unpleasant, and unpleasant words are heard and heard , After grasping, after understanding, after discriminating." After hearing many words of Samana or ordinary people, when being provoked.
-"Should not go back in a rude manner": "'"Crudely", you should not go back in a rude and rude manner, you should not go back to arguing, you should not go back to the insulting person, and you should not go back to anger the angered person, no Should go back to arguing and arguing [者, SN.7.2], should not be arguing, should not be arguing, should not be arguing, should not be arguing, should not be arguing, arguing, arguing, arguing, arguing, arguing, he should Give up, should be driven away, should be terminated, should be brought to non-existence. It should have been separated from quarreling, arguing, arguing, arguing, dissent, abstaining, quitting, leaving, leaving, liberating , He has been separated from the bondage, he should live with the heart of being free and restricted."Because it shouldn't be rude and go back.
-"Because the silent one does not counterattack": "The silent one", "the greedy person has been silent, the greedy...the foolish...angry...hateful... , The calmed state, the calmed down state, the extinguished state, the cooled state, the departed state, and the cessated state are the silent, silent, extinguished, cooler, and halted." is the silent one. "Because the Silents do not counterattack": The Silents do not counterattack, wrestling opponents, enemies, hostility, they do not produce, produce, do not cause it to arise, and do not cause it to arise. "Because the silent ones do not fight back.
-     Because of that, the Lord said:
-     "After hearing many words of Samana or ordinary people, when I was provoked,
-       shouldn't say back in a rude manner, because the Silent ones don't fight back. "
-    168. After knowing this method, the bhikkhu who chooses should always study it conscientiously.
-After        knows that "silence" is dying, he should not let go of his teachings.
-"After knowing this Dhamma": "This Dhamma has been explained, taught, told, established, uncovered, analyzed, clarified, and explained. After knowing, after understanding, after measuring, after judging, respectively After, after clarifying." This is after knowing this Fa. Or, "The right and wrong, the [right] way and the evil way, the sinful and innocent, the despicable and the triumphant, the black and the white, the sage's condemnation and the wise's praise After, after understanding, after weighing, after judging, after separating, after clarifying." This is also after knowing this method. Or, "the correct path, the path that follows the path, the path that is not reversed, the path that does not violate the path, the path where the meaning is, the path where the law follows the law, the integrity of the precepts, the protection of the root gate, the right amount of dietary knowledge, Specializing in sobriety, mindfulness and right knowledge, four mindfulness, four positive diligence, four divine feet, five senses, five powers, seven enlightenment factors, eight holy paths, Nibbana and the path leading to Nibbana. After knowing, after understanding, After weighing, after judging, after separating, after clarifying." This is also after knowing this method.
-"Bhikkhus who check and choose should always learn with mindfulness": ""Check", "When checking; when making strong checks; when measuring; when judging; when distinguishing; when clarifying: " All actions are impermanent"... (abbreviated) "Any collection of dhamma is extinguished" when selecting; when forced to select; when measuring; when judging; when distinguishing; when clarifying." The bhikkhu of selection. "Always", always; everything; all the time... (omitted) old age. "Conscientiously (of)", which is conscientious in four ways: when the practice is on the body and the body When mindfulness is mindful... (omitted) He is called mindful. "Should learn", there are three kinds of learning: increasing precept learning, increasing mind learning, increasing wisdom learning... (slightly omitted) this is Increase the wisdom of learning. These three learnings should be learned when heading towards (noting)... (Omitted) should be learned, should be practiced, should be practiced well, and should be turned after being held." Bhikkhus who choose for inspection should always have Study hard.
-"Knowing that "silence" is after the death": "The greedy "silence" is after the death is known, the anger...the foolish... (omitted), all the unwholesome "silence" is the death after knowing and understanding , After weighing, after judging, after separating, after clarifying." To know that "silence" is after dying.
-"The teachings of Gautama should not be let loose": "The teachings of Gautama, the teachings of the Buddha, the teachings of the conquered, the teachings of the Tathagata, the teachings of the gods, and the Arahat's teachings. "Should not let go", should be a respectful author, a constant author, a non-stop author, a habit of not being stuck, a person who does not neglect his desires, and a person who does not neglect responsibility in good law; "How can I Completing the unfinished precepts... (omitted)" "How can I complete the unfinished concentration..." Hui Yun... liberating aggregates... liberating wisdom and seeing aggregates... "How can I know the uncompleted suffering? , Or I can let go of the pollution that hasn't been broken, or I can practice the path that hasn't been practiced, or I can testify and die without testifying?" Where he has intentions, diligence, courage, hard work, fortitude, no flinching, thoughts , Righteous knowledge, enthusiasm, diligence, establishment, practice, and perseverance in the good law." The teachings of Qiao Tamo should not be let loose.
-     Because of that, the Lord said:
-     "After knowing this method, the bhikkhu who chooses should always study it conscientiously.
-After        knows that "silence" is dying, the teachings of Qiao Damo should not be let go. "
-    169. Because he is an unconquered conqueror, he saw self-certification instead of hearsay,
-       Therefore, it is true that those who do not let go should always respectfully follow the teachings of the Blessed One. [Like this Lord (say)]
-     "Because he is an unconquered conqueror": "The "conqueror", the conqueror of color, the conqueror of sound, the conqueror of smell, the conqueror of taste, the conqueror of touch, the conqueror of law, is not conquered by any pollution, he conquers those evil and unwholesome laws: obedience The polluted, the more, the fearful, the bitter fruit, the future will be old and dead. "Because he is an unconquered conqueror.
-"He sees self-certification rather than hearsay": ""Self-certification" is not heard, not based on work like this, not based on inheritance, not based on tripartite, not based on theoretical contemplation, not based on contemplation. His insights were seen, seen, seen, and understood by the Dhamma that he personally proved and realized." It was because he saw the Dhamma of self-evidence, not hearsay.
-"Therefore it is indeed the commandment to the Blessed One": "therefore, therefore; the reason; the cause; the condition; the cause. "The commandment to the Blessed One", the commandment to the Blessed One, right The teachings of Gautama, the teachings of the Buddha, the teachings of the conquered, the teachings of the Tathagata, the teachings of the gods, the teachings of the Arahats." That is why the teachings of the deity are true. .
-"He who does not let loose should always be respectful and follow his studies. [Like this world-zun (say)]": ""He who does not let loose", a respectful author... (omitted) He who does not let loose in good law. "Always", always; [everything;] all the time... (omitted) old age. "Respect", to respect with the body, or with words, or with the heart, or as such It means to respect and respect, or to respect, respect, respect (Thailand version), respect, reverence, and respect (Thailand version). "Follow learning", there are three kinds of learning: increasing precept and learning, increasing heart Learn, increase the wisdom of learning... (omitted) This is to increase the wisdom of learning. These three learnings should be learned when they are directed to (notice)... (omitted) should be learned, practiced, and should be used as a testimony. Practice, should practice well, and should be turned after being sustained. "World Honored", a synonym for respect... (abbreviated) Anri (pseudonym) who testifies, that is, World Honored." Those who do not let go should always respect and follow the school. . [Like this Lord (say)]
-     Because of that, the Lord said:
-    "Because he is an unconquered conqueror, he sees self-certification instead of hearsay,
-       Therefore, it is true that those who do not let go should always respectfully follow the teachings of the Blessed One. [Like this Blessed One (say)]"
-     The fourteenth [completed] of the quick explanation.
+
+Secondly, the quick explanation will say:
+
+150. Sun people! I ask you, the realm of far away and silence, Great Immortal!
+
+How did        see the post-bhikkhu reach Nibbana and become one who has no
+clinging in the world?
+
+"Sun people! I ask you": "Inquiry (ask)", there are three kinds of inquiries:
+inquiry about unseen explanation, inquiry about confluence of what you see,
+inquiry about cutting off doubt. What is the unseen explanation inquiry? It was
+originally a feature that was unknown, unseen, unmeasured, unjudged, unclear,
+unclear. For his wisdom, seeing, measuring, judging [, clear], understanding, he
+asked questions, this is Inquiries about unseen explanations. What is the
+confluence of what is seen? It was originally a characteristic that was known,
+seen, measured, judged, clear, and understood. He asked questions for the
+purpose of confluence with other wise men. This is a question of confluence of
+seen. What is the question of the cut-off of doubt? It was originally a jump-in
+(Sri Lankan version) doubter, a jump-in doubter, and a doubter: "Is that so?
+Isn't it? What is it? How is it?" He asked questions for the purpose of cutting
+off doubts, this It is a question of cutting off doubts. These are three types
+of queries.
+
+The next three kinds of inquiry: human inquiry, non-human inquiry, and human
+inquiry. What is a human inquiry? Everyone asked questions after they went to
+see the Buddha and the World-Honored One: asked bhikkhus, bhikuni, yobosai,
+yoboyi, kings, kshatriya, brahmins, and vishas, The heads of the dhara asked,
+the lay people asked, the monks asked, this is a human question. What is an
+inhuman inquiry? The non-people asked questions after they went to see the
+Buddha and the Blessed One: asked the dragons, asked the golden-winged birds,
+asked the yasha, asked the asuras, asked the gandapo, asked the kings, asked the
+Indra, asked the Brahmas , Asked the gods, this is an inhuman inquiry. What is
+an inquiry from a human? All the body and limbs of the physical body produced by
+the creation intention of the Blessed One are not lacking in the roots. The
+Blessed One will ask questions after seeing the Buddha and the Blessed One, and
+the Blessed One will answer him. This is a question of the Blessed One. These
+are three types of queries.
+
+The next three kinds of inquiry: inquiry for one's own benefit, inquiry for the
+benefit of others, and inquiry for the benefit of both. The next three
+inquiries: inquiries about current interests, inquiries about future interests,
+and inquiries about highest interests. The next three kinds of inquiry: inquiry
+of the benefit of no fault, inquiry of the benefit of no pollution, and inquiry
+of the pure benefit. The next three types of queries: [about] past queries,
+future queries, and current queries. The next three inquiries: [About] Inquiries
+within oneself, inquiries outside oneself, and inquiries within and outside
+oneself. The next three inquiries: [about] good inquiries, unkind inquiries, and
+non-remembering inquiries. The next three types of queries: [about] Yun, Jie,
+and Chu. The next three inquiries: [About] Inquiry about Mindfulness, Inquiry
+about Diligence, Inquiry about Spiritual Content. The next three kinds of
+inquiry: [about] the root inquiry, the strength inquiry, the enlightenment
+inquiry. The next three kinds of inquiry: inquiry of Tao, inquiry of fruit,
+inquiry of Nibbana.
+
+"[Sun tribe!] I ask you": ""I ask you; I beg you; I beg you; you make me clear;
+please tell me." Ask you for me. "Sun tribe", Sun (Ādicco ) Is called the sun
+(sūriyo), the sun is surnamed Gautama, the Blessed One is also surnamed Gautama,
+the Blessed One is a relative of the sun surname, a relative of the surname of
+the sun, so the Buddha is a member of the sun tribe. "For the sun tribe! I ask
+you.
+
+"Far away and quiet, great immortal": "Far away," there are three types of
+distance: body distance, heart distance, and clinging distance. What is body
+distance? Here, monks close and live alone: forests, trees, mountains, caves ,
+Caves, cemeteries, forests, open fields, straw piles, living away from the body
+[living away from the body-Ni.2,7 偈], he walks alone, stands alone, sits alone,
+lies alone, and enters the village alone for alms To return alone, to sit alone
+in a quiet place, to perform alone, to walk alone, to live, to act, to turn, to
+guard, to survive, to survive, this is to stay away from the body.
+
+What is the mind away? The mind of the person who enters the first jhana has
+been separated from the covers, the mind of the person who has entered the
+second jhana has been separated from the search and service, the mind of the
+person who has entered the third jhana has been separated from happiness, the
+heart of the fourth jhana has been separated from happiness and suffering Far
+away, the mind of the person who enters the void and boundlessness has already
+thought about things, there is antithetical thinking, and all kinds of desires
+to be far away, the heart of the person who enters the boundlessness of
+consciousness has wanted to stay away from the void and boundlessness, and the
+mind of the person who has entered nowhere has thought from the boundlessness of
+consciousness To stay away, to enter the mind of the person who has no thoughts,
+and wants to stay away from nothing. The mind of the Sudhahuan person has
+changed from seeing, suspicious, forbidden, seeing the potential trend of
+defilement, the potential trend of doubt defilement, and the same. Stay away
+from the existing pollution,The mind of the one who has come has changed from
+crude desire and greed knots, from the potential trend of crude desire and
+greed, the potential trend of disgust and trouble, and the pollution of the same
+existence. The heart of those who do not return has been knotted from the
+residual desire and greed. , Disgust knot, from the residual potential trend of
+greed and greed, the potential trend of disgust, and the pollution that exists
+with it, the heart of Arahant has changed from color greed, colorless greed,
+slowness, abandonment, ignorance, potential trend of slow trouble, The latent
+tendency of greed and defilement, the latent tendency of ignorance defilement,
+and the pollution that coexists with are far away from the outside and
+everything.
+
+What is keeping away? Relying on is called pollution and various aggregates and
+various works; Relying on distance is called immortality, Nibbana, that is the
+cessation of all actions, the cessation of all dependence, the extinction of
+craving, greed, extinguishment, and Nibbana , This is to stay away. The distance
+of the body belongs to the continuous separation of the body and the willingness
+to leave the desire; the separation of the mind belongs to the purity of the
+heart and the highest purity; the separation of the body belongs to the
+unattached person, who comes to leave. "Silence" refers to a form of silence and
+a state of silence, that is, immortality and Nibbana, which is the cessation of
+all actions, the cessation of all attachments, the extinction of craving, greed,
+extinction, and Nibbana. This is said by the Blessed One: "This is the state of
+silence, this is the state of victory, namely: the cessation of all actions, the
+cessation of all attachments, the extinction of craving, greed, extinction,
+Nibbana [SN.48.50] . "With another aspect: all dhammas lead to the realization
+of silence, the touch of silence, and the testimony of silence, just like these
+four mindfulness, four righteousness, four divine feet, five faculties, five
+powers, seven enlightenment factors, and eight Supporting the Holy Way, these
+are called the realm of silence, the realm of refuge, the realm of refuge, the
+realm of refuge, the realm of no fear, the realm of no death, the realm of
+immortality, and the realm of Nibbana.
+
+"The Great Immortal", the Great Immortal is the Blessed One, and the "Seekers,
+Pursuers, and Seekers of the Great Precepts" are the Great Immortals. Dading
+Yun... (slightly omitted) Da Hui Yun... Great Liberation Aggregate... "The
+seeker, pursuer, and seeker of the Great Liberation Wisdom and Insight" is the
+great immortal; the fragments gathered by the dark... The destruction of the
+great upside down... …The pulling out of the big thirsty arrow…The unraveling of
+the accumulation of sight…The lifting of the big slow flag (Thailand
+version)…The calming of the great work…The increasing of the big storm…The
+laying down of the heavy burden… ...The severance of the cycle of the great
+reincarnation...the disappearance of the great heat...the cessation of the great
+heat..."the seeker, the pursuer, and the seeker who made the establishment of
+the Dafa flag" become the great immortal; the great minds... Dazhengqin...the
+great gods...the great roots...the power...the great enlightenment
+branches...the big eight branches of the holy path..."the immortality of the
+great supreme benefit, the seeker of Nibbana, the pursuer, the seeker" is Great
+Immortal; "Seeked, pursued, and searched by powerful beings: Where is the
+Buddha? Where is the Lord? Where is the god among the gods? Where is the king of
+cows among people? "Is a great immortal. "For the realm of distance and silence,
+Great Immortal!
+
+"How to see the post-bhikkhu to reach Nibbana": "How to extinguish one's greed
+(to reach Nibbana) after seeing, after seeing, after weighing, after judging,
+after separating, after clarifying, to extinguish one's anger, to make one's
+ignorance Extinguish, anger... (slightly) resentment... hiding evil... bossy...
+envy... stingy... fake... cunning... stubborn... passion... slow... extremely
+slow... slow... letting go ...All pollution...all evil deeds...all
+afflictions...all scorching heat...all heat afflictions...all unwholesome deeds
+make it annihilate, calm it, quiet it, calm it down, and stop it. "Bhikkhu," a
+monk, a monk, a monk, or a monk who learns." To see how the monk reaches
+Nibbana.
+
+"Become the one who has no clinging in the world": "From the four kinds of works
+to become the one who does not take the author, the one who does not hold, the
+one who does not cling, the one who does not cling to. "In the world", in the
+world of suffering, the world of humans , The world of heaven, the world of
+aggregates, the world of realms, the world of existence. "Any", any form,
+feeling, thinking, behavior, consciousness." Become one who has no clinging in
+the world.
+
+Because of that, Huaren said:
+
+"Sun people! I ask you, the realm of far away and silence, Great Immortal!
+
+How did        see that the post-bhikkhu reached Nibbana, as one who has no
+clinging in the world? "
+
+151. [Like this Blessed One (saying):] The root of the false name: After
+     consideration, all "I am" should be stopped,
+
+Any cravings within oneself should always be learned consciously for those
+adjustments.
+
+"[Like this Blessed One (say):] The root of the name of vain: after
+consideration, we should stop all "I am"": "Fantasy is the name of vain
+(concept/cognition): the name of vain, the name of vain Name. What is the root
+of the illusory name of craving for love? Ignorance is the root; not as the root
+of reason; I am the root of slowness; without shame as the root; being ashamed
+as the root; falling as the root, this is the root of craving FalsehoodThe root
+of the name. What is the root of the false name of seeing? Ignorance is the
+root; ignorance is not the root of reason; I am slow as the root; without shame
+as the root; worthy of the root; falling as the root, this is the root of the
+vain name of seeing.
+
+"Blessed One", synonymous with respect. In addition, the "destroyed greedy
+person" is the world-honored; the "destroyed gangster" is the world-honored; the
+"destroyed idiot" is the world-honored; the "destroyed slow" is the
+world-honored; the "destroyed seer" is the world-honored; "The Thorns" is the
+Blessed One; the "who has destroyed the pollutants" is the Blessed One; the "one
+who divides, analyzes, and distinguishes the magic weapon" is the Blessed One;
+"someone who ends" is the Blessed One; "the body has been practiced, the precept
+has been practiced, the mind has been practiced, Those who have learned wisdom
+are the world-zun; or "the world-zun is a woodland, barren forest, border
+dwelling place (sitting place): low-voicing, quiet, away from people, living
+alone, and suitable for sitting alone. "The Blessed One" is the Blessed One; or
+"The Blessed One is the one who divides clothes, food, shelter, the necessities
+of the patient, and medical necessities" as the Blessed One; or "The Blessed One
+is the taste of righteousness, the taste of the Dhamma, the taste of liberation,
+the precept and the mind "The one who has increased wisdom" is the world-zun; or
+"The world-zun is the four kinds of jhana, four immeasurable, four-colorless,
+etc." as the world-zun; or "the world-zun is the eighth liberation, the eight
+victories, the ninth abode, etc. The one who is the most divided is the Blessed
+One; or "The Blessed One is the practice of ten-thinking, the tenths, the one
+who waits for the tenths, the one who enters and exits the mind, the one who is
+impure, the one who is the Blessed; or the "the Blessed one is the four
+mindfulness, One who has the four righteousness, the four gods, the five senses,
+the five powers, the seven enlightenments, and the eight branches of the holy
+path" is the world-blessed one; or "the world-blessed one is the tenth, four
+fearless, four unobstructed, six magical powers, six enlightenments The "divider
+of Dhamma" is the deity. "World Honored One", this name is not given by (made)
+by mother; not given by father; not given by brothers; not given by sisters; not
+given by friends; not given by relatives; not given by Samana or Brahman What is
+given; what is not given by heaven is ultimate liberation; the establishment
+(pseudonym) for the acquisition and testimony of the Buddha, the Blessed One,
+under the Bodhi tree, and all knowledge and wisdom, that is, the Blessed One.
+"It is [Like this Blessed One (Speaking):] The root of a false name.
+
+"After consideration, you should stop all "I am"": "After consideration, it is
+called wisdom, which is wisdom, knowledge and understanding... (slightly) no
+delusion, choice of law, right view. "I am", about the "I am" "There is a latent
+trend of troubles such as slow "I am" and desire "I am", about feeling...about
+thinking...about behavior...about consciousness "I am", slow "I am" and desire
+The potential trend of the troubles of "I am"." "[Like this Blessed One
+(saying):] The root of the false name: After consideration, everything should be
+stopped. "I am": "After consideration, it should be prevented, stopped,
+eliminated, calmed, and eliminated No, stop the slowness of the root of all
+false names and I am." For [Like this Blessed One (said):] The root of false
+names: After consideration, we should stop all "I am".
+
+"Anything within one's thirst for love": ""Anything", all completely, every
+aspect completely, no surplus, the whole earth, this is the word that is taken
+all over, which is "anything". The craving for sex... (in the abbreviated)
+Dhamma craving. "In oneself", "Waiting for that craving in oneself (Thailand
+version)." In oneself. Or, "The one in oneself is called the heart: the heart ,
+Mind, mind, heart (dirty), white (purified), mind, mind location, mind root,
+consciousness, consciousness accumulation, corresponding to the consciousness
+realm, the mind is coexistent, coexistent, and intermingled by that craving ,
+Correspondence, co-existence, co-extinction, the same place of dependence, and
+the same object" are also within oneself." It is any desire within oneself.
+
+"For those modulations, we should always learn it with a mindfulness": "always",
+always; everything; all the time; always; eternal time; always constant;
+continuous; uninterrupted; successively; water wave It arises without interval;
+continuously accompanies it to reach; in the early noon, noon, first night,
+midnight, and late night; in the dark moon, bright moon, rainy season, winter,
+summer; in youth, middle age, old age. "Conscientiously (of)" means being
+conscientious in four ways: when practicing mindfulness on the body and
+mindfulness, being mindful, on receiving...in the mind...when practicing
+mindfulness in the Dhamma Mindfulness is mindful. The next one is conscientious
+in four ways: the state of avoiding non-mind is conscientious, the state of the
+Dhamma that should be done in response to thoughts is conscientious, the state
+of the Dhamma that is obstructed in mind is being destroyed, the state of being
+conscientious, right Mind factor (phase) [的法-Ni.1,3偈] The state of not
+forgetting is mindful.
+
+The next one is mindful in four ways: the state of mindfulness is mindful, the
+state of mindfulness is mindful, the state of mindfulness is mindful, and the
+state of mindfulness is not reduced. of.
+
+The next one is conscientious in four ways: the state of conscientiousness is
+conscientious, the state of silence is conscientious, the state of calmness is
+conscientious, and the state of having the Dhamma of SilenceBe mindful; take
+Buddha's mindfulness as mindful, use Dhamma and mindfulness as mindfulness, take
+Sangha's mindfulness as mindfulness, take precepts and mindfulness as
+mindfulness, and take alms and give as mindfulness , With the mind of the sky as
+the mind; the mind of entering and exiting the breath as the mind, the mind of
+death as the mind, the mind of the body as the mind, the mind of the silence as
+the mind; the general mind and the mind , Remembrance, the state of remembrance,
+retention, non-floating, non-forgetting, the root, power, mindfulness, support
+of mindfulness, and the path of no divergence of mind are called mindfulness.
+Having, being fully possessed, reaching, fully reaching, possessing, being fully
+possessed, possessing this thought, he is called mindful.
+
+"Learning", there are three kinds of learning: increasing precept learning,
+increasing mind learning, and increasing wisdom learning. What is to add to
+school? Here, the bhikkhu is a preceptor who lives and is protected by the
+self-control of the Polo Timucha. He has sufficient righteousness and state of
+affairs. He sees the terrible in minor sins, and learns after being upheld at
+the school. The small and large precepts are the basis of the abstinence, the
+[self] restraint of behavior, the entrance of self-control, the head of the
+virtuous dhamma (achieved), the virtuous dhamma (achieved), this is to increase
+the precept learning .
+
+What is to learn more? Here, the bhikkhu lives in the first jhana of seeking and
+serving after he is absent from desires and unwholesome Dhamma, and after
+detachment produces joy and happiness, he calms down with seeking and serving,
+with confidence, and one mind. After entering, he lives in no seeking, The
+second jhana of happiness and happiness is born without waiting, concentration,
+which fades with happiness and dwells in peace, has mindfulness and right
+knowledge, and feels happiness with the body. After entering, dwelling in this
+holy disciple proclaimed: "He is calm and possessed. The third jhana of
+"Mindfulness and abide in the happy", the renunciation of pleasure and the
+renunciation of suffering, and the extinction of the joy and sorrow before,
+after entering, dwell in the stage of not suffering or unhappy, from being calm
+and chanting completely. Four jhana, this is to increase the mind.
+
+What is to go to school? Here, the bhikkhu is a wise person, possessing the
+wisdom that leads to the arising and passing away; the holy, insight, and the
+complete extinction of suffering [zhihui], he truthfully knows "this is
+suffering." truthfully knows "this is the collection of suffering "Knowing the
+truth "This is suffering." Knowing the truth "This is the path leading to
+suffering." Knowing the truth: "These are troubles." Knowing the truth: "This is
+the collection of troubles." Knowing the truth: "This is the extinction of
+defilements." To know the truth: "This is the path leading to defilement of
+defilements." This is to increase the wisdom of school.
+
+"For those who want to tune up, he should always learn it with a sense of mind":
+"For those who want to tune, eliminate, let go, calm down, cut off, and stop, he
+should learn to increase precepts, and he should also learn to increase his
+mind. Learn to increase wisdom. These three learnings should be learned when
+heading towards (noting); learning when knowing; learning when seeing; learning
+when introspecting; learning when establishing (decision); You should learn when
+you are vigorous; you should learn when you are vigorous; you should learn when
+mindfulness arises; you should learn when mind concentration (concentration);
+you should learn when you know with wisdom; you should learn when you know what
+should be known; Learn when omniscience should be omniscience; learn when
+renounce what should be renounced; learn when practice should be practiced;
+learn when practice should be practiced; learn, practice, and practice well when
+practice should be witnessed After being held up, you should turn it around."
+For those adjustments, you should always learn it conscientiously.
+
+Because of that, the Lord said:
+
+"[Like this Blessed One (saying):] The root of the false name: After
+consideration, we should stop all "I am",
+
+Any cravings within oneself should always be learned consciously for those
+adjustments. "
+
+152. Anyone who can prove and know the Fa, whether inside or outside of himself,
+
+should not be fortitude because of that, because that is not said to be dying by
+the good.
+
+"Anyone who can prove the knowledge of the Dhamma is within himself": "Any one
+of his own virtues, he can know whether it is good or unrecognized. What is his
+own merit (good quality)? Will it be a monk from a noble family, or It may be a
+monk from a wealthy family, or a monk from a wealthy family, or it may be a
+famous person or a famous person in the same household and a monk, or it may be
+in clothes, food, shelter, patients The person who gains the necessities and
+medical necessities" may be a scribe, or a lawyer (law holder), or a speaker, or
+a person who lives in the wild, or a beggar, or Is a person who wears feces
+sweeping clothes, or who is only three-clothed, or who is a second-time beggar,
+or who is not eaten after eating, or who is often sitting [not lying], or who
+lives anywhere, or It will be the "receiver of the first jhana", or it will be
+the "receiver of the second jhana", or it will be the "receiver of the third
+jhana", or it will be the "receiver of the fourth jhana", or it will be " The
+one who waits until the void is boundless", the one who waits until the
+boundless knows...and waits until there is nothing...may be a "the one who waits
+for nothing but wants," and this is called his own merit. Whatever his own
+virtues, he can know, canTo know, to know, to know, to be able to understand.
+"For anyone who can prove and know the Fa, within himself. "Or external": "It
+will be those who are pro-teacher, or the merit of the teacher (Ari)." It is
+also external.
+
+"You should not be fortitude because of that": "You should not be fortitude,
+stubbornness, arrogance, tribute, and sluggishness based on your own merits or
+the merits of others. Pride should not be produced because of that. That way,
+you become a stiff, very stiff, head-raising person." Because you should not be
+fortitude because of that.
+
+"Because the one who is not good is said to be dying": "To the good (Satānaṃ),
+to the good (santānaṃ), to the good (sappurisānaṃ), to the Buddha, to the
+disciples of the Buddha, and to the Pichi Buddha, "That is sane "Exit" is not
+said, not explained, not explained, not taught, not told, not established, not
+revealed, not analyzed, not clarified, not explained." Because that is not good.
+Said it was dying.
+
+Because of that, the Lord said:
+
+"Anyone who can prove and know the Fa, inside or outside of himself,
+
+should not be fortitude because of that, because that is not said to be dying by
+the good. "
+
+153. It should not be considered a winner, inferior or equivalent because of
+     that,
+
+is touched by more than one person, and he shouldn't keep his own
+classification.
+
+"Should not be considered a winner because of that": "Should not be born, or
+surname, or good family, or beauty as a lotus, or property, or research
+(acquisition), or career, or Use skill, or clarity (academic), or hear, or
+argue, or something that makes "I am the winner" very slow to produce." It
+shouldn't be considered a winner because of that.
+
+"Is the inferior or the equivalent": "Should not be born, or by the surname...
+(omitted) or something to make "I am the inferior". It should not be born or by
+the surname, Or with good family, or with beauty as a lotus flower, or with
+property, or with research (acquisition), or with kamma, or with skill, or with
+light (academic), or with hearing, or with argument, Or use something to slow
+down "I am the equivalent"." It is the inferior or the equivalent.
+
+"To be touched by more than one form": "To be touched by various forms,
+tortured, combined, possessed." To be touched by more than one form.
+
+"He should not maintain a classification of himself": "He is called me. He
+should not keep constructing, classifying, and arrogantly distinguishing me
+(self)." Because he should not maintain a classification of himself.
+
+Because of that, the Lord said:
+
+"You should not think that you are the winner, the inferior or the equivalent
+just because of that,
+
+is touched by more than one person, and he shouldn't keep his own
+classification. "
+
+154. There should be silence only within oneself, monks should not seek silence
+     from others,
+
+The silent person within himself, where can he refuse what he has not taken?
+
+"Only oneself should be quiet": "The greed in oneself should be calmed; anger
+should be calmed; ignorance should be calmed; anger... (slightly) resentment...
+hiding evil... bossy... envy... stingy …False deception… Cunning… Stubborn…
+Passion… Slow… Very slow… Slow… Relax… All pollution… All evil… All troubles…
+All scorching heat… All heat Annoyance... All bad deeds should be calmed,
+quieted, calmed, silenced, and ceased." For only oneself should be quiet.
+
+"Bhikkhus should not seek silence from other things": "From other things, with
+impure ways, evil ways, and non-departures, except for the mindfulness, except
+for the righteousness, except for the feet of the gods In addition, apart from
+the roots, apart from the forces, apart from the enlightenment factors, and
+apart from the eight branches of the holy path, one should not seek, seek, and
+seek silence, silence, peace, cessation, and cessation." Bhikkhus should not
+seek silence from others.
+
+"The Silent One in Oneself": "The one who desires silence within oneself; the
+one who averts the silence; the one who ignorantly stops... "For the silent
+person within himself.
+
+"Where can I refuse the one that is not taken?": "The "no" is negative. The
+"taken" is for me, but he doesn't. He doesn't hold the ones, and the ones that
+"reject" are those that should be released. He doesn't. Anything that should be
+held, there is something that should be released [; that which should be
+released, there are those that should be held] . For him, it is a transcendence
+who grasps and releases. The Arahant has surpassed growth and retreat.Practicing
+actors... (slightly omitted) The cycle of life and death, without his rebirth.
+"For those who haven't taken it, where can there be rejection."
+
+Because of that, the Lord said:
+
+"Only oneself should be silent, monks should not seek silence from others,
+
+Those who are silent within themselves, who have not taken it, and where can
+they refuse. "
+
+155. As in the middle of the sea, it is stable without waves being generated.
+
+Those who live and do not disturb like this, the bhikkhu will not increase
+prosperity no matter where he is.
+
+"As in the middle of the sea, it is stable without waves being produced." "The
+ocean is high and deep for 40,000 ys. The water below forty ys is swayed by fish
+and turtles, and the water above forty ys is swayed by wind, and the middle is
+40,000. The water of Yushun does not shake, shake strongly, do not move,, does
+not tremble, does not tremble (strong tremor), does not tremble much (strong
+tremor), not passive, not stirred, not waved, not stirred, not rotated , Is
+calmed down, where no waves are generated, it is a stable sea." Like this is
+like in the middle of the sea, no waves are generated, it is stable.
+
+Or, "In the middle of the seven mountains there is a colored peach evening, a
+big peach, and the sea, where the water does not shake, does not shake strongly,
+does not move, does not tremble, does not tremble, does not tremble too much,
+does not passivity, is not stirred, is not fluctuated, Not to be disturbed, not
+to be rotated, to be calmed down, where no waves are generated, it is a stable
+sea." Like this, it is also in the middle of the sea, where no waves are
+generated, it is stable.
+
+"Like this one who lives and does not disturb": ""Like this" is a metaphorical
+arrangement. "The one who lives (stable)", "He does not shake when he gets it;
+he does not shake when he does not get it; [Yes] He does not shake when he is
+famous; he does not shake when there is no reputation (bad reviews); he does not
+shake when praised; he does not shake when he reprimands; he does not shake when
+he is happy; when he is suffering He does not shake, does not shake strongly,
+does not move, does not tremble, does not tremble, does not tremble greatly."
+This is the one who stands. "The one who does not disturb", disturbance is
+called thirst, that is greed, greed (complete greed) )…… (omitted) greed, greed,
+and unwholesome roots. For him who is disturbed, craving is cut off, cut off,
+cut off, calmed down, stopped, unable to arise, and burned by the fire of
+wisdom, he Known as the undisturbed. The undisturbed state is regarded as the
+undisturbed. He does not shake when he gets it; he does not shake when he does
+not; he does not shake when [has] reputation; he does not shake when he has no
+reputation; He doesn't shake during bad reviews; he doesn't shake during praise;
+he doesn't shake during reprimand; he doesn't shake during happiness; he doesn't
+shake during suffering. He doesn't shake, shake, move, or tremble. , Don't
+tremble, don't tremble too much." This is the one who lives and does not
+disturb.
+
+"Bhikkhus will not increase prosperity no matter where they are": "In
+"increasing prosperity", there are seven increasing prosperity: greed, aversion,
+delusion, slow increase, see increase, pollution increase, kamma increase Sheng,
+he will not do, will not produce, will not produce, will not cause it to arise,
+will not cause it to arise. "No matter where", no matter where, no matter where,
+no matter where, inside or outside Or inside and outside." For the monk, no
+matter where he is, he will not increase prosperity.
+
+Because of that, the Lord said:
+
+"As in the middle of the sea, it is stable without waves being generated,
+
+Those who live and do not disturb like this, bhikkhus will not increase
+prosperity no matter where they are. "
+
+156. The discerning person tells the self-certification of distressed
+     modulation,
+
+respect the teacher! Please tell me about the Taoism, Polo Timucha or even set.
+
+"Speaking of the discerning person": ""telling", "telling, explaining,
+explaining, teaching, informing, establishing, uncovering, analyzing,
+clarifying, explaining." is the narration (Thailand version). The five eyes are
+the clear eyes: the naked eye is the clear eye, the heavenly eye is also the
+clear eye, the clear eye is also the clear eye, the Buddha's eye is also the
+clear eye, and all eyes are also the clear eye.
+
+How does the Blessed One regard the naked eye as a discerning person? There are
+five colors in the eyes of the Lord: cyan, yellow, red, black, and white. The
+eye hairs of the Blessed One are blue, extremely blue, straight, beautiful, and
+the same as flax (Sri Lanka version) where the eye hairs stand. The others are
+yellow, extremely yellow, golden, and straight. Beautiful, equal to the flower
+of the winged tree. The two eyes of the Blessed One are red, extremely red,
+straight, beautiful, and equal to cochineal, and in the middle are black,
+extremely black, not coarse, moist, straight, beautiful, and equivalent to wet
+The others are white, extremely white, white, yellow-white, upright, beautiful,
+and equivalent to the Taibai star. With the naked eyes of the Blessed One who
+belonged to the natural individual and was born in the previous good industry,
+he saw everything in Yiyushun day and night, when there are four branches of
+darkness: sunset, black side [moon] busa, heavy forest, and timeThe black cloud
+of Nimbus (Thailand version) appears. Like this, when there is the darkness of
+the four branches, he also sees everything in Izumi day and night. There are no
+walls, or shutters, or fences, or mountains, or bushes, or Gemans, which are
+obstacles to his vision of form and form. If a sesame is marked and put into a
+cart full of sesame, he can select that sesame. In this way, the Blessed One's
+natural naked eye is pure, and the Blessed One takes the naked eye as a clear
+eye.
+
+How does the Blessed One regard the eyes of the sky as the discerning one? With
+a pure and transcendent celestial eye, the Blessed One sees that when all beings
+die and pass away, they are inferior, triumphant, beautiful, ugly, fortunate,
+and misfortune, knowing that all beings flow according to their kamma: "These
+beings and monarchs have body, evil, behavior, Evil deeds, deeds of intention
+and evil, rebuke the saints, wrong views and kamma of holding wrong views, they
+have passed away after death to the suffering realm, evil interest, lower realm,
+hell, or these beings, who have good deeds of body, good deeds of speech, To do
+good intentions, do not condemn the saints, right view and uphold the right view
+of the kamma, they have passed away to the world of goodness and heaven after
+death by disintegrating their bodies. "In this way, with a pure, transcendent
+heavenly eye, he saw that when all beings are living and dying, when they are
+reborn, in the inferior, triumphant, beautiful, ugly, fortunate, and
+unfortunate, he knows the flow of all beings according to kamma. When he wants,
+the Blessed One can see one world world, two world worlds, three world worlds,
+four world worlds, five world worlds, and ten worlds. Realm, I can see 20 world
+realms, 30 world realms, 40 world realms, 50 world realms, 100 world realms, and
+you can see These thousand small world realms can also see these two thousand
+middle world realms, and three thousand great thousand world realms (Sri Lanka
+version) [AN.3.81]. Or if he wants to, he can see it. In this way, the Blessed
+One's heavenly eyes are pure, and the Blessed One is such a person who takes the
+heavenly eyes as his clear eyes.
+
+How does the Blessed One regard the discerning eye as the discerning person? The
+Blessed One is the one who has great wisdom, the one who has the wisdom, the one
+who has the wisdom, the one who has the wisdom, the one who benefits the wisdom,
+the one who perceives the wisdom, the one who is skilled in the type of wisdom,
+the one who has developed wisdom, the one who has proved that there is no
+obstacle, the one who has reached four fearless, There are ten powerful people,
+people like cows, people like lions, virtuous people, people who can afford,
+people who have no bounds, those who have no bounds, those who have boundless
+reputation, the rich, the rich, the rich, the guide, the moderator , Soothes,
+informs, makes them consider, makes them see, makes them clear, the Blessed One
+is indeed the founder of the unborn Tao, the producer of the unborn Tao, and the
+unannounced preacher; It is the one who knows the Tao, the one who knows the
+Tao, the one who knows the Tao, and [its] disciples now live in the accompanying
+Tao, and will be those who have it in the future.
+
+The Blessed One is indeed the one who knows and the one who sees, he knows and
+sees; he is the one who is born with eyes, is born with wisdom, is born with
+Dhamma, and is born with Brahma; is an interpreter, promoter, and interpreter of
+righteousness, The immortal giver, Dhamma King, Tathagata, none that the Blessed
+One did not know, did not see, did not know, did not testify, did not touch with
+wisdom, the past, the future, and the present came to the Buddha and the Buddha
+with all the deeds In the field of wisdom, anyone with any name that should be
+guided to reason can be known: one's own righteousness or others' righteousness
+or both, or the righteousness of the current life or the righteousness of the
+next life or both , Or deep or hidden or hidden, or should be guided to infer,
+or have been guided to determine, or no fault or pollution, or clear or top
+interest , Everything revolves in the Buddha's wisdom.
+
+All body kamma follows the wisdom of the Buddha and the Blessed One; all
+language kamma...all mental kamma...the past wisdom of the Buddha and the
+Blessed One is barrier-free; [Buddha, the world-zun] regarding the future...the
+present wisdom is barrier-free , All that should be guided to infer is the reach
+of wisdom; all that should be guided to inference is the reach of wisdom, the
+ultimate that should be guided to inference is wisdom; the ultimate of wisdom is
+what should be guided to infer, Transcendence should be guided to infer the back
+intellect not to turn; Transcendence to infer has no way to be guided to infer.
+These methods are restricted to each other, such as two box covers are
+completely contacted, and the lower box cover does not pass over the upper one.
+; The upper box cover does not go over the lower one, and is restricted to each
+other. [Similarly,] All that should be guided to infer that is the reach of
+wisdom; all that should be guided to inference is the reach of wisdom; the
+ultimate that should be guided to inference is wisdom; the ultimate of wisdom is
+to be Those who lead inference, transcendence should be led to infer, and the
+post-intellect does not turn; transcendence has no way to be led inferential.
+These laws live in mutual restriction.
+
+The wisdom of the Buddha and the Blessed One is transferred in all the Dhamma,
+all Dhamma is the Buddha, the Blessed One's turning system, the hope system, the
+intention system, the arising mind system, the Buddha,The Blessed One's wisdom
+is transferred to all sentient beings. The Blessed One knows the intentions of
+all sentient beings, knows the potential tendency of troubles, knows the
+behavior, knows the solution (ambition), knows about the less dusty, the more
+dusty; the rooted and the dull rooted; Good deeds and evil deeds; easily
+teachable and unfavorable; capable and incapable sentient beings, including the
+world of heaven, demons, and Brahman; generations of saman, brahman, heaven, and
+human are all in the Buddha's wisdom Turn up.
+
+Just as all fish, turtles, and even big fish swallowing boats revolve in the
+sea, the same is true of the world including heaven, demon, and Brahman;
+generations including Samana, brahman, heaven, and human all revolve in the
+wisdom of Buddha. Such as any bird and even the gold-winged birds of the
+descendants of Wei Na were turning around in the void field. In the same way,
+those who have the same wisdom as Sariputta also revolve around in the field of
+Buddha wisdom. The wisdom of the Buddha is pervasive and transcends heaven and
+human. Those wise Kshatriya, wise Brahmins, wise homeowners, wise Samana, smart
+dissidents, sharp breakers who want to do evil views with a wise attitude, they
+are ready Later, I saw the Tathagata and asked about the hidden and secret
+[yili]. Those questions were discussed and answered by the Blessed One with
+reasons, but they abandoned those nearby and became the [disciples] of the
+Blessed One. At that time, the Blessed One was there, "Yihui" "Hui Yao. The
+Blessed One regards the insight as the discerning one.
+
+How does the Blessed One regard the Buddha's eyes as a discerning person? When
+the Blessed One observes the world with the eyes of the Buddha, he sees those
+with less dust and more dust; those with roots and blunt roots; those with good
+deeds and evil deeds; those who are easy to teach and difficult to teach; some
+who live in other worlds Sinful and horrible beings, others who do not live in
+seeing the sins and horrors in other worlds. Just like in the green lotus pond,
+the red lotus pond, and the white lotus pond, some green lotus, red lotus, and
+white lotus grow in the water, stay in the water, sink and grow underwater; some
+green lotus, red lotus, and white lotus grow in the water and grow in the water.
+In the water, they live at the same height as the water surface; some green
+lotus, red lotus, and white lotus grow in the water, and rise above the water to
+live and stand without being stained by water. Similarly, when the Blessed One
+observes the world with the eyes of the Buddha, he sees those with less dust and
+more dust; those with sharp roots and blunt roots; those with good deeds and
+evil deeds; those who are easy to teach and difficult to teach; The sins and
+horrors of other worlds, and others who do not live in seeing the sins and
+horrors of other worlds [DN.14, 69 para.]. The Blessed One knows: "This person
+is a greedy person, this person is an abusive person, this person is a foolish
+person, this person is a pathfinder, this person is a believer, and this person
+is a wise person. The Blessed One said to the greedy people. The Blessed One
+informs those who hate walkers of the practice of compassion. The Blessed One
+makes them settled in recitation, questioning, hearing of the law at the right
+time, discussion of the law at the time, and co-living with teachers. The
+Blessed One informs the person who seeks the path. The Blessed One tells those
+who believe in a confident form: the good sense of Buddha, the good nature of
+the Dhamma, the good practice of the Sangha and his precepts. The Blessed One
+tells Vipassana to those who are wise practitioners: impermanence, ascetic, and
+non-self.
+
+"If you stand on the top of a rocky mountain, you can see all the people,
+
+Similarly, those who are virtuous and all-eyed climbed up the tall building of
+Dhamma,
+
+Those who are divorced, looking at people who are in sorrow, conquered by birth
+and old age.
+
+please get up! hero! Victor on the battlefield! Caravan leaders, debt-free
+people walk in the world,
+
+World Lord! Please teach Dhamma! There will be (will) knowers. [DN.14, paragraph
+70]"
+
+The Buddha takes the Buddha's eyes as a discerning person like this.
+
+How does the Blessed One regard all eyes as the discerning one? All eyes are
+called state wisdom of all knowing. The Blessed One arrives (has), fully arrives
+(has), enters, fully enters, has enough, has all the state wisdom of knowing.
+
+"For him, there is nothing unseen here (in this world), there are still
+unknowable, unknowable things,
+
+He proves that everything that exists should be led to infer, because the
+Tathagata is like that for all eyes. [Ps.1, paragraph 121]"
+
+The World Honored One who takes all eyes as a discerning one. "For the
+discerning person.
+
+"The self-evidence method of distress adjustment": ""self-evidence method", "not
+from rumors, not from rumors, not from inheritance, not from sutra teaching, not
+from logical inference, not from reasoning, not from theoretical thinking, The
+opinion that is accepted not because of contemplation is the method that is
+personally proven and self-proven." It is the method of self-evidence. "The
+adjustment of distress" and "distress". There are two kinds of dangers: obvious
+danger and secret danger .Which are the obvious dangers? Lions, tigers,
+leopards, bears, dogs, wolves, bison, elephants, snakes, scorpions, centipedes,
+or thieves, hooligans who do bad things or are ready to do bad things, eye
+diseases, ear diseases, nose diseases, Tongue disease, body disease, head
+disease, externalEar disease, mouth disease, tooth disease, cough, asthma,
+external nose disease, fever, old age, abdominal disease, coma, diarrhea,
+abdominal pain, cholera, leprosy, tumor, ringworm, lung disease, epilepsy,
+ringworm, scabies, wind Ringworm, scratches (a type of hysteria), dry and
+cracked skin, blood gall bladder disease, diabetes, hemorrhoids, rashes (boils),
+hemorrhoids (ulcers), diseases caused by gall bladder, diseases caused by
+phlegm, diseases caused by wind, [ Three] collective diseases, diseases caused
+by changing seasons, diseases caused by improper postures, diseases caused by
+sudden attacks, diseases caused by kamma, cold, heat, hunger, thirst, feces,
+urine, and The contact of fly mosquitoes, wind and sun snakes, etc., are called
+obvious dangers.
+
+What are the hidden dangers? Body evil, speech evil, intentional evil, desire
+cover, malice cover, sleepy cover, demotion and regret cover, doubt cover,
+greed, aversion, ignorance, anger, resentment, hide evil, bossy, jealousy ,
+Stingy, deceit, cunning, stubbornness, passion, slowness, extreme slowness,
+stubbornness, letting go, all pollution, all evil deeds, all troubles, all
+anxious heat, all heat, and all unwholesome deeds, these are called hidden
+Secret danger.
+
+"Distress", what is the meaning of distress? "Conquer all over" is a crisis;
+"guide to retreat" is a crisis; "live there" is a crisis. How is "conquering all
+over" as peril? Those distresses who conquer, conquer, defeat, overwhelm, end,
+and crush that person are "conquer all over" as distress.
+
+How is "guided retreat" in distress? Those obstacles and retreats that lead to
+good dhamma in crisis, which good dhamma? The correct way, the following way,
+the way that is not reversed, the way that does not contradict (the way of no
+contradiction), the way as it means, the way of the law, the precepts are
+perfect, guarding the roots, knowing the right amount of food, specializing in
+sobriety, and mindfulness The hard practice with right knowledge, four
+mindfulness, four right diligence...Four divine feet...Five roots...Five
+powers...Seven enlightenment elements...Eight ways of diligent practice lead to
+the obstacles and retreats of these good dhamma , This is a crisis of "guided
+retreat".
+
+How is "inhabiting there" in danger? There, these evil and unwholesome laws
+arose to be restrained by individuals, such as burrowing animals lying in caves;
+aquatic animals lying in water; forest animals lying in the forest; arboreal
+animals lying in trees. In the same way, these evil and unwholesome laws give
+rise to mutual dependence. This is the danger of "living there".
+
+This was said by the World Lord [SN.35.151]: "Monks! Bhikkhus with apprentices
+and masters live in misery and restlessness. But, monks! How is it that monks
+with disciples and masters live in distress and uneasy? Bhikkhus! Here, after
+seeing the color with his eyes, the bhikkhu has the memories and intentions of
+those evil and unwholesome Dhamma that follow the knot. "They live in him; evil
+and unwholesome laws live and enter (occupy)." Therefore, he is called "a
+disciple." "They conquer him; evil and unwholesome laws conquer him." Therefore,
+he is called "the master."
+
+Besides, monks! After listening to the sound with his ears...(omitted) after
+smelling the smell with his nose...after tasting the taste with his
+tongue...touching the touch with his body...after knowing the Dhamma with
+consciousness, the memory of those evil and unwholesome Dhamma that follow the
+knot arises And intention. "They live in him; evil and unwholesome laws live and
+enter (occupy)." Therefore, he is called "a disciple." "They conquer him; evil
+and unwholesome laws conquer him." Therefore, he is called "the master."
+Bhikkhus! In this way, monks with disciples and masters live in misery and
+restlessness. "This is also the danger of "living there".
+
+This was said by the World Lord [It.88]: "Monks! There are these three types of
+internal grime, internal non-friends, internal enemies, internal killers, and
+internal grievances. Bhikkhus! Greed is internal grime, internal non-friends,
+internal enemies, internal killers, internal grievances; monks! Sorrow...
+(slightly) monks! Infatuation is internal dirt, internal non-friends, internal
+enemies, internal killers, and internal grievances. Bhikkhus! These are the
+three types of internal grime, internal non-friends, internal enemies, internal
+killers, and internal grievances. "
+
+"Creed is the cause of no benefit, and greed is the one who shakes the heart,
+
+horror arises from it, and people don't realize it.
+
+The greedy person does not know the benefits, the greedy person cannot see the
+law,
+
+At that time he was a blind dark one: anyone who can conquer with greed.
+
+瞋 is the cause of no benefit, anger is the one that shakes the heart,
+
+horror arises from it, and people don't realize it.
+
+The angry do not know the benefits, the angry cannot see the law,
+
+At that time he was a blind dark one: a man who can conquer.
+
+foolishness is the cause of no benefit, foolishness is the one that shakes the
+heart,
+
+horror arises from it, and people don't realize it.
+
+fools don't know the benefits, fools can't see the law,
+
+At that time he was a blind dark one: anyone who can be conquered by idiots. "
+
+This is also "inhabiting there" in danger.
+
+This was said by the Blessed One [SN.3.2]: "The King! When the three laws within
+a man arise, disadvantage, suffering, and restlessness arise. Which three are
+there? King! When the greed within the man himself arises, disadvantages,
+sufferings, and restlessness arise; lord! When the aggression within the man
+himself arises... (Omitted) King! When the foolishness within the man arises,
+disadvantages, sufferings, and restlessness arise, Lord! When these three
+methods within the man arise, disadvantage, suffering, and restlessness arise. "
+
+"Greed, aversion, foolish, disgusting man,
+
+hurt oneself, like many fruits [damage] its tree heart. "
+
+This is also "inhabiting there" in danger.
+
+This was said by the Blessed One: [SN.10.3]
+
+"From here, there are greed and anger, from here unhappiness, happiness, and
+body hair stand up.
+
+arises from here and then seeks intentionally, like a little boy letting a crow
+go. "
+
+This is also "inhabiting there" in danger.
+
+"modulation of distress", modulation of distress, surrender of distress, death
+of distress, thought of distress, cessation of distress, immortality, and
+Nibbana. "It is a self-certification method for distress adjustment.
+
+"Master! Please tell me the path": ""Please tell me the path", "Correct path
+(right path), follow path, path not upside down, path not inconsistent, path
+path as its meaning , The path of the Dhamma following the Dhamma, the
+perfection of the precepts, the guardian of the roots, the right amount of
+dietary knowledge, the specialization of sobriety, the mind and the right
+knowledge, the four mindfulness, the four righteousness, the four divine feet,
+the five roots, the five powers, the seven enlightenment factors, The path to
+support, Nibbana, and the path leading to Nibbana, please tell, please explain,
+please teach, please inform, please establish, please uncover, please analyze,
+please clarify, please explain." In order to invite you to tell the Taoist
+deeds. "Master", that person calls the Blessed One. Or, everything that
+explains, teaches, informs, establishes, uncovers, analyzes, clarifies, and
+explains that all that should be practiced is excellent and auspicious , The
+kind, the non-faulty." For the teacher! Please tell me the truth.
+
+"Bolotimucha or even concentration": ""Bolotimucha" is the foundation of
+abstinence, the [self] inhibition of behavior, self-control entrance, good law
+and so on to (reach) the head. Or even concentration", that is the mind's
+cessation, stability, stability, undistracted, stable mind, samatha (stop),
+concentration, concentration, concentration." For Polo Timucha or even
+concentration .
+
+Because of that, Huaren said:
+
+"The discerning person tells the self-evidence method of distress adjustment,
+
+respect the teacher! Please tell me about the Taoism, Polo Timucha or even set.
+"
+
+157. If you don't become unstable with your eyes, your ears should be isolated
+     from the village theory.
+
+should not be greedy in taste, and should not take any [things] in the world as
+one's own.
+
+"If you don't use your eyes to become unstable": What is a person with unstable
+eyes? Here, there is a category of people who have eye restlessness: "Those that
+should be seen become unseen, and those that should be crossed become seen.
+"From gardens to gardens, from gardens to gardens, from villages to villages,
+from towns to towns, from cities to cities, from countries to countries, from
+localities to localities, he did so in order to see long and irregular parades.
+Those who engage in it, such are those with restless eyes.
+
+Or, when the bhikkhu is a visitor to his home, a walker on the street, he walks
+unprotected: he looks at the elephant, at the horse, at the car, at the
+infantry, at the women, at the men, at Looking at the boy, looking at the girl,
+looking at the market, looking at the door of the house, looking at the top,
+looking at the bottom, looking at all directions, this is also a restless eye.
+
+Or, after seeing color with his eyes, the bhikkhu becomes a grasper of
+appearance and a grasper of details, because when he stays at the base of his
+eyes, greed, sorrow and evil will flow in. He does not act according to his
+self-control. If you don't protect the roots of the eyes, and do not achieve
+self-control [SN.35.120] on the roots of the eyes, this is also a person with
+unstable eyes.
+
+Or if some Samana and Brahmin masters received food offered by faith, they lived
+in performers who performed and watched like this, namely: dancing, singing,
+music, drama, speaking about ancient times, handbells, cymbals, drums, magic,
+and iron balls. , Bamboo stick play, stunts, elephant fighting, horse fighting,
+buffalo fighting, bull fighting, goat fighting, ram fighting, rooster fighting,
+quail fighting, club fighting, fist fighting, wrestling, exercises, army
+formation, army formation, military parade [DN .1, paragraph 13] etc., this is
+also a restless person.
+
+How can you not be a restless person? Here, when the bhikkhu is a visitor to his
+home and a walker in the street, he walks in a protective manner: he does not
+look at the elephant, the horse, the car, the infantry, or the women as he
+walks. No noteLooking at men, not boys, men and women, the market, the door of
+the house, the upper part, the lower part, and the everywhere. This is not a
+restless person.
+
+Or, after the bhikkhu sees the color with his eyes, he does not become a grasper
+of the form or a grasper of the subtle form, because when he stays at the root
+of the eye, greed, sorrow and evil will flow in, and he will act according to
+his self-control , Protect the roots of the eyes, and achieve self-control on
+the roots of the eyes, so that it is not a person who is unstable.
+
+Or, after some Samana and Brahmin masters received the food offered by faith,
+they lived in those who did not perform and watch like this, that is: dance,
+singing, music, drama, talk about ancient times... (omitted) military parade,
+etc. The avoider of erotic performance watching is not a restless person.
+
+"Do not become unstable with the eye": "He should let go of the unstable state
+of the eye, he should be driven away, it should end, and it should go to
+non-existence. It should have been separated from the unstable state of the eye,
+and abstained. Absolute, quit, renunciation, renunciation, liberation,
+renunciation, he should live with the heart of renunciation and restraint." To
+not become unstable with the eyes.
+
+"Ears should be isolated from the village theory": Village conversations are
+called thirty-two animal theory, namely: king theory, thieves theory, minister
+theory, army theory, fear theory, war theory, food theory, drink theory,
+clothing theory Theory, Bedding Theory, Garland Theory, Odor Theory, Proli
+Theory, Village Theory, Town Theory, City Theory, Land Theory, Woman Theory,
+[Man Theory,] Hero Theory, Street Theory, Water Well Theory, Ancestral Spirit
+Theory, Various Theories , World origin theory, ocean origin theory, if there is
+no matter [DN.1, paragraph 17], etc. "The ear should be isolated from the
+village theory": "The ear should be isolated from the village theory, it should
+be prevented, it should be self-control, it should be guarded, it should be
+protected, it should be closed, it should be cut off." It should be isolated
+from the village theory.
+
+"You should not be greedy in taste": ""In taste (in taste)", there are root,
+branch, peel, leaf, flower, fruit, sour, sweet, bitter, spicy Taste, salty,
+alkaline, sour, astringent, pleasant, unpleasant, cold, and hot. Some Samana and
+Brahman are taste-seekers. They wander around for the best taste with their
+tongues. They get the sour taste. After getting no sour taste, after getting no
+sour taste, then asking for sour taste... (omitted) after getting cold and
+getting hot again, getting hot and getting cold again, they often ask again and
+again because of dissatisfaction after getting it. Greedy, craving, tied,
+fascinated, tainted, attached, fixed, obstructed in the taste of the desired
+taste, for him, this taste is cut off or cut off... (omitted) ) After being
+burned by the fire of wisdom, he eats food after inspection: "Neither for
+pleasure... (Omitted) No fault, live in peace."
+
+For example, if he applies oil to the sore, it is only for the purpose of
+[growing flesh], or if he applies oil to the axle, only for the purpose of cargo
+transportation, or if he eats the food of his son's meat only for the desert In
+the same way, the monk ate food after careful examination: "Neither for
+pleasure... (Omitted) No fault, live in peace." He should let go of the craving
+for taste, he should be driven away, it should be ended, and it should be made
+to cease to exist. He should have been separated from taste and thirst, has
+renounced, has renounced, has renounced, has renounced, has been liberated, has
+renounced bondage, he should live with the heart of separation and limitation.
+"Because you should not follow greed in terms of taste.
+
+"And you shouldn't take any [thing] in the world as your own": "There are two
+kinds of self-attachment: [because] thirsty self-holding and [cause] seeing
+self-holding.... (Omitted) This is The thirsty self-holding...(slightly omitted)
+This is the seeing self-holding. To cut off the thirsty self-holding; to cut off
+the thirsty self-holding, you should not regard your eyes as your own...ears...
+Nose...Tongue...Body...Colors...Voices...Smells...Smells...All
+touches...Dhamma...Family...Group (congregation)...Residence...Profit...Fame
+…Praise…le…clothes…food…housing…patient's necessities and medical
+necessities…the world of desire...the world of color...the world of
+colorlessness...the world of desire...the world of color...the world of
+colorlessness... I want to have...I don't want to have...I don't want to
+have...One aggregate has...The four aggregates have...The five aggregates
+have...the past...the future...now...should not take what you see, hear, or feel
+, The dhammas that can be understood as their own, should not be grasped, should
+not be clinging, should not be attached. "Any [thing]", any form, feeling,
+thinking, behavior Such, knowledge and the like. "In the world", in the world of
+the suffering world... (omitted) in the world." For and should not regard any
+[thing] in the world as one's own.
+
+because of that, The Lord said:
+
+"If you don't become unstable with your eyes, your ears should be isolated from
+the village theory.
+
+should not be greedy in taste, and should not take any [things] in the world as
+one's own. "
+
+158. When being touched, the bhikkhu should not cry no matter where he is,
+
+should not pray for existence, and should not tremble in fear.
+
+"When being touched": ""touch", contact with disease. Will be touched, tortured,
+combined, possessed by contact with disease; will be touched, tortured,
+combined, possessed by contact with eye diseases; be touched by ear
+diseases...by nose Illness...by tongue...being body...being head...being outer
+ear...being mouth...being tooth...being coughed...being gasping...being outer
+nose...being fever... ...Being old...being sick...being unconscious...being
+diarrhea...being abdominal pain...being cholera...being leprosy...being
+tumor...being ringworm...being lung disease...being epilepsy...being wheeled
+Ringworm...mange...being rheumatoid...being scratched (a type of skin
+disease)...being dry and cracked...being blood gall bladder...being
+diabetic...being hemorrhoids...being rashes (boils)...being hemorrhoids and
+fistulas (Ulcer)...disease caused by gallbladder...disease caused by
+phlegm...disease caused by wind...disease caused by [three]...disease caused by
+changes in seasons...incorrect Illness caused by posture... Illness struck
+suddenly... Illness caused by kamma...being cold...being hot...being
+hungry...being thirsty [...being feces...being urine] ...Will be touched,
+tortured, combined, possessed by the fly mosquito, wind, sun, and snake." When
+being touched.
+
+"Bhikkhus should not be weeping wherever they are": "It should not be done,
+should not be produced, should not be produced, should not be caused to arise,
+should not be caused to give birth to a state of lament, weeping, crying,
+crying, lamentation, The state of weeping, speech, unhelpful words, muttering,
+weeping, weeping, weeping, weeping. "Wherever it is", no matter where, no matter
+where, no matter where, inside or outside or inside and outside." Bhikkhus
+should not weep wherever they are.
+
+"Should not pray for existence": "There should not be desire for existence;
+there should be no desire for sex; there should not be hope for colorlessness,
+he should not hope; he should not pray for existence."
+
+"And you shouldn't tremble a lot when you are afraid": "The one who is afraid",
+the one who is terrified in one aspect is the one who is afraid. This was said
+by the Blessed One: "If it is impossible to abandon the terror and fear, what if
+it comes?" The external objects are said to be lions, tigers, leopards, bears,
+dogs, wolves, bison, horses, elephants, snakes , Scorpion, centipede, or thieves
+or gangsters who do bad things or are ready to do bad things. Or the horror of
+other behaviors is called the horror of waiting for the heart, the stiff state
+of horror, the horror of the body, the horror of the heart: the horror of life,
+the horror of old, the horror of sickness, the horror of death, the horror of
+the king Terror, the terror of thieves, the terror of fire, the terror of water,
+the terror of self-reprimand, the terror of others, the terror of sticks, the
+terror of horror, the terror of waves, the terror of dragons, the terror of
+whirlpools, the terror of crocodile Fear [AN.4.122], the horror of livelihood,
+the horror of dishonesty, the horror of cowardice in the group, the horror of
+intoxication, the horror of horror of evil, the stiff state of horror, the
+erection of body hair, the fear of fear of the heart. "And when you are afraid,
+you should not tremble greatly": After seeing or hearing the fear, you should
+not tremble, you should not tremble (strong tremor), you should not tremble
+greatly (strong tremor), you should not be afraid, you should not be afraid
+(fear upward ), should not be afraid (fear all over), should not be afraid,
+should not come to fear, should be not timid, not frightened, not frightened,
+not fleeing, should live in the fear of fear, have left The hair is erected.
+"Because and in fear, there should be no tremors.
+
+Because of that, the Lord said:
+
+"When being touched, the bhikkhu should not weep no matter where he is,
+
+should not pray for existence, and should not tremble in fear. "
+
+159. And for food, drink, hard food, clothes,
+
+should not be stored after getting, and should not shudder when not getting
+those.
+
+"For food, drinks, hard food and clothes": ""For food", rice, porridge, noodles,
+fish, and meat. "For drinks", there are eight kinds of beverages: mango juice,
+Yanfu juice, and Kuro juice , Plantain juice, honey juice, grape juice, lotus
+root juice, quite sand juice. The next eight kinds of beverages: Shushangmi
+juice, date juice, red date juice, ghee beverage, [sesame oil, etc.] oil
+beverage, milk beverage, [cool] porridge beverage, [vegetable juice, etc.] juice
+beverage. "For hard food", hard food made of powder, biscuit hard food, root
+[type] hard food, leather material [type] hard foodFood, leaf [type] hard food,
+flower [type] hard food, fruit [type] hard food. "For clothes", there are six
+types of clothes: linen, cotton, silk, sweater, hemp, and hemp. "For food and
+drinks, hard food and clothes."
+
+"After you get it, you should not store it": ""After you get it", "After you get
+it, after you get it, after you get it, after you have it, after you receive it:
+no tricks, no talk, no hint, no sarcasm, no profit Nourishment in exchange for
+other benefits, don't use wood to give things, don't use bamboo to donate
+things, don't use leaves to donate things, don't use flowers to donate things,
+don't use bathing to donate things, don't use washing powder to donate things,
+don't use clay to donate things, Don't give things with teeth, don't give things
+with cleansing water, don't use flattery, don't talk with words, don't flatter,
+don't slander behind (Sri Lanka version), don't use homesteading, don't use
+animal life, don't use astrology, don't With [being] an envoy, not [when]
+sending an envoy, not [when] running errands, not using medical treatment, not
+building a new job, not giving food or food in return, and not giving anything
+by giving, he is righteous with the law After getting, after getting, after
+getting, after having, after receiving." After getting. "Should not be stored",
+storage of food, storage of beverages, storage of clothes, storage of cars,
+storage of bedding, storage of spices Storage, the storage of property, should
+not be, should not be produced, should not be produced, should not be caused to
+arise, and should not be caused to arise." It should not be stored after it is
+obtained.
+
+"And you should not tremble when you don't get those": "I didn't get food, or I
+didn't get drinks, or I didn't get clothes, or I didn't get home, or I didn't
+get groups, or I didn't get shelter, or I I didn't get a profit, or I didn't get
+a reputation, or I didn't get praise, or I didn't get pleasure, or I didn't get
+clothes, or I didn't get group food, or I didn't get a place to live, or I
+didn't get the patient's needs and Medical necessities, or if I did not get a
+patient caregiver, he should not tremble, should not be afraid, should not be
+scared, should not be afraid, should not come to fear: "I am a non-famous
+person." Should be a person who is not timid or panic , Those who don't
+frighten, those who don't run away. They should live where they have given up
+their fear of fear, and have left their bodies erected." For and when you don't
+get those, you should not shudder.
+
+Because of that, the Lord said:
+
+"For food, drink, hard food, clothes,
+
+should not be stored after getting, and should not shudder when not getting
+those. "
+
+160. To become a meditator instead of a wanderer, one should stop regretting and
+     should not let go,
+
+While the seat is in the sleeping area, the monk should live in a quiet place.
+
+"Become a meditator rather than a wanderer": ""Meditator", "Become a meditator
+with the first jhana, and also with the second jhana as a meditator, and with
+the third jhana as a meditator, and with the The four meditations become
+meditators, they also become meditators with seeking and serving meditations,
+they also become meditators with no-seeking only [has] serving meditations, they
+also become meditators with happiness meditation, and they also become
+meditations with unhappy meditation. The meditator also becomes a meditator with
+walking meditation with joy, and a meditation with walking meditation with
+mindfulness, a meditation with walking meditation with music, and a meditation
+with walking meditation with peace. He also becomes a meditator with emptiness
+meditation, a meditator with non-phase meditation, a meditator with unwilling
+meditation, a meditator with mundane meditation, and a meditator with
+transcendental meditation. He is Zen lovers, singular practitioners, and
+admirers of the highest interests." For meditators.
+
+"not a wanderer", how is a wanderer? A certain type of people here are
+wandering: from gardens to gardens, from gardens to gardens, from villages to
+villages, from towns to towns, from cities to cities, from country to country,
+from place to place. He lives in long parades, not Those engaged in regular
+parades. This is the wanderer.
+
+Or the bhikkhus are wandering in the monk's garden: there is no reason for
+benefit, no reason for lifting the ground, walking from the monk's room to the
+monk's room without silence, from the residence to the residence, from the
+half-roofed house to the half-roofed house, From tall buildings to tall
+buildings, from bungalows to bungalows, from caves to caves, from caves to
+caves, from huts to huts, from heavy pavilions to heavy pavilions, from
+observation decks to observation decks, and from tents To the tent, from the
+shed to the shed, from the lecture hall to the lecture hall, from the round
+house to the round house, from the tree to the tree, or where the bhikkhus sit,
+he walks to that place, where he becomes The second place, or the second place
+becomes the third place, or the third place becomes the fourth place. There were
+a lot of obscene words, namely: king theory, thieves theory, minister theory,
+army theory, fear theory, war theory, food theory, drink theory, clothing
+theory, car ride theory, bedding theory, wreath theory, smell theory, Pro-li
+theory, village theory, town theory, city theory, land theory, woman theory,
+[man theory,] hero theory, street theory, water well theory,
+ancestorSpiritualism, various theories, theories of the origin of the world,
+theories of the origin of the oceans, etc., this is also a wanderer.
+
+"Not a wanderer", he should abandon the wandering nature, should be driven away,
+should end, should make it go to non-existence. He should have been separated
+from wandering, abstained, abstained, detached, detached, detached, detached,
+detached, detached, detached from bondage, he should live away from being
+restricted, should practice, should act, should act, should Turn up, should
+guard, should survive, should survive. Should be a person who is willing to sit
+alone, a person who likes to sit alone, a practitioner of inner cessation, a
+person who does not despise Zen, has a viewer, and gains an empty house [MN.32,
+paragraph 334], a meditator, a Zen lover, The practitioner of unity, the admirer
+of the highest interest. "To become a meditator rather than a wanderer.
+
+"Should stop regretting and should not let go": ""Regret", the improper behavior
+of the hands is regret, and the improper behavior of the feet is also regret,
+and the improper behavior of the hands and feet is also regret. ) Is
+appropriate, appropriate is considered improper, innocent is considered to be
+sin, sin is considered to be innocent, any regret like this, path of regret,
+state of regret, regret of heart The confusion of mind is called regret.
+
+In addition, regret, heart regret, and confusion of mind arise from two factors:
+what is done and what is not done. How do things that have been done and things
+that have not been done cause regret, heart regret, and confusion of mind? "I
+did the evil deeds, but I didn't do the good deeds. "He has regrets, regrets in
+his heart, and confusion of mind; "I did the evil deeds of speech, and I did not
+do the deeds of good language." "He has regrets, regrets in his heart, and
+confusion in his mind; "I did the evil deeds, but not the good deeds...
+(Omitted) I did the killing, and I didn't do the quit of killing. "He
+regrets...(slightly) confusion of meaning; "I did it without giving it... I did
+it for lewdness,... I did it for the liar... I did it for the vicious
+language... I did... Miscellaneous language was done by me... Greed was done by
+me... Malice was done by me... I did wrong view by me, right view was not done
+by me. "He has regrets, heart regrets, and confusion of mind. This is what has
+been done and what has not been done, and regrets, regrets, and confusion of
+mind arise.
+
+Or, "I am not a full branch in the ring. "He has regrets, heart regrets, and
+confusion of mind; "I am not a guardian of the roots." "…… (omitted) "I am not a
+person who knows the right amount of food. "... "I am not a sober person. "...
+"I don't have mindfulness and right knowledge. "... "Satisfaction has not been
+practiced by me. "... "Sizhengqin was not studied by me. "... "The four gods
+have not been trained by me. "... "The five elements have not been studied by
+me. "... "The five powers have not been studied by me. "... "The seven
+enlightenment factors have not been studied by me. "... "The eight holy paths
+have not been practiced by me. "... "The suffering is not known to me. "... "The
+episode was not cut by me. "... "The Tao has not been studied by me. "... "Mie
+was not testified by me. He had regrets, regrets in his heart, and confusion in
+his mind. "Should stop regretting", "Regret he should stay away, should stop
+(abstain), should avoid, should give up, should be driven away, should end,
+should make it go to non-existence. He should have been separated from regret,
+abstained, quit, renounced, renounced, renounced, renounced, he should live with
+the heart of separation and limitation. "I should stop regretting.
+
+"Should not let go", one should be a respectful author, a regular author, a
+non-stop author, a habit of not being stuck, a person who does not neglect his
+desires, a person who does not neglect responsibility, and a person who does not
+let go of good law. "How can I complete the unfinished precepts, or can I fund
+the completed precepts with wisdom?" "Where he has desire, diligence, courage,
+hard work, fortitude, non-shrinking, mindfulness, righteous knowledge,
+enthusiasm, diligence, establishment, practice, and perseverance in good Dhamma;
+how can I complete the unfinished concentration... …(Omitted) How can I complete
+the unfinished wisdom accumulation... liberating accumulation... liberating
+wisdom seeing accumulation... "How can I perceive the suffering of the unknown,
+or I can abandon the pollution that has not been renounced, or I Can I practice
+the way I have not practiced, or can I testify without testifying? "Where he has
+desire, diligence, courage, hard work, fortitude, non-shrinking, mindfulness,
+right knowledge, enthusiasm, diligence, establishment, practice, and
+perseverance in good law. "Because we should stop regretting and should not let
+go.
+
+"And when the seat is in the sleeping place, the monk should live in a quiet
+place": ""And", the continuation of the sentence... (omitted). "The place where
+he sits is called a seat: bed, chair, cushion, small cushion , Leather cushions,
+grass cushions, leaf cushions, straw cushions. Houses, dwellings, half-roof
+houses, tall buildings, flat houses, and caves are called sleeping places.
+"Before you sit on the sleeping place."
+
+"The monk should liveIn a place where there is little voice", it should be in an
+atmosphere of low sound, quiet, away from people, living alone, suitable for
+sitting alone, walking in the house, walking around, living, moving, turning,
+guarding, making existence, making existence. In order to sit and sleep, the
+monk should live in a quiet place.
+
+Because of that, the Lord said:
+
+"Being a meditator instead of a wanderer, one should stop regretting and should
+not let go,
+
+While the seat is in the sleeping area, the monk should live in a quiet place. "
+
+161. You should not sleep more, you should stay awake and be enthusiastic,
+
+Laziness, deceit, laughter, entertainment, lust, decoration, he should give up.
+
+"Should not have more sleep": "Day and night [minutes] should be divided into
+six parts and the five parts should be towards the Tao, and one part should be
+lying down." This means that you should not sleep more.
+
+"Should stay awake and become an enthusiastic person": "Here, during the
+daytime, the monk cleanses the mind from obstacles by walking and sitting
+peacefully. In the first night, by walking and sitting peacefully, the mind
+should be purified from obstacles. In the midnight period , With the right side
+as a lion lying, put the [left] foot on the [right] foot, have mindfulness and
+righteous knowledge, and think about it. In the later night, you should walk and
+sit peacefully to make the mind free from obstacles Method of
+purification.[SN.35.120]
+
+"should stay awake", "should keep, should keep completely, should obey, should
+bend to obey, should be totally obedient, should be awake towards obey. "Because
+you should stay awake.
+
+"Enthusiastic", enthusiasm is called vitality, which is the stimulation of the
+vitality of the heart, diligence, hard work, courage, diligence, effort,
+diligence, courage, persistence, non-relaxation, the state of courage, the state
+of will not give up, and no negligence State of responsibility, support of
+responsibility, vitality, root of vitality, power of vitality, positive
+progress. To reach (to have), to reach (to have), to enter, to enter, to have
+enough, to have enough, to have this enthusiasm, he is called an enthusiast. "To
+stay awake and become enthusiastic.
+
+"Laziness, deception, laughter, entertainment, lust, decoration, he should give
+up": "Laziness": the lazy person is the state of laziness whose purpose is
+laziness, and the heart is realized by laziness [defeated]; laziness is laziness
+Laziness for the purpose. "Deception": The act of deception is called deception.
+Here, after a certain type of person has carried out evil deeds with the body...
+(omitted) in terms of... Desire: "May he not know me!" Intention: "May he not
+know me!" Say: "May he not know me!" words [AN.6.45]; physical effort: "May he
+not know me!" Any situation like this [deception,] deception, transgression
+(violation), deception, concealment, secret confusion, concealment, keeping
+secret, concealing (keep secret all over), covering, covering all over, unclear
+behavior, non-disclosure Acts and cover up evil acts are called deception.
+"[Aloud] laugh": Here, a certain type of people grin excessively. This is said
+by the deity: "Monks! In the law of the saints, this is a child, that is:
+excessive grinning. [AN.3.108]"
+
+"Entertainment": There are two kinds of entertainment: physical entertainment
+and verbal entertainment. What is physical entertainment? They play with
+elephants, horses, carts, bows [and swords and other weapons], octagonal chess,
+ten-eye chess, and aerial chess. Hopscotch is also played with stone blocks,
+dice boards, wooden sticks, hands, dice, leaf flutes, toy hoes, and somersaults.
+Play with toy windmills, toy measuring instruments, car games, toy bows and
+arrows, guess words, guess ideas, and imitate flaws [DN.1, paragraph 14 ] This
+is physical entertainment. What is verbal entertainment? The sound of playing a
+drum with a mouth, the sound of a drum being smeared with the mouth [imitating]
+the sound of a drum that has been conquered by the mouth [imitating] the sound
+of a bend of the lips, the playing of a drum with the mouth [imitating], the
+mouth [imitating] The hollow sound of drums, loud cheers, commotion at dancers,
+singing, and joking are verbal entertainment.
+
+The law of lust is the law of lewdness, the law of evil (village law), the law
+of evil, vulgarity, washing with water after friendship (waterside), secret,
+one-to-one etc. For what reason is it called the law of lust? "It belongs to two
+people who are greedy, greedy, full of desire and greed (leakage), entangled,
+the heart is overwhelmed, and two people are in the same way." For that reason,
+it is called the law of lust. If there are two quarrelers, they are called
+"prostitutes"... (omitted); there are two disputers...two discussants...two
+disputers...two defenders... There are two speakers...There are two
+interlocutors, and they are called "prostitutes." same, "It belongs to two
+people who are greedy, greedy, full of desire and greed (leakage), entangled,
+the heart is overwhelmed, and two people are in the same way." For that reason,
+it is called the law of lust.
+
+"Decoration": There are two kinds of decoration: there are decorations for lay
+people and decorations for monks. What is the decoration of the family? Hair,
+beard, wreath, spices, balm, accessories (璎珞), accessories (璎珞), clothes,
+bedding, headscarf, massage, rubbing, bathing, rubbing, mirror, applying eye
+ointment, wreath [spices] balm, Face powder, face cream, bracelets, ribbon hair
+accessories, sticks, tubes, swords, parasols, colorful shoes, buns, jewelry,
+whisks, long and short white clothes (Thailand version), etc. This is the
+decoration of the layperson. What is the decoration of monks? The decoration of
+clothes, the decoration of the bowl, the decoration of the bedding, the
+decoration of the rotten body or the decoration of necessities, beautification
+(solemnity), desire to dress up, good-looking, greedy state, greedy state,
+impetuous state, impetuous and shallow, this It is decoration for monks.
+
+"Lazy, deceived, laughed [out loudly], entertained, lustful, decorated he should
+give up": "Lazy, deceived, laughed out loud, entertained, lust, decorated, have
+followers, surrounded by people, have necessities (Materials) He [all] should
+abandon it, should be driven away, should end, should make it go to
+non-existence." For laziness, deception, [out loud] laugh, entertain, lust, be
+decorated, he [all] should Give up.
+
+Because of that, the Lord said:
+
+"You should not sleep more, you should stay awake and become enthusiastic,
+
+Laziness, deceit, laughter, entertainment, lust, decoration, he should give up.
+"
+
+162. Magic (Ata Po), dreaming, phasing, and astrology should not be engaged.
+
+beast sounds, pregnancy techniques, medical techniques, believers should not
+engage in it.
+
+"Magic (Atapo), horoscopes, horoscopes, and astrology should not be used":
+Magicians are engaged in magic: When the city is under siege or a war arises,
+they arouse in the enemy, the enemy, the enemy Disaster; cause harm; cause
+disease; cause disease; cause abdominal pain; cause cholera; cause diarrhea.
+Magicians like this engage in magic.
+
+The dreamers told the dream: Anyone who sees a dreamer before noon, he has a
+reward like this; whoever sees a dreamer at noon, he has a reward like this;
+anyone who sees a dreamer in the evening, he has A retribution like this;
+wherever it divides in the first night... (omitted in the middle) where it
+divides in the middle of the night... whoever divides in the latter night...
+whoever lies on the right side... whoever lies on the left side... whoever lies
+on the right side ...Everyone lying upside down...everyone seeing the
+moon...everyone seeing the sun...everyone seeing the sea...everything who sees
+Mount Xumi...everyone seeing an elephant...everything a horse Seeing the
+carriage...everything that sees infantry...everything that sees army
+formations...everything that can be pleasant gardens...anything that can be
+pleasant forests...anything that can be pleasant land...seeing a lotus pond that
+can be pleasant Or, he has a reward like this. Like this, the dreamers inform
+the dream.
+
+The occupiers inform the phases: the orb phase, the rod phase, the clothing
+phase, the sword phase, the arrow phase, the bow phase, the weapon phase, the
+woman phase, the man phase, the girl phase, the boy phase, the female slave
+phase, the male slave phase, Elephant, horse, buffalo, cow king, bull, goat,
+ram, chicken, quail, lizard, lotus peel, turtle shell, and deer are the same.
+"Accounters like this tell the phase.
+
+Astrologers told the constellations: "There are twenty-eight constellations.
+This constellation should be entered by the writer, this constellation should be
+tied to the headpiece, this constellation should be made for marriage, and the
+transport of the seeds of this constellation should be made. This constellation
+cohabitation should be entered." Astrologers like this told the constellations.
+
+"Magic, astrology, astrology, and astrology should not be engaged": "Magic,
+astrology, astrology, astrology should not be engaged in, should not be
+practiced, should not be practiced, should not be turned after being held, or,
+It should not be studied, should not be memorized, should not be understood,
+should not be discerned, and should not be dedicated." It should not be engaged
+in magic, dreaming, phasing, and astrology.
+
+"Believers should not engage in animal sounds, pregnancy techniques, and medical
+skills.": The animal sounds are called animal language. Zhan beast whispers tell
+beasts: "They know the roar and call of birds or four-legged beasts." Like this,
+Zhan beast whispers tell beasts. They use pregnancy techniques to make the fetus
+live, and the fetus does not live there for two reasons: with [parasitic] worms
+or with wind shaking. Herbs are given to defend against insects or wind sway,
+and like this, they use pregnancy techniques to live the fetus. There are five
+types of treatments for "treatment": ophthalmology, surgery, internal medicine,
+exorcism, and pediatrics. "Believers", believers in the Buddha, believers in the
+Dhamma, believers in the Sangha. He regards the Buddha as his own, or the Buddha
+holds that person. This was said by the Blessed One: "Monks! Bhikkhus who are
+deceitful, stubborn, slanderous, hypocritical, tall and uncertain, monks! Those
+monks are not my believers, monks! Those monks have left this law and law, and
+those monks do not come to grow, grow, and expand in this law and law. But,
+monks! Bhikkhus who are not deceitful, talkative, strong, not stupid, and kind,
+bhikkhus! Those monks are my believers, monks! Those monks did not leave this
+law and law, but those monks came to grow, grow, and expand in this law and law.
+"
+
+"Cunning, stubborn, false talk, hypocrisy, slow, uncertain,
+
+They don't grow in the law taught by the Enlightened One,
+
+Those who are not deceitful, talkative, sturdy, not rigid, good-natured,
+
+They grow in the Dhamma taught by the Enlightened One. "[AN.4.26]
+
+"Beast sounds, pregnancy techniques, medical techniques, believers should not
+engage in": "Beast sounds, pregnancy techniques, medical techniques, I [willing]
+[all] should not be engaged in, should not be bent to engage in, should not be
+fully engaged in Should be oriented towards engaging in, should not be
+practiced, should not be practiced well, and turn around after being held, or
+should not be learned, should not be remembered, should not be understood,
+should not be discerned, and should not be devoted." For the beast voice,
+pregnancy technique, Believers should not engage in medical skills.
+
+Because of that, the Lord said:
+
+"Magic (Ata Po), dreams, signs, and astrology should not be used either,
+
+beast sounds, pregnancy techniques, medical techniques, believers should not
+engage in it. "
+
+163. You should not tremble with accusations, and bhikkhus should not become
+     high or slow in complimenting.
+
+Greed and stinginess, anger and divorce he should get rid of.
+
+"Should not tremble with accusations": "Some people here are either born, or
+surnamed, or good family, or beautiful as a lotus, or property, or research
+(acquisition), or career, or Ingenious work, either in the clear (academic), or
+in the heard, or in the debate, or in the rebuke of something, they accuse,
+scold, and reprimand, when they are accused, scolded, reprimanded, they should
+not be blamed, Scolding, reprimanding, not complimenting, trembling with no
+praise, trembling (strong tremor), big tremor (strong trembling), fear, fear
+(fear upward), fear (fear all over), horror, fear, should To become a person who
+is not timid, scared, scared, or fleeing, one should live where he has given up
+terror and fear, and has stood up from his body." You should not tremble in
+response to accusations.
+
+"Bhikkhus should not be high or slow": "Some people here are born, or surname,
+or good family, or beauty as a lotus, or property, or research (acquisition), or
+career, Either by skill, or by the bright (academic), or by what they heard, or
+by their eloquence, or by something. They praise, admire, praise, praise, and
+when they are praised, praised, praised, praised, they do not Should be praised,
+praised, praised, praised and praised, arrogant, arrogant, [made fortitude,]
+stubborn (arrogance), should not be caused by that, and should not be stiff and
+very rigid because of that Those who hold their heads high." Complimenting for
+the monk shouldn't be high or slow.
+
+"Greed and stinginess, anger and divorce he should get rid of": "Greed", that is
+the state of greed, greed, greed, greed, stained, stained state, greed, greed
+and bad roots. There are five kinds of stinginess: [to] stinginess in
+residence... (omitted), this is called stinginess. "Anger", that is the heart's
+anger, hostility, disgust, hostility, anger, anger, anger, aversion, anger,
+evil, heart aversion, anger, anger, anger, state of anger, anger , Anger, state
+of anger, aggression, anger, state of anger, hostility, hostility, cruel anger,
+rage, displeased heart [this is called anger]. "Separated language", here, a
+certain type of person is a divorced speaker. After he hears it from here, he
+speaks there to separate these people, or he hears it from there and speaks here
+to separate those people, like In this way, he is the destroyer of harmony, the
+disseminator of division, the disagreeable, the disagreeable, the disagreeable,
+and the disagreeable speaker. This is called the divorced speaker.
+
+In addition, there are two reasons for divorce: to be cute by desire, or by
+desire for division. How to produce divorce from desire to be cute? For this
+one, I will be cute, I will be agreeable, I will be close, I will be a close
+friend, I will be kind, so that the desire to be cute will produce divorce. How
+to produce divorce with the desire for division? "How will these become all
+kinds, will become separation, will become division, will become two kinds, will
+become spearThe shield will become the second faction, causing it to break, not
+to reunite, and to live in suffering and restlessness. "This is the desire for
+division to produce divorce. "Greed and stinginess, anger and divorce, he should
+eliminate": "Greed, stinginess, anger, divorce, he should be eliminated, should
+be eliminated, should be discarded, should be driven away, should be terminated,
+should be made to go to non-existence. He should get rid of greed and
+stinginess, anger and divorce.
+
+Because of that, the Lord said:
+
+"You should not tremble with accusations, and bhikkhus should not become high or
+slow in complimenting.
+
+Greed and stinginess, anger and divorce he should get rid of. "
+
+164. Should not be involved in buying and selling, no matter where the monk is,
+     he should not make reprimands,
+
+and should not be attached to the village, should not flatter people for gain.
+
+"Should not be involved in business": "Any business that is rejected in the law
+does not exist in the interest here. How is involved in business? Exchange
+together among the five types of [people]: or bowl, or clothing, or any other
+Necessities, making things that can be deceived, or wanting to increase, is
+involved in buying and selling. How to not be involved in buying and selling?
+Exchange together among the five types of [people]: or bowls, or clothes, or any
+other necessities, don't make things that can be deceived , Or do not want to
+increase, this is not involved in trading. "Should not be involved in trading":
+The trading should not be involved in, should not be established, the business
+should be discarded, should be driven away, should be terminated, should be
+allowed to go To nonexistent. He should have been separated from business, quit,
+quit, renounced, renounced, renounced, renounced, he should live with the heart
+of renunciation. "It shouldn't be involved in trading.
+
+"Bhikkhus should not make rebuke no matter where they are": "What is the
+pollution that causes rebuke? Some Samana and brahmins are those with magical
+powers, those with heavenly eyes, and those who know their hearts. They see from
+a distance, not from a close distance. The heart knows the heart. Some gods are
+also those who have magical powers, celestial eyes, and those who know his
+heart. They see from a distance, not from close, and know the heart with their
+heart. They will be due to coarse pollution, or due to moderate pollution, or
+Reprimanded for fine pollution. What is gross pollution? Body evil, speech, and
+mind are called gross pollution. What is medium pollution? Seeking, seeking
+maliciously, and seeking harm, these are called The pollution is moderate. What
+is the fine pollution? Seeking in the family, looking for the land, looking for
+the immortal, looking for sympathy with others, looking for respecting
+reputation, looking for not being scorned, these are called fine Pollution. They
+will not be blamed for coarse pollution, or for medium pollution, or for fine
+pollution. They should not create blame, should not create pollution that causes
+blame, should not be caused, should not be produced, or not It should be made,
+and it should not be made. It should have been separated from the pollution that
+caused the rebuke, has been abstained, has been given up, has been separated,
+has been separated, has been freed, has separated from the bondage, he should be
+separated from the restricted heart And live... "No matter where you are", no
+matter where, no matter where, no matter where, inside or outside or inside and
+outside." No matter where the monk is, there should be no rebuke.
+
+"And should not be attached to the village": How is attachment (attachment) to
+the village? Here, the bhikkhu lives in the village to socialize with his family
+members, sharing joys and sorrows: when they are happy, and when they are
+suffering, he is involved in their affairs and duties [SN.22.3], so It is
+attached to the village.
+
+Or, the bhikkhu puts on his clothes in the early afternoon and takes the mantle.
+He does not guard the body, words, heart, mind, thoughts, and roots to enter the
+village or town in order to beg [SN. 20.10], he was stuck everywhere, hooked
+everywhere, tied everywhere, and came to misfortune and disaster [SN.17.4]
+everywhere, so he was also stuck to the village.
+
+How does it not stick to the village? Here, the bhikkhu lives in the absence of
+communication with his family members, and has different joys and sorrows: not
+when they are happy when they are happy, not when they are suffering when they
+are suffering, he does not involve himself in their affairs and duties, so that
+he does not stick to the village.
+
+Or, the bhikkhu puts on his clothes in the early afternoon and takes the mantle.
+He has guarded the body, the words, the heart, the mind has emerged, and the
+roots have been protected. In order to enter the village or town, he will
+Sticking everywhere, hooking nowhere, tying nowhere, and coming to misfortune
+and disaster from nowhere, this is also not sticking to the village. "And should
+not be attached to the village": "Should not be attached to the village, should
+not be held, should not be tied, should not be tied everywhere. It should be
+non-greed, non-fettered, non-obsessed, innocent It should be separated from the
+greedy, the greedy, and the greedy... (Omitted) You should live as a brahman."
+For and should not be attached to the villagedrop.
+
+"Should not flatter people for profit": What is flattery? Based on the
+respectful reputation, evil desires, desire nature, focus on property, all the
+talks, small talk, conversation, talk, dialogue, entanglement, complete
+entanglement, false talk, complete false talk, flattery, Flattery, eloquence,
+flattery, slander behind the back (Cambodia version), where there is soft
+language, dear language, slow language, non-crude language, this is called
+flattery.
+
+In addition, flattering people in two ways: make oneself in a humble position,
+make others in a noble position and flatter others, or make others in a humble
+position, make oneself stand in a noble position and flatter others. How to make
+yourself humble and make others stand up noble and flatter others? [Thinking:]
+"You are very helpful to me. I rely on you to get clothes, food, shelter, the
+needs of the sick, and medical necessities. Anyone who gives or wants to do it
+thinks that I rely on you. Those who are regarded as you, all my previous names
+from my parents have disappeared to me, because you are known as those who
+frequent [some]'s home like that; those who often visit [some]'s home like
+that." This is to make oneself humble, to make others stand noble and flattering
+others.
+
+How to make others humble, make yourself noble and flatter others? [Thinking:]
+"I am a person of great benefit to you. Because of me, you have turned to the
+Buddha, to the law, and to the Sangha. You are free from killing, free from
+giving and taking, free from adultery, free from false speech, free from For
+those who drink wine, fruit wine, and wine to relax, I will give you
+instructions, give me a lot of questions, explain busa, and build temples.
+However, after you abandon me, you respect, respect, respect, and respect other
+people." Make others humble, make yourself noble and flattering others.
+
+"We should not flatter people for gains": "We should not flatter people with
+gains as a cause, condition, or reason for gains, for gains to arise, to make
+gains familiar to others, and to flatter people. He should give up flattery and
+drive away. It should end, it should be made to cease to exist. It should be
+separated from flattery, abstained, abstained, separated, separated, freed,
+separated from bondage, and he should live with the heart of separation and
+limitation ." Flattering people because they shouldn't be profitable.
+
+Because of that, the Lord said:
+
+"The monk should not be involved in trading, and should not make reprimands no
+matter where,
+
+and should not be attached to the village, should not flatter people for gain. "
+
+165. Bhikkhus should not be boastful and should not speak related words,
+
+should not learn to be arrogant, and should not talk about controversial
+discussions.
+
+"Bhikkhus should not be boasts": "Here, a certain type of people are boasts and
+braggers, who boast and brag: I am a "restricted person", or a "restricted
+person", or a "precept and restrained person" , Or by birth, or by surname, or
+by good family, or by appearance and beauty like a lotus, or by property, or by
+research (acquisition), or by profession, or by skill, or by insight (academic),
+Either by what you have heard, or by arguing, or by something, or "from a noble
+family"[, or "from a large family"], or "from a large wealthy family", or "from
+a rich wealth A monk" [, or "Anyone who is in the same house or a monk is a
+well-known person or a famous person", or "A gainer in clothes, food, shelter,
+patient needs, medical necessities"], or "Teacher ", or "lawyer (law holder)",
+or "speaker", or "live in the woods"... (abbreviated) or "the one who does not
+want to wait to get it", he boasted and showed off. Like. In this way he should
+not boast, he should not show off. Boast that he should give up, should be
+driven away, should end, should make it non-existent. Should have been separated
+from boasting, quit, quit, renounced, already Leaving, being freed, and bound,
+he should live with the heart of being free and restricted." As a monk, he
+should not be a boastful person.
+
+"and should not say related words": What are related words? Here, a certain type
+of people speak related words about clothes, words related to giving food, words
+related to residence, and words related to the needs of patients and medical
+necessities. This is called related words.
+
+Or, using clothes as a cause, food as a cause, shelter as a cause, patient's
+needs and medical necessities as a cause, it is also false to say truth, to say
+that separation is not to say that it is not to be separated, to say that evil
+is also not to be evil, and to say that Non-qiyu also speaks intelligent
+language, which is also called connected language. Or, to teach others the
+Dhamma of Purifying Mind: "Ah! I should indeed hear my Dhamma. After hearing the
+Dhamma, I will be able to become clear and pure. My clear and pure actions can
+produce clarity." This is also called a connected word. "And should not say
+related words": "Even related words about the teachings of the law should not be
+said, should not be told, should not be talked, should not be explained, should
+not be said. Related words should beLet it go, it should be driven away, it
+should be ended, it should be made to cease to exist. He should have been
+separated from the related language, quit, quit, renounced, renounced,
+renounced, renounced, he should live away from being restricted. "For and should
+not say related words.
+
+"You should not learn arrogance": ""Pride", there are three kinds of arrogance:
+physical arrogance, speech arrogance, and heart arrogance. What is physical
+arrogance? Here, a certain type of people come to the Sangha to show physical
+arrogance, come It also shows the arrogance of the body in the group, the
+arrogance of the body in the cafeteria, the arrogance of the body in the
+bathroom, the arrogance of the body in the bath, and the arrogance of the body
+when entering the [vulgar] home. Show the arrogance of the body even when you
+have entered the [vulgar] home.
+
+How does it come to show the arrogance of the body in the Sangha? Here, a
+certain type of people come to the Sangha without being a respecter. When they
+touch the elder monks, they stand, when they touch them, they sit down, stand in
+front of the [elder monks], sit in the front, and sit in the high seats. Sitting
+down, sitting down with his head covered, he stood and talked, waving his arms
+to talk, so that he came to the Sangha to show his arrogance.
+
+How is the arrogance of coming to the group to show the body? Here, a certain
+type of people come to the group to be disrespectful. To the elder monks who
+walk without shoes, he walks in shoes, to those who walk in low places, he walks
+in high places, and to those who walk in the ground, he walks in high places. He
+walked through the passage, stood when touched, sat down when touched, stood in
+front, sat down in front, sat down on the high seat, sat down with his head
+wrapped, he stood and talked, Speaking with waving arms, this is to show the
+arrogance of the body in the group.
+
+How is it to show the arrogance of the body in the cafeteria? Here, a certain
+type of people are not respectable in the cafeteria. He invades the elders and
+sits down, blocking the new bhikkhus with their seats, standing when they touch,
+and sitting down when they touch, sitting in front of them, Sitting down on the
+high seat, sitting with his head covered, he stood and talked, waving his arms
+to talk, so that he showed the arrogance of his body in the cafeteria.
+
+How to show the arrogance of the body in the bathroom? Here, a certain type of
+person is not a respecter in the bathroom. He stands when touched, sits down
+when touched, sits down in front, sits down in the high seat, does not ask for
+permission to put the firewood, does not ask It is allowed to close the door and
+speak with waving arms, which is to show the arrogance of the body in the
+bathroom.
+
+How is the arrogance of the body shown in the bath? Here, a certain type of
+person is not respectable in the bathing place. When he touches the elder monks,
+he jumps in, jumps in front, when touched, he bathes, bathes in front, bathes
+above, when touched, he goes from Out of the water, out of the water in the
+front, out of the water above, this is to show the arrogance of the body in the
+bath.
+
+How is it to show the arrogance of the body when entering the [vulgar] home?
+Here, a certain type of person is not a respecter when entering the [vulgar]
+home, and when he touches the elder monks, he walks, walks in front, and
+[repeatedly] walks from the front of the elder monks after leaving the right
+way. It is to show the arrogance of the body when entering the [vulgar] home.
+
+How is the arrogance of showing the body when you have entered the [vulgar]
+home? Here, when a certain type of people have entered the [vulgar] home, they
+are "Great Virtue!" Please do not [want to] enter" when he is said to enter, as
+"Great Virtue!" Please don't [want to] stand." He stood when he was said to be
+"Da Virt! Please don't [to] sit down." When being said, he sits down, he enters
+when there is no space, he stands when there is no space, and he sits down when
+there is no space, where the inner room of the [vulgar] family is hidden and
+secret : The lay woman, the lay woman, the lay wife, and the lay girl sit down,
+where he enters roughly, and he touches the boy's head. This shows the arrogance
+of the body when he enters the [vulgar] home. This is showing the arrogance of
+the body.
+
+What is verbal arrogance? Here, a certain type of people show verbal arrogance
+when they come to the sangha, show verbal arrogance when they come to the group,
+and show verbal arrogance when they have entered the [vulgar] family. How does
+it come to show the arrogance of words in the Sangha? Here, a certain type of
+people come to the Sangha without being respected. After not asking the elder
+bhikkhus for permission, or without being invited [just] to speak to the
+bhikkhus who enter the monastery, answer questions, and recite the Parati Mucha,
+He stood and spoke, waving his arms to speak, so he came to the Sangha to show
+the arrogance of words.
+
+How does it come to show the arrogance of words in a group? Here, a certain type
+of people come to the group to be disrespectful. After not asking the elder
+bhikkhus for permission, or not being invited [just] to speak to and answer
+questions to the bhikkhus entering the monastery's garden, he stands and speaks,
+waving his arms to speak, Talking to and answering questions to the bhikkhunis,
+Upasai, and Upas who entered the monk's garden, he stood and spoke, waving his
+arms to speak, soIt is coming to the group to show the arrogance of words.
+
+How is it to show the arrogance of speech when you have entered the [vulgar]
+home? Here, when a certain type of people have entered [vulgar] homes, they say
+this to women and girls: "What is the name of this person and the last name of
+this person: Is there milk porridge, food, and hard food? What shall we drink?
+What shall we eat? What will we chew? Or something: what will you do to me? He
+muttered. Anyone who is in such a state of speech, unhelpful words, muttering,
+verbosity, polyphony, and verbosity is the arrogance of the body when he has
+entered the layman. This shows the arrogance of the body.
+
+What is the arrogance of the heart? Here, a certain type of people who are not a
+monk from a noble family consider themselves the same as a monk from a noble
+family with their heart, [a person who is not a monk from a large family family
+is equal to a monk from a large family family with their heart Those who are not
+a monk from a wealthy family have a slow person who consider themselves to be
+equated with a wealthy monk. Those who are not a monk from a wealthy family
+consider themselves the same as a wealthy monk. , Those who are not a teacher
+who are slow are equating themselves with the teacher in their heart. Those who
+do not hold the law are slow... those who do not speak are slow... those who do
+not live in the woods are slow... those who are very begging for food are slow.
+Those who don't wear dung-sweeping clothes, there are slow people...not only
+those who are in three clothes, there are slow people...the people who are not
+begging for food, there are slow people...the people who do not eat after
+eating, there are slow people...very sitting [not lying] There are slow
+people... those who don't live everywhere, those who don't live anywhere are
+equated with those who live everywhere with their minds, those who don't get the
+first jhana are equated with those who have the first jhana with their hearts,
+and those who do not get the second jhana. There are slow people...slow people
+who don't get the third jhana...the slow people who don't get the fourth
+jhana...the slow people who don't get the void and boundlessness...the slow
+people who don't get the boundless knowledge... There is a slow person who does
+not get no possessions...The slow person who does not get any thoughts and waits
+is equal to the person who gets the thoughts and waits. This is the arrogance of
+the heart. "Should not learn", should not learn to be arrogant; should not be
+practiced, should not be fully practiced, and should not be changed after being
+held. Arrogance should be cut off, he should be driven away, he should end, and
+he should make it cease to exist. He should have been separated from arrogance,
+quit, quit, renounced, renounced, renounced, renounced, he should live with the
+heart of separation and limitation. "Because you should not learn to be
+arrogant.
+
+"Should not talk about controversial discussions": "What is a controversial
+discussion? Here, a certain type of people are talking like this: "You don't
+know the law and the law... (Omitted) Please dismantle, if you Yes." This was
+said by the World-Honored One: "Mudan! When there is a controversial argument,
+it can be expected; when it is said, there will be a fall; those who do not have
+self-control; [AN.7.61]". How should we not talk about controversy?
+Controversial discussions should not be discussed, should not be discussed,
+should not be explained, should not be spoken. Controversial discussions should
+be discarded, and should be driven away , It should be ended, it should be made
+to cease to exist. It should have been separated from the controversial
+discussion, abstained, abstained, separated, separated, released, separated from
+the bondage, he should be restricted by separation Stay with your heart."
+Because controversial discussions should not be discussed.
+
+Because of that, the Lord said:
+
+"The monk should not be a boast, and should not speak related words,
+
+should not learn to be arrogant, and should not talk about controversial
+discussions. "
+
+166. It should not be taken away in false speech, deliberate deception should
+     not be committed,
+
+shouldn't be scornful of other people with survival, wisdom, precepts and
+restraints.
+
+"Should not be taken away in false speech": false speech is called false speech.
+Here, a certain type of people go to the hall or the meeting place... (omitted)
+or there are few temptations and therefore deliberately false speech [AN. 3.28],
+this is called false speech. Or, use the three behaviors as liars: just before
+[saying] [mind]: "I will say liars." When speaking [mind]: "I say liars." When
+already said [心想]: "The liar has been said by me." These three behaviors are
+used as liars. Or, with four aspects... with five aspects... with six aspects...
+with seven aspects... with eight aspects as a lie: just before [say] [心想]: " I
+will say liar." When I said [thought]: "I'm talking liar." When I've said it
+[Mind]: "I have said the liar." There is a disagreement (wrong) view, a
+disagreement Believe in forbearance, have the hobby of different attachments,
+have the desire to have different attachments, and have the nature of different
+attachments. These eight behaviors are lie. "Should not be taken away in false
+speech": "Should not be carried away in false speech, should not be taken away,
+should not be carried, should not be carried. He should abandon false speech,
+should be driven away, Should end, Should make it go to non-existence. He should
+have been separated from the false speech, quit, quit, renounced, renounced,
+renounced, renounced, he should live away from being restricted. "Because it
+should not be taken away in terms of falsehood.
+
+"Intentional fraud should not be committed": What is fraud? Here, a certain type
+of people are scammers and scammers. Where there is fraud, fraud, fraud,
+deception, falsehood, pretend, and pretend, this is called fraud. "Intentional
+deception should not be committed": After becoming deliberately deceptive, he
+should not (build), should not produce, should not produce, should not cause it
+to arise, and should not cause it to arise. He should have been separated from
+deceitfulness, abstained, quit, renounced, renounced, renounced, renounced, he
+should live away from being restricted. "For deliberate fraud, it should not be
+done.
+
+"You should not contempt other people with survival, wisdom, precepts and
+restraints": "again", "the continuation of the sentence... (Omitted) This is the
+order of the sentence, which is "you". Here, a certain kind of crude life
+supporter scorns other triumphant life supporters: "How rich this is, he eats
+everything, namely: root seeds, stem seeds, knot seeds, fall seeds, seed seeds
+[for ] Fifth, the hammer with thunderous teeth is also known as Samana! [DN.25,
+Lot 61] He scorned other survivors with that cruel life.
+
+Here, a certain kind of survivor of the wonderful life scorns other survivors of
+cruel life: "This unknown incompetent is not a gainer of clothes, food, shelter,
+the needs of patients, and medical necessities." He said that Sheng Miao Life
+scorns other cruel life supporters. Here, a certain type of people is a wise
+man. He answered the question asked. He thought this way: "I am a wise man, but
+these other people are not wise man." He scorned other people with that wise
+man. Here, a certain type of people are full of restraints. They live and are
+protected by the self-control of Borodim. They have full righteousness and state
+of affairs. They see fear in minor sins, and learn after being upheld at the
+school. He thinks like this: "I They are those who have full restraints, but
+these other monks are those who break the precepts and evil spirits." He scorned
+other people with that restraint. Here, a certain type of people is forbidden to
+have enough: those who live in the woods, or those who often beg, or those who
+wear feces and sweeping clothes, or those who are three-clothed, or the
+second-time beggar, or those who do not eat after eating, or who often sit [not
+lying ], or live everywhere. He thought this way: "I am forbidden to have
+enough, but these other people are not forbidden to have enough." He scorned
+other people with that restriction. "You should not scorn other people with
+life, wisdom, precepts and restraints": "You should not live with bad practices,
+or live better than good, or with wisdom, or restraint, or forbidden to contempt
+and despise other people. Pride should be generated because of that, and should
+not be stiff, very stiff, and head-raising because of that." We should not
+contempt other people with survival, wisdom, precept and restraint.
+
+Because of that, the Lord said:
+
+"Should not be taken away in false speech, deliberate deception should not be
+committed,
+
+shouldn't be scornful of other people with survival, wisdom, precepts and
+restraints. "
+
+167. After hearing many words of Samana or ordinary people, when provoked,
+
+shouldn't say back in a rude manner, because the Silent ones don't fight back.
+
+"After hearing many words of Samana or ordinary people, when you are irritated":
+"When irritated," when you are slandered, rebuked, annoyed, slandered,
+humiliated, or insulted. "Samen" is anything Those who walk into the parade from
+here, enter the parade. "Ordinary people" are Kshatriya, Brahman, Vaisha, Sudra,
+layman, monk, heaven, and people. They will say many undesirable, Unpleasant,
+unpleasant words insult, slander, irritate, anger, hurt, distress, kill, annoy,
+and hurt. Many of their undesirable, unpleasant, and unpleasant words are heard
+and heard , After grasping, after understanding, after discriminating." After
+hearing many words of Samana or ordinary people, when being provoked.
+
+"Should not go back in a rude manner": "'"Crudely", you should not go back in a
+rude and rude manner, you should not go back to arguing, you should not go back
+to the insulting person, and you should not go back to anger the angered person,
+no Should go back to arguing and arguing [者, SN.7.2], should not be arguing,
+should not be arguing, should not be arguing, should not be arguing, should not
+be arguing, arguing, arguing, arguing, arguing, arguing, he should Give up,
+should be driven away, should be terminated, should be brought to non-existence.
+It should have been separated from quarreling, arguing, arguing, arguing,
+dissent, abstaining, quitting, leaving, leaving, liberating , He has been
+separated from the bondage, he should live with the heart of being free and
+restricted."Because it shouldn't be rude and go back.
+
+"Because the silent one does not counterattack": "The silent one", "the greedy
+person has been silent, the greedy...the foolish...angry...hateful... , The
+calmed state, the calmed down state, the extinguished state, the cooled state,
+the departed state, and the cessated state are the silent, silent, extinguished,
+cooler, and halted." is the silent one. "Because the Silents do not
+counterattack": The Silents do not counterattack, wrestling opponents, enemies,
+hostility, they do not produce, produce, do not cause it to arise, and do not
+cause it to arise. "Because the silent ones do not fight back.
+
+Because of that, the Lord said:
+
+"After hearing many words of Samana or ordinary people, when I was provoked,
+
+shouldn't say back in a rude manner, because the Silent ones don't fight back. "
+
+168. After knowing this method, the bhikkhu who chooses should always study it
+     conscientiously.
+
+After        knows that "silence" is dying, he should not let go of his
+teachings.
+
+"After knowing this Dhamma": "This Dhamma has been explained, taught, told,
+established, uncovered, analyzed, clarified, and explained. After knowing, after
+understanding, after measuring, after judging, respectively After, after
+clarifying." This is after knowing this Fa. Or, "The right and wrong, the
+[right] way and the evil way, the sinful and innocent, the despicable and the
+triumphant, the black and the white, the sage's condemnation and the wise's
+praise After, after understanding, after weighing, after judging, after
+separating, after clarifying." This is also after knowing this method. Or, "the
+correct path, the path that follows the path, the path that is not reversed, the
+path that does not violate the path, the path where the meaning is, the path
+where the law follows the law, the integrity of the precepts, the protection of
+the root gate, the right amount of dietary knowledge, Specializing in sobriety,
+mindfulness and right knowledge, four mindfulness, four positive diligence, four
+divine feet, five senses, five powers, seven enlightenment factors, eight holy
+paths, Nibbana and the path leading to Nibbana. After knowing, after
+understanding, After weighing, after judging, after separating, after
+clarifying." This is also after knowing this method.
+
+"Bhikkhus who check and choose should always learn with mindfulness": ""Check",
+"When checking; when making strong checks; when measuring; when judging; when
+distinguishing; when clarifying: " All actions are impermanent"... (abbreviated)
+"Any collection of dhamma is extinguished" when selecting; when forced to
+select; when measuring; when judging; when distinguishing; when clarifying." The
+bhikkhu of selection. "Always", always; everything; all the time... (omitted)
+old age. "Conscientiously (of)", which is conscientious in four ways: when the
+practice is on the body and the body When mindfulness is mindful... (omitted) He
+is called mindful. "Should learn", there are three kinds of learning: increasing
+precept learning, increasing mind learning, increasing wisdom learning...
+(slightly omitted) this is Increase the wisdom of learning. These three
+learnings should be learned when heading towards (noting)... (Omitted) should be
+learned, should be practiced, should be practiced well, and should be turned
+after being held." Bhikkhus who choose for inspection should always have Study
+hard.
+
+"Knowing that "silence" is after the death": "The greedy "silence" is after the
+death is known, the anger...the foolish... (omitted), all the unwholesome
+"silence" is the death after knowing and understanding , After weighing, after
+judging, after separating, after clarifying." To know that "silence" is after
+dying.
+
+"The teachings of Gautama should not be let loose": "The teachings of Gautama,
+the teachings of the Buddha, the teachings of the conquered, the teachings of
+the Tathagata, the teachings of the gods, and the Arahant's teachings. "Should
+not let go", should be a respectful author, a constant author, a non-stop
+author, a habit of not being stuck, a person who does not neglect his desires,
+and a person who does not neglect responsibility in good law; "How can I
+Completing the unfinished precepts... (omitted)" "How can I complete the
+unfinished concentration..." Hui Yun... liberating aggregates... liberating
+wisdom and seeing aggregates... "How can I know the uncompleted suffering? , Or
+I can let go of the pollution that hasn't been broken, or I can practice the
+path that hasn't been practiced, or I can testify and die without testifying?"
+Where he has intentions, diligence, courage, hard work, fortitude, no flinching,
+thoughts , Righteous knowledge, enthusiasm, diligence, establishment, practice,
+and perseverance in the good law." The teachings of Qiao Tamo should not be let
+loose.
+
+Because of that, the Lord said:
+
+"After knowing this method, the bhikkhu who chooses should always study it
+conscientiously.
+
+After        knows that "silence" is dying, the teachings of Qiao Damo should
+not be let go. "
+
+169. Because he is an unconquered conqueror, he saw self-certification instead
+     of hearsay,
+
+Therefore, it is true that those who do not let go should always respectfully
+follow the teachings of the Blessed One. [Like this Lord (say)]
+
+"Because he is an unconquered conqueror": "The "conqueror", the conqueror of
+color, the conqueror of sound, the conqueror of smell, the conqueror of taste,
+the conqueror of touch, the conqueror of law, is not conquered by any pollution,
+he conquers those evil and unwholesome laws: obedience The polluted, the more,
+the fearful, the bitter fruit, the future will be old and dead. "Because he is
+an unconquered conqueror.
+
+"He sees self-certification rather than hearsay": ""Self-certification" is not
+heard, not based on work like this, not based on inheritance, not based on
+tripartite, not based on theoretical contemplation, not based on contemplation.
+His insights were seen, seen, seen, and understood by the Dhamma that he
+personally proved and realized." It was because he saw the Dhamma of
+self-evidence, not hearsay.
+
+"Therefore it is indeed the commandment to the Blessed One": "therefore,
+therefore; the reason; the cause; the condition; the cause. "The commandment to
+the Blessed One", the commandment to the Blessed One, right The teachings of
+Gautama, the teachings of the Buddha, the teachings of the conquered, the
+teachings of the Tathagata, the teachings of the gods, the teachings of the
+Arahants." That is why the teachings of the deity are true. .
+
+"He who does not let loose should always be respectful and follow his studies.
+[Like this world-zun (say)]": ""He who does not let loose", a respectful
+author... (omitted) He who does not let loose in good law. "Always", always;
+[everything;] all the time... (omitted) old age. "Respect", to respect with the
+body, or with words, or with the heart, or as such It means to respect and
+respect, or to respect, respect, respect (Thailand version), respect, reverence,
+and respect (Thailand version). "Follow learning", there are three kinds of
+learning: increasing precept and learning, increasing heart Learn, increase the
+wisdom of learning... (omitted) This is to increase the wisdom of learning.
+These three learnings should be learned when they are directed to (notice)...
+(omitted) should be learned, practiced, and should be used as a testimony.
+Practice, should practice well, and should be turned after being sustained.
+"World Honored", a synonym for respect... (abbreviated) Anri (pseudonym) who
+testifies, that is, World Honored." Those who do not let go should always
+respect and follow the school. . [Like this Lord (say)]
+
+Because of that, the Lord said:
+
+"Because he is an unconquered conqueror, he sees self-certification instead of
+hearsay,
+
+Therefore, it is true that those who do not let go should always respectfully
+follow the teachings of the Blessed One. [Like this Blessed One (say)]"
+
+The fourteenth [completed] of the quick explanation.
+
+
+
 
 
 Summary:
-  1. The study of mindfulness (precipitation, concentration and wisdom) adjusts and sees slowness (I am the slowness-the root of vain papañca delusion) love (the inner craving) realizes Nibbana.
-  2. Those who can prove that they know the law should not be fortitude (stubborn/high-slow-point wins the bad).
-  3. What is not taken (that I saw/held) was rejected (rejected/released).
-4. The method of regulating the dangers: not seeing everywhere, not listening to the village theory, not being greedy, not treating me as me, not weeping in sickness, not praying for something, not trembling with fear, not storing food and clothing, not trembling when lacking, and living little Vocal meditation does not wander, do not regret or let go, eager to learn, do not sleep, do not deceive/ laugh out loud/ entertaining/ lust/ dress up, do not engage in magic/ astrology/ astrology/ astrology/ animal sound/ pregnancy Medical skills, don't care about birth, get rid of greed and miserliness, don't get involved in business, don't cling to the village, don't flatter, don't boast, don't suggest, don't be arrogant, don't contempt other people (self-esteem), don't talk about controversial discussions, don't lie, don't Fraud, don't fight back---learn with respect and respect.
-  12/14/2020 16:40
+
+1. The study of mindfulness (precipitation, concentration and wisdom) adjusts
+   and sees slowness (I am the slowness-the root of vain papañca delusion) love
+   (the inner craving) realizes Nibbana.
+
+2. Those who can prove that they know the law should not be fortitude
+   (stubborn/high-slow-point wins the bad).
+
+3. What is not taken (that I saw/held) was rejected (rejected/released).
+
+4. The method of regulating the dangers: not seeing everywhere, not listening to
+   the village theory, not being greedy, not treating me as me, not weeping in
+   sickness, not praying for something, not trembling with fear, not storing
+   food and clothing, not trembling when lacking, and living little Vocal
+   meditation does not wander, do not regret or let go, eager to learn, do not
+   sleep, do not deceive/ laugh out loud/ entertaining/ lust/ dress up, do not
+   engage in magic/ astrology/ astrology/ astrology/ animal sound/ pregnancy
+   Medical skills, don't care about birth, get rid of greed and miserliness,
+   don't get involved in business, don't cling to the village, don't flatter,
+   don't boast, don't suggest, don't be arrogant, don't contempt other people
+   (self-esteem), don't talk about controversial discussions, don't lie, don't
+   Fraud, don't fight back---learn with respect and respect.
+
+12/14/2020 16:40
+
+
