@@ -24,10 +24,12 @@ asking around online, I got [an
 answer](https://buddhism.stackexchange.com/a/43712/19522) that pointed me to a
 Sinhala translation; I also later found a Chinese translation. Not knowing
 Sinhala or Chinese, I automated translations using a bit of code, and took these
-translations and wrangled them into this edition, with much help from Pāli
-romanizations and some dictionaries. There will likely be many errors,
-inaccuracies, and inconsistencies in this early version, but it will improve
-with time.
+translations and wrangled them into this edition. As the work progressed I
+referenced Pāli romanizations more and more, with the help of some dictionaries,
+so this translation is a combination of the translation from the Chinese and
+Pāli, with some occasional help from the translation from the Sinhala. There
+will likely be many errors, inaccuracies, and inconsistencies in this early
+version, but it will improve with time.
 
 This translation prefers Pāli over Sanskrit terms (dhamma vs. dharma, kamma vs.
 karma, etc.). If you're used to the Sanskrit terms — to paraphrase Engels,
