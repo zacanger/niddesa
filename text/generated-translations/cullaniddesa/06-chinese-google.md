@@ -1,115 +1,71 @@
-5. Explanations asked by the Brahmin from the Dudagar student
+5. Explanations asked by the student Dudagar
 
-30. [Venerable Dago like this:] Lord, I ask you, please tell me this, Daxian! I
+30. [Venerable Dudagar like this:] Lord, I ask you, please tell me this, Daxian (??)! I
     look forward to your words,
-
 After hearing what you said, you should learn for your own Nibbana.
 
-"Master, let me ask you, please tell me this.": ""I ask", there are three kinds
-of queries: the query of the explanation of the unseen, the query of the
-confluence of the seen, the query of the severance of doubt... (omitted) this
-There are three kinds of inquiries... (slightly) the inquiry of Nibbana. "I ask
-you": I ask you; I beg you; I beg you; you make me clear; "Please tell me," ask
-you for me. "World Honored One" , This is a respectful synonym... (abbreviated)
-Anri (pseudonym) who testified, that is "World Honored." "Please tell me this",
-please tell me, please explain, please teach, please inform, please Establish,
-please uncover, please analyze, please clarify, please explain." For the world,
-I ask you, please tell me this.
+"Master, let me ask you, please tell me this.": ""I ask", ... (omitted, see
+previous). "World Honored One" ... (omitted).
 
-"[Venerable people like this are Da Ge]": "'Like this", the continuation of the
-sentence... (abbreviated) "Venerable", this is a language of love, respect,
-respect, and obedience. It is "Venerable ". "Du Da Ge", the Brahmin's name,
-name, title, Anli, common name, name, naming, appellation, words, phrases,
-address." It is [Like this Venerable Du Da Ge].
+"[Venerable people like this are Da Ge]": "'Like this", ...(omitted). "Du Da
+Ge", the Brahmin's name ...(omitted).
 
 "Daxian! I look forward to your words": "Your words, ways of speaking, teaching,
-teaching, admonition, I expect, I expect, I want, I use, I want, I hope, I pray.
-"Daxian" , Why is the Blessed One a Great Immortal? "The seeker, pursuer, and
-seeker of the Great Ring Aggregate" is the Great Immortal... (Omitted) "Where is
-the Bull King among the People?" is the Great Immortal." The Great Immortal! I
-look forward to your words.
+teaching, admonition, I expect, I hope, I pray.
+"Daxian" , Why is the Blessed One a Great Immortal? "The seeker, pursuer,
+...(omitted).
 
-"After hearing your words": "Your speech, language, teachings, teachings,
-admonitions after hearing, after hearing, after grasping, after understanding,
+"After hearing your words": "Your speech, language, teachings
+admonitions; after hearing, after grasping, after understanding,
 after discriminating." After hearing your words.
 
+TODO: I don't understand something about the sentences here.
 "You should learn for your own Nibbana": "There are three kinds of learning:
-increasing precept learning, increasing mind learning, increasing wisdom
-learning... (abbreviated) This is increasing wisdom learning. "For your own
-Nibbana" and for your own greed Nibbana, anger, ignorance, anger, resentment...
-(slightly omitted) The calm, silence, calm, extinguishment, cessation, and
-cessation of all unwholesome practices should learn to increase precepts and
-learn. To increase mind learning, you should also learn to increase wisdom
-learning. These three learnings should be learned when facing (noting); learning
-when knowing; learning when seeing; learning when introspecting; and being
-careful to establish (decision) You should learn when you are in time; you
-should learn when you win with faith; you should learn when you work hard; you
-should learn when mindfulness arises; you should learn when mindfulness (focus);
-you should learn when you learn with wisdom; We should learn when we are proved;
-we should learn when we should be omniscience; we should learn when we should be
-renounced; we should learn when we should practice; we should learn when we
-should be practiced as evidence; Learning [Ps.1,41.], should be practiced,
-should be practiced well, and should be turned after being held up.” It is
-because you should learn for your own Nibbana.
+...(omitted, see previous). "For your own Nibbana" and for your own greed (??)
+Nibbana, anger, ignorance, resentment... (slightly omitted) To  calm, silence,
+extinguish, cut off, and cease all unwholesome practices, you should learn to
+increase precepts. You should also learn To increase mind and wisdom. These
+three learnings should be studied when directed towards (noting); when known
+they should be learned; when seen... (omitted); when introspecting...; and being
+careful to establish (decision), you should learn; you should learn when you win
+by faith; you should learn when you have energetic effort; you should learn when
+mindfulness arises; you should learn with mindfulness (focus); you should learn
+when you know with wisdom; We should learn when we are proved (??); we should
+learn when we should be omniscience (??); we should learn when we should be
+renounced; we should learn when we should be practiced as evidence
+(testimony??); Learning [Ps.1,41.], should be practiced, should be carried out
+well, and should be turned after being held up.” It is because you should learn
+for your own Nibbana.
 
-Because of that, the brahmin said:
 
-"[Venerable Dago like this:] Lord, I ask you, please tell me this, Daxian! I
-look forward to your words,
-
-After hearing what you said, you should learn for your own Nibbana. "
-
-31. [World Zun: "Dadage!"] If that is the case, please be enthusiastic, right
-    here wise and thoughtful,
-
-After hearing the words from here, he should learn for his own Nibbana.
+31. [Blessed one: "Dadage!"] If that is the case, please be enthusiastic, and
+    wise and mindful here,
+After hearing these words, you should learn for his own Nibbana.
 
 "If that's the case, please be enthusiastic": "Please be enthusiastic; please be
-brave; please be zealous; please be fortitude; please be firm; please be
-vigorous, and I would like to ask you to make it happen; please Make it produce;
-please make it arise; please make it fully produced; please make it arise;
-please make it arise." Please be zealous if that happens.
+brave; please be zealous; please have fortitude; please be firm; please be
+vigorous, and may you make it happen; make it arise; make it fully produced;
+make it appear; make it live." Be enthusiastic.
 
-"Dudag", "The Blessed One calls the Brahman by his name. "World Zun", which is a
-synonymous with respect... (abbreviated) Anri (pseudonym) who testifies, that
-is, the Blessed One." is [World Zun: "Dug! "]
+"Dudag", .... "Blessed One", ....
 
-"Here is the wise and thoughtful": ""Here", belongs to this view; belongs to
-this liking; belongs to this hobby; in this attachment; in this law; in this
-law; in this law ; In this teaching language (teaching); in this brahma; in the
-teachings of this master; in this individual; in this human world. "wise", wise,
-wise, The wise, the enlightened, the wise, the discriminating, the wise. "The
-mindful", "the mindful in four ways: when practicingXi is mindful when he is
-mindful and mindful... (omitted) he is called mindful. 』」For the wise and
+"Wise and mindful here": ""Here", belongs to this view; belongs to this liking;
+belongs to this hobby; in this attachment; in this Dhamma; in this teaching; in
+this brahma; in the teachings of this master; in this individual; in this human
+world. "Wise", the concious,, the enlightened, the discriminating, the wise.
+"Mindful", "Mindful in four ways: when practicing ...(omitted). Wise and
 thoughtful right here.
 
-"After hearing the words from here": "From here my words, language, teachings,
-instructions, admonitions, after hearing, after hearing, after grasping, after
-understanding, after distinguishing." After hearing the words from here.
+"After hearing these words": ...(omitted).
 
-"You should learn for your own Nibbana": ""Learning", there are three kinds of
-learning: increasing precept learning, increasing mind learning, increasing
-wisdom learning... (Omitted) This is increasing wisdom learning. "For own
-Nibbana" , For the sake of one's greedy Nibbana, angered Nibbana, ignorant
-Nibbana, angry Nibbana, resentment Nibbana... (omitted) All unwholesome actions
-are calm, quiet, calm, extinguished, cut off, and ceased, so we should learn to
-add precepts. , We should also learn to increase mind and wisdom. These three
-studies should be studied when they are directed towards (noting); when they are
-known, they should be learned... (Omitted) when they should be used as
-testimony, they should be learned , Should be practiced, should be practiced
-well, and should be turned after being held up." It is because we should learn
-for our own Nibbana.
+"You should learn for your own Nibbana": ...(omitted, see previous).
 
-Because of that, the Lord said:
+32. I saw all the Brahman actors in heaven and the world of men, (there are no Brahman actors??)
+I respect (salute??) you, you are all eyes (??), Shakyamuni! Please free me from doubts.
 
-"[World Zun: "Du Da Ge!"] If that is the case, please be enthusiastic, right
-here wise and thoughtful,
-
-After hearing the words from here, he should learn for his own Nibbana. "
-
-32. I saw that in the world of heaven and man, there are no Brahman actors,
-
-I respect you, you are all eyes, Sakyamuni! Please free me from doubts.
+---
+checkpoint
+---
 
 "I saw in the world of heaven and man": "Heaven", there are three kinds of
 heaven: secular heaven, reborn heaven, and pure heaven. What is secular heaven?
@@ -140,7 +96,7 @@ excluded, and those evil and unwholesome laws are excluded: those that are
 polluted, there are again. People who are fearful, who suffer the consequences,
 and will die in the future.
 
-[World Zun: 『Sexy! 』][Sn.3.6, 524 verses]
+[Blessed One][Sn.3.6, 524 verses]
 
 『After all evil is eliminated, the state where the decontaminated good enters
 the concentration standing,
@@ -189,12 +145,6 @@ understanding, stiff state, confusion of mind. "Sakyamuni! Please free me from
 doubt": "Please free me; please free me; please free me; please free me; please
 pull me out; please pull me out completely; I stabbed an arrow out of doubt."
 For Sakyamuni! Please free me from doubts.
-
-Because of that, the brahmin said:
-
-"I saw that in the world of heaven and man, there are no Brahman actors,
-
-I respect you, you are all eyes, Sakyamuni! Please free me from doubts. "
 
 33. I will not be able to be liberated: Dudag! Anyone who doubts in the world,
 
