@@ -12,9 +12,6 @@ PAGEBREAK = -L templates/pagebreak.lua
 
 # Chapters content
 CONTENT = awk 'FNR==1 && NR!=1 {print "\n\n"}{print}' $(CHAPTERS)
-# Use this to add sed filters or other piped commands to transform content at
-# build time
-CONTENT_FILTERS = tee
 
 # Debugging
 # DEBUG_ARGS = --verbose
@@ -52,15 +49,15 @@ pdf:	$(BUILD)/$(OUTPUT_FILENAME).pdf
 
 $(BUILD)/$(OUTPUT_FILENAME).epub:	$(EPUB_DEPENDENCIES)
 	mkdir -p $(BUILD)
-	$(CONTENT) | $(CONTENT_FILTERS) | $(PANDOC_COMMAND) $(ARGS) $(EPUB_ARGS) -o $@
+	$(CONTENT) | $(PANDOC_COMMAND) $(ARGS) $(EPUB_ARGS) -o $@
 	@echo "$@ was built"
 
 $(BUILD)/$(OUTPUT_FILENAME).html:	$(HTML_DEPENDENCIES)
 	mkdir -p $(BUILD)
-	$(CONTENT) | $(CONTENT_FILTERS) | $(PANDOC_COMMAND) $(ARGS) $(HTML_ARGS) -o $@
+	$(CONTENT) | $(PANDOC_COMMAND) $(ARGS) $(HTML_ARGS) -o $@
 	@echo "$@ was built"
 
 $(BUILD)/$(OUTPUT_FILENAME).pdf:	$(PDF_DEPENDENCIES)
 	mkdir -p $(BUILD)
-	$(CONTENT) | $(CONTENT_FILTERS) | $(PANDOC_COMMAND) $(ARGS) $(PDF_ARGS) -o $@
+	$(CONTENT) | $(PANDOC_COMMAND) $(ARGS) $(PDF_ARGS) -o $@
 	@echo "$@ was built"
