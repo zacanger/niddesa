@@ -219,7 +219,7 @@
  The wealth of those who desire is very constant, so I do not grieve when I grieve.
  The moon increases, fills, disappears, the sun moves into extinction (Thailand Version),
  I know the law of the enemy, so I do not grieve when I grieve."
- Whosoever is to him of any color, subject to, want, do, or know, "This is mine, or this is another." For those who are held, taken, taken, taken, and believed in none, have not lost to him. This is also said [SN.2.18]: "Salmon! Do you rejoice?" "Friends! What did you get?" "Then, Salmon! Do you grieve?" "Friends! What was lost?" "Then, Salmon! Do you not rejoice nor grieve? "Yes, friend!"
+ Whosoever is to him of any color, subject to, want, do, or know, "This is mine, or this is another." For those who are held, taken, taken, taken, and believed in none, have not lost to him. This is also said [SN.2.18]: "Samana! Do you rejoice?" "Friends! What did you get?" "Then, Samana! Do you grieve?" "Friends! What was lost?" "Then, Samana! Do you not rejoice nor grieve? "Yes, friend!"
  "After a long time, finally, I saw the Nibbana Brahmen,
  No joy, no disturbance of the Bichu, Du off the world's obsession."
  For him indeed in the world does not lose.
