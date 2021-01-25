@@ -11,7 +11,7 @@ years after his death. There are two parts:
 
 * The Mahā Niddesa (Nd 1), a commentary on the Atṭḥaka Vagga (Sn 4)
 * The Cūlạ Niddesa (Nd 2), a commentary on the Pārāyana Vagga (Sn 5) and the
-  Khaggavisānạ Sutta (Rhinoceros Sutta, Sn 1.3)
+    Khaggavisānạ Sutta (Rhinoceros Sutta, Sn 1.3)
 
 While this text is a commentary on sections of the Sutta Nipāta, there's no need
 to be familiar with that work first, as the verses commented on are translated
