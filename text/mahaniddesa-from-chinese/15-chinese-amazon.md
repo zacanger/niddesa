@@ -1,7 +1,3 @@
-15. Explanation of the Stick
-
-Second, the description of the Scripture of the Stick will say:
-
 170. the horror of the bang-takers: look at the heterous people,
 
 I will talk about the sense of urgency: I was stirred up.
@@ -1419,36 +1415,3 @@ Because then, Worldman said:
 
 He is a silent man, a stingy man, and he will not take, nor refuse. [Like this
 Worldman (said)]"
-
-Instructions of the Stick Picker XV [Completed].
-
-
-
-
-
-Excerpt:
-
-1. The horror of the baton (three and four to three) for himself: punishment and
-   hell.
-
-2. want to find shelter (asylum), but did not see the occupation: youth/no
-   disease/birth/give/name/music is old/sick/lost/unname/blame (at the end of
-   hostile) possession.
-
-3. do not rejoice (= heart is greed/demented/slow/slow/see/worry/suspect) people
-   run everywhere (reincarnation
-
-4. intentional Nibbana people should not be keen on the world/to live in the
-   world with very slow live/living together with ease to/be taken away by
-   delusion/make love/joy in the past, like new/sorrow/disappearing by the
-   seducer, should be True/not arrogant (all too slow) /not
-   deceive/dismission/not angry/quit arbitrariness, conquer sleep/lazy/gloomy.
-
-5. before you make it wither, after you do not have, if in the middle you will
-   not hold, you will live a life of silence.
-
-6. life is only the generation/survive/disappear of bitterness, except that
-   there is no.
-
-12/15/2020 15:46
-

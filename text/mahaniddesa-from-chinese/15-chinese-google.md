@@ -1,6 +1,4 @@
-15. Explanation of the stick taker
-
-Secondly, the explanation of the stick taker will say:
+### 15. Explanation of the One Who Has Taken Up the Rod (the stick-taker??)
 
 170. The horror of the stick-takers: Please look at the people who are
      notorious,
@@ -1538,38 +1536,3 @@ say,
 
 He is a silent person, a person who is already free and stingy, he does not take
 or refuse. [Like this Blessed One (say)]"
-
-The fifteenth [Completed] of the explanation of the stickman's sutra.
-
-
-
-
-
-Summary:
-
-1. The horror that the stick-takers (three mouths, four minds) live for
-   themselves: punishment and hell.
-
-2. I want to find a place to live (asylum), but I don't see the unoccupied ones:
-   young/no disease/birth/get/name/name/happy old/sick/lost/no
-   name/responsibility/suffering (all hostile at the end) Possession.
-
-3. Those who are not happy (= the heart is
-   greedy/snap/fat/slow/see/worry/suspicious) run around (reincarnation).
-
-4. People who are intent on Nibbana should not be keen on studying the world /
-   live with extreme slowness / live with ease / be taken away by false words /
-   create love / joy in the past / like new / sadness disappearing / rely on
-   hooks It should be true/not arrogant (slow omniscience)/not
-   deceiving/rejecting divorce/not angry/abstaining willfulness, conquering
-   sleep/laziness/slumping.
-
-5. Please make it wither before, and please don't have it afterwards. If you
-   can't hold the one in the middle, you will live a silent life.
-
-6. Life is only the generation/existence/disappearance of suffering, nothing
-   else.
-
-12/15/2020 15:46
-
-
