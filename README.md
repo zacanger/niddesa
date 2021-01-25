@@ -9,19 +9,12 @@
 [![Patreon](https://img.shields.io/badge/patreon-donate-yellow.svg)](https://www.patreon.com/zacanger)
 [![ko-fi](https://img.shields.io/badge/donate-KoFi-yellow.svg)](https://ko-fi.com/U7U2110VB)
 
+I recommend reading the PDF version, as the HTML is quite large, and the EPUB
+currently has some issues.
+
 ## About
 
-There has never been a complete English language translation of [the
-Niddesa](https://en.wikipedia.org/wiki/Niddesa). After asking on Stack Exchange,
-I got [an answer](https://buddhism.stackexchange.com/a/43712/19522) that pointed
-me to a Sinhala translation, which I figured I could use to automate an English
-translation. I then also found a complete Chinese translation and did the same
-thing with that.
-
-It will take work and time to clean up the generated translations
-and make them readable. In the future I may try to learn Pali and do a fresh
-translation from the source (see those files in this repo, or the Pali Text
-Society's Romanizations on the Internet Archive).
+See ./book/00-introduction.md for details.
 
 ### The Text
 

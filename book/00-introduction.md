@@ -50,7 +50,7 @@ twenty verses, so correlating verses between the Niddesa and different
 translations of the Sutta Nipāta should be straightforward for the reader.
 
 References to other texts were primarily added in the Chinese version and are in
-square brackets using common abbreviations (Jat., Dhp., etc.); statements of who
+square brackets using common abbreviations (DN, Jat., etc.); statements of who
 is speaking a given stanza are also in square brackets; comments,
 clarifications, and marks of unclear passages by myself or from the sources are
 in parentheses.

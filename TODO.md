@@ -1,3 +1,4 @@
+* Add two trailing spaces after lines in quoted verses (mnd done)
 * Fix issues marked with `??`
 * Add accents and diacritics to Pali words, and fix Sanskritized and Sinicized ones
 * Fill in spots marked `omitted, see previous sections`
