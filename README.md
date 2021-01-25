@@ -35,18 +35,21 @@ repo](https://github.com/zacanger/translate-batches). To build the book, run
 including xetex (mactex or texlive-xetex, depending on your platform), as well
 as the Cardo font.
 
-To make a new release, run `make release-major` or `make release-minor`, then
-`git push --follow-tags`. Patch changes should not result in new releases.
+To release a new edition, update the introduction and create a tag along with a
+versioning commit. Example:
+
+```
+git commit --allow-empty -am v2 && \
+  git tag -m v2 -a v2 && \
+  git push origin master --follow-tags
+```
 
 ## TODO
 
 Possible v2 work:
-* Include a glossary
 * Go back and compare section by section with the Pali and with the Paramatthajotikā
 * Get someone else to proofread/edit to pick up anything I missed
-* Fill in `omitted, see previous sections` bits (this will make the whole thing
-  much much longer, but might make things easier for folks who just want to look
-  up specific suttas instead of reading the whole book)
+* Fill in `omitted, see previous sections` bits
 
 ## Licensing
 

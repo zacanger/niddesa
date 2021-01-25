@@ -68,14 +68,11 @@ translations of the Sutta Nipāta should be straightforward for the reader.
 References to other texts were primarily added in the Chinese version and are in
 square brackets using common abbreviations (DN, Jat., etc.); statements of who
 is speaking a given stanza are also in square brackets; I have put comments,
-clarifications, and marks of unclear passages in parentheses. I have not
-included a glossary for Pāli terms; Nyanatiloka Mahathera's excellent _Buddhist
-Dictionary_ would be a good reference for readers unfamiliar some terms and
-concepts.
+clarifications, and marks of unclear passages in parentheses.
 
 ### Publication History
 
-First edition: March 2021.
+* Version 1, January 2021: Initial version
 
 ### Dedication
 
@@ -123,8 +120,9 @@ means you are free to copy and redistribute this work, as well as make changes,
 as long as you provide attribution (give credit back to this work) and share
 your changes under the same license. It would be preferable to always link back
 to [the source](https://github.com/zacanger/niddesa) rather than distributing
-your own copies which may get out of date. Under this license you may not use
-this translation for commercial purposes (you can't sell it). See the link for
-the full version of the license.
+your own copies which may get out of date, as this translation is a living work
+which will see regular updates and corrections. Under this license you may not
+use this translation for commercial purposes (you can't sell it). See the link
+for the full version of the license.
 
 \newpage

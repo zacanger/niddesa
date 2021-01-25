@@ -3,7 +3,7 @@ BUILD = assets
 MAKEFILE = Makefile
 OUTPUT_FILENAME = niddesa
 METADATA = metadata.yml
-CHAPTERS = book/*.md book/mnd/*.md book/cnd/*.md
+CHAPTERS = book/*.md book/mnd/*.md book/cnd/*.md book/appdx/*.md
 TOC = --toc --toc-depth 4
 METADATA_ARGS = --metadata-file $(METADATA)
 TEMPLATES = $(shell find templates/ -type f)
@@ -41,12 +41,6 @@ clean:
 
 site:
 	pandoc -f gfm README.md -s -t html5 --template=templates/index.html -o index.html
-
-release-major:
-	./release.sh major
-
-release-minor:
-	./release.sh minor
 
 # Builders
 epub:	$(BUILD)/$(OUTPUT_FILENAME).epub
