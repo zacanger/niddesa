@@ -22,10 +22,9 @@ The auto-generated translations were done using Google and Amazon's translation
 services. The Yandex and IBM Watson translations were terrible, not worth trying
 to use.
 
-The ./book directory in the repo contains the contents. If you find a problem or want to help, please feel
-free to [submit an
+The ./book directory in the repo contains the contents. If you find a problem or
+want to help, please feel free to [submit an
 issue](https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc).
-The ./pali directory is for reference.
 
 ### The Code
 
@@ -45,7 +44,8 @@ git commit --allow-empty -am v2 && \
 ## TODO
 
 Possible v2 work:
-* Go back and compare section by section with the Pali and with the Paramatthajotikā
+* Go back and compare section by section with the Pali (See tipitaka.org and
+    sutta-central) and with the Paramatthajotikā
 * Get someone else to proofread/edit to pick up anything I missed
 * Fill in `omitted, see previous sections` bits
 
