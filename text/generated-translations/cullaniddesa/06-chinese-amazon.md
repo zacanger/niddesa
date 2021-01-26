@@ -1,107 +1,3 @@
-5. Statement by Brahmen, a student of Dudagor
-
-30. [His Holiness Dagar, like this:] Worldworld I ask you, Tell me this, Daisen!
-    I look forward to your words,
-
-After hearing what you say, you should learn for your own Nibbana.
-
-“Worldworld I ask you, please tell me this”: “I ask, “I ask, there are three
-kinds of questions: an inquiry of the unseen description, the intercourse of the
-seen, the intermittent inquiry... Asked... (medium) Nibbana's inquiry. “I ask
-thee, I ask thee; I beg thee; I ask thee; thou shalt make me clear; tell me unto
-me.” “Worldworld,” this is synonymous with respect... Anrat (Kana), the
-testimony of “Worldworld”. “Please tell me this,” please say, please explain,
-please tell you, please tell, please build, please uncover, please explain,
-please explain, please explain, please explain.” For Worldhotel I ask you,
-please tell me this.
-
-“[His Holiness like this]”: “Like this, the continuation of the sentence...
-(medium) “His Holiness”, which is a word of love, respect, respect, obedience.
-“His Holiness.” “Dudagor”, the name, name, name, name, Anli, common name, name,
-name, title, word, phrase, name. For [His Holiness Dagar like this].
-
-“Daisen! I look forward to your words”: “Your words, language, teachings,
-teachings, admonitions, I expect, I want, I take, I ask, I hope, I pray. “Tai
-Sin”, why is Worldplace Tai Sin? “Seeker, Seeker, Seeker, Seeker” is Daisin...
-For Tai Sin. For Daisen! I look forward to your words.
-
-“After hearing what you say”: “Your words, your way, teaching, teaching,
-admonition, after hearing, after hearing, after grasping, after understanding,
-and discerning.” After hearing what you say.
-
-“Should learn for their own Nibbana”: “There are three kinds of studies:
-increase abduction, add heart learning, add Hui learning... (middle) This is the
-addition of Wisdom. “For their own Nibbana”, for their greedy Nibbana, Nibbana,
-idiot Nibbana, angry Nibbana, resentful Nibbana... (medium) all bad to create
-calm, silence, calm, extinguish, disbelief, Stop interest, learning should be
-added to school, should also learn to add psychology, should also learn to add
-Hui learning. These three studies, should learn when toward (notice); should
-learn when you know; should learn when seen; should learn when inspecting; be
-careful to establish (determination) should learn; when you win by faith should
-Learning; should learn when energetic efforts; When thinking, should learn when
-thinking; Be careful (focus) should learn; learn when knowing with Hui; Learn
-when testament should be known; Should be learned when disconnected should be
-cut off; learn when practicing should be practiced; study should be learned when
-testifying should be testified [Ps.1,41.] , should be practiced, should be
-carried out well, after holding should turn.” For what should be for their own
-Nibbana study.
-
-Because then, the Brahman said:
-
-“[His Holiness Dagar, such as this:] Worldly I ask thee, Tell me this, Daisen! I
-look forward to your words,
-
-After hearing what you say, you should learn for your Nibbana.”
-
-31. [Worldest: “Dudagar!”] If that is the case, please be zealous, and wise and
-    mindful here,
-
-After hearing from here, you should learn for your own Nibbana.
-
-“Be zealous if that is the case”: “Be zealous; please be brave; please be your
-zeal; please be fortitude, please be firm; please be your energy, and may you
-make it produce; please make it; please Make it appear; make it fully generated;
-make it live; and give birth to it.” Be zealous for you if that is the case.
-
-“Dudagar,” “Worldest called the Brahman by name. “Worldworld,” this is
-synonymous with respect... Anri (Kana), the testimony of (medium), that is
-Worldworld.” For [Worldest: “Dudagar!”]
-
-“Here the wise and mindful”: “Here, belongs to this see; belongs to this love;
-belongs to this hobby; in this enforcement; in this law; in this law; in this
-law; in this law; in this law; in this law; in In this teaching (teaching); in
-this family deed; in the teachings of this master; in this individual; in this
-man's world. The wise, the wise, the wise, the wise, the wise, the conscious,
-the wise, the different, the wise. “Mindful”, “In four ways for the mindfulness:
-when repairXi is a mindful when he grows on the body... (medium) he is called
-the mindful. '” For the wise and mindful here.
-
-“From here after hearing words”: “From here my words, my way, teaching,
-teaching, admonition, after hearing, after hearing, after grasping, after
-understanding, and discerning.” For after hearing from here.
-
-“Should learn for their own Nibbana”: “Learning”, there are three kinds of
-studies: add abduction, add heart, add wisdom... (middle) This is to add Hui
-learning. “For their own Nibbana”, for their greedy Nibbana, Nibbana, idiot
-Nibbana, angry Nibbana, resentful Nibbana... (medium) all bad to create calm,
-silence, calm, extinguish, disbelief, Stop interest, learning should be added to
-school, should also learn to add psychology, should also learn to add Hui
-learning. These three studies should be learned when toward (noted); when you
-know it should be learned... (medium) should be learned when testifying, should
-be practiced, should be practiced, should be carried out well, and should turn
-after being held.” For what should be for their own Nibbana study.
-
-Because then, Worldman said:
-
-“[Worldest: Dudagar!”] If that is the case, please be zealous, and wise and
-mindful here,
-
-After hearing from here, you should learn for your Nibbana.”
-
-32. I saw all the Brahmen doers in heaven and in the world of men,
-
-I salute you, you are all the eyes, Shakya! Please free me from doubts.
-
 “I see in heaven and in the world of men”: “Heaven”, there are three kinds of
 days: worldly days, to birth, and clean. What is Worldly Day? Kings and princes
 and queens are called worldly days, these are called worldly days. What is going
@@ -125,7 +21,7 @@ excluded, suspected to be excluded, forbidden is excluded, greedy excluded,
 ruled out, obsession excluded, slowly excluded, those evil bad law is Exclusion:
 Shun polluted, then there, fear, bitter fruit, future life and death.
 
-[Worldworld: “Color forced Asia!”] [Sn.3.6, 524]
+[Worldworld] [Sn.3.6, 524]
 
 “After excluding all evil, the state of residence of the good entrant from the
 fouling,
@@ -169,12 +65,6 @@ ununderstood, stiff State, heart confusion. “Shakya! “Release me from doubt�
 “Release me; please release me; please let me free; please let me free; please
 pull me out; pull me out completely; bring me out of doubt.” For Shakya! Please
 allow me to relive me from doubts.
-
-Because then, the Brahman said:
-
-“I saw all the Brahmen doers in heaven and in the world of men,
-
-I salute you, you are all the eyes, Shakya! Please release me from doubts.”
 
 33. For the relief I will not be able to: Dudagor! Any doubter in the world,
 

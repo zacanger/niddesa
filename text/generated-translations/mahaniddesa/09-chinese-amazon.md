@@ -124,7 +124,7 @@
  Like this, Muni is a silence theist, no covenant, and is not polluted in the world.
  “From those who are far from in the world”: “From those,” from those evil. “Far from,” those who have done nothing, far away, and have been separated; wicked in words... wicked in evil... with greed... (middle) to make the empty, far away, and separated. “Can do”, can live, act, turn, protect, survive, enable survival. “In the world”, in the world of mankind.” For those who are far from the world can do.
  “Dragon elephant will not pick up and say those”: “dragon elephant”, “do not sin” for the dragon elephant; “do not go” for dragon elephant; “do not come” How is “no crime” for a dragon elephant? Crimes are called the law of evil: polluted, re-existing, fearful, bitter, future life and death.
- [Worldworld: “Color Forced Asia!”] [Sn.3.6, 527]
+ [Worldworld] [Sn.3.6, 527]
  Do not commit any crime in the world, after leaving all bondages and bondages,
  No adhesion to everything, freedA person like this is truly called a dragon elephant.
  This is “no crime” for the dragon elephant.
@@ -141,7 +141,7 @@
  81. The Vedas who knew not to see and did not come slowly because he was not equal to each other,
  He is not guided by the profession, nor is he being guided by what is known, in his dwelling place.
  “The vedic who knows not come slow to see and do not feel slow”: “No” is no. “Known the Vedas”, Vedas are known in four ways of wisdom, wisdom, Wagan, witty, choice, study, Bisherna, positive, to those who have life and death have reached the ultimate (target); has reached The ultimate person, who has reached the end point, has reached the border (exactly); who has reached the border, has reached the terminator; has reached the terminator, has arrived at the ambulance, has arrived at the shelter ; those who have arrived at the refuge, have arrived at the place of return, has arrived no terror; has arrived without terror, has arrived no dead, has reached the undead; has reached the undead, has reached the undead, has arrived Nibbana; has reached the Nibbana, or 'Ultimate Veda' is the Vedas know, or 'Vedas to the Ultimate Veda' as the Vedas, or the known state of Seven Vedas: Have seen being Knowing, suspected to be known, forbidden is known, corrupt is known, known, obsession known, slowly known, its evil law is known: the polluted, re-there, the fear, bitter fruit, the future will live Old dead.
- [Worldworld: “Color forced Asia!”] [Sn.3.6, 534]
+ [Worldworld] [Sn.3.6, 534]
  “Select all the Vedas, whosoever belongs to the Salmon and Brahmen that exist here,
  He is a Veda-aware after everything feels away from greed, beyond all Vedas.
  For him, Sixty-two evil opinions have been cut off, cut off, calmed down, stopped, not born, burned by wisdom fire; he was not seen to be carried away, taken away, carried, transported, nor returned, Do not return to that evil see as the core.” For the Vedas know not to see. “Not to feel,” he does not come slowly, does not arrive, does not arrive, does not arrive, does not hold, does not hold, do not hold, do not persist, or with public permission. For the knowledge of Vedas do not see not come to feel slow.
