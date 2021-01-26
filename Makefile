@@ -8,7 +8,6 @@ TOC = --toc --toc-depth 4
 METADATA_ARGS = --metadata-file $(METADATA)
 TEMPLATES = $(shell find code/templates/ -type f)
 # COVER_IMAGE = code/cover.jpg
-MATH_FORMULAS = --webtex
 
 # Chapters content
 CONTENT = awk 'FNR==1 && NR!=1 {print "\n\n"}{print}' $(CHAPTERS)
@@ -20,7 +19,7 @@ CONTENT_FILTERS = tee
 # DEBUG_ARGS = --verbose
 
 # Combined arguments
-ARGS = $(TOC) $(MATH_FORMULAS) $(METADATA_ARGS) $(FILTER_ARGS) $(DEBUG_ARGS)
+ARGS = $(TOC) $(METADATA_ARGS) $(FILTER_ARGS) $(DEBUG_ARGS)
 
 PANDOC_COMMAND = pandoc
 
