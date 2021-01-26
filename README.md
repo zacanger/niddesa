@@ -31,9 +31,7 @@ The ./pali directory is for reference.
 
 The initial translation code is in [this
 repo](https://github.com/zacanger/translate-batches). To build the book, run
-`make`. You will need various dependencies: make, pandoc, a LaTeX setup
-including xetex (mactex or texlive-xetex, depending on your platform), as well
-as the Cardo font.
+`./build.sh`. You will need Docker.
 
 To release a new edition, update the introduction and create a tag along with a
 versioning commit. Example:

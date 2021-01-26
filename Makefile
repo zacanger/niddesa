@@ -17,7 +17,7 @@ CONTENT = awk 'FNR==1 && NR!=1 {print "\n\n"}{print}' $(CHAPTERS)
 # DEBUG_ARGS = --verbose
 
 # Combined arguments
-ARGS = $(PAGEBREAK) $(TOC) $(METADATA_ARGS) $(FILTER_ARGS) $(DEBUG_ARGS)
+ARGS = $(PAGEBREAK) $(TOC) $(METADATA_ARGS) $(DEBUG_ARGS)
 
 PANDOC_COMMAND = pandoc
 
