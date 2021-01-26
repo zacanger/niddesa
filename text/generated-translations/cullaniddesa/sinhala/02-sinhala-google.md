@@ -7,7 +7,7 @@
 
 [Msdiv 57] (# msdiv57) # msdiv57 .ref .msdiv} "Who closed the world,
 When he hears what he does not see, and when he hears what he says, he is afraid
-What? ”Ayushmatha Ajith asked.
+What? "Ayushmatha Ajith asked.
 
 [Msdiv 58] (# msdiv58) {# msdiv58 .ref .msdiv} "Ajitha, the world is ignorant
 Closed. It is not seen as being brought about by miserliness or procrastination. Greed coating
@@ -15,11 +15,11 @@ I say. Grief is a great fear, "said the Blessed One.
 
 [Msdiv 59] (# msdiv59) # msdiv59 .ref .msdiv} "Everyone's craving for water
 Basit. What is hard water prevention? Read the cessation of floods. From which Maha
-Will the water be shut off? ”Ajith asked.
+Will the water be shut off? "Ajith asked.
 
 [Msdiv 60] (# msdiv60) # msdiv60 .ref .msdiv "Ajith, the world's sexiest
 Mindfulness is the wall that prevents them from having a flood. That consciousness is in the streams of lustful waters
-I say preventive. These are completely covered by wisdom. ”Buddha
+I say preventive. These are completely covered by wisdom. "Buddha
 He said.
 
 [Msdiv 61] (# msdiv61) {# msdiv61 .ref .msdiv} "Nidukane, wisdom and mindfulness,
@@ -47,7 +47,7 @@ Who in this world is better off than anyone else?
 Ayushmatha Tissa asked in the same manner.
 
 [Msdiv 66] (# msdiv66) {# msdiv66 .ref .msdiv ‍ Blessed,
-“Metteyya, the lust of the lusts, the lusts of the way, the lusts of the way,
+"Metteyya, the lust of the lusts, the lusts of the way, the lusts of the way,
 Conscious commands at all timesIs he a theologian?
 He has no concussions.
 
@@ -67,12 +67,12 @@ I ask. The Blessed One said, "Ayushmatha Punnatheme asked.
 [Msdiv 69] (# msdiv69) {# msdiv69 .ref .msdiv "Charity, something in this world
 Many human, Kshatriya and Brahmin sages were sacrificed to God,
 Punnaka, associating with shit in the hope of humanity by seeking form
-Sacrifices have been made, ”the Blessed One said.
+Sacrifices have been made, "the Blessed One said.
 
 [Msdiv 70] (# msdiv70) {# msdiv70 .ref .msdiv} "There are many sages in this world
 Whether one is human or human, a Kshatriya is a Brahmin to God
 Whatever they sacrificed, they sacrificed their lives without delay
-If you have lost it, please tell it to the Blessed One. ”Ayushmatha Punnaka
+If you have lost it, please tell it to the Blessed One. "Ayushmatha Punnaka
 He said.
 
 [Msdiv 71] (# msdiv71) {# msdiv71 .ref .msdiv} "Charger, they are in the sacrifices
@@ -96,7 +96,7 @@ Punnakamanavapuchcha Thathiya.
 
 [Msdiv 74] (# msdiv74) {# msdiv74 .ref .msdiv ඇති Medical dental habits
 I know him. There is no one in the world who is sadBecause of what
-Are you gone? ”Ayushmatha Mettagu asked.
+Are you gone? "Ayushmatha Mettagu asked.
 
 [Msdiv 75] (# msdiv75) {# msdiv75 .ref .msdiv} "Dear students, from me
 Certainly you ask the cause of sorrow. As far as I know, I will state it to you.
@@ -156,7 +156,7 @@ Ayushmat Dhotaka asked.
 
 [Msdiv 87] (# msdiv87) {# msdiv87 .ref .msdiv} "Thotaka, if so in this Sasana
 Defilement with mindfulness with defilement. He is silent on hearing this
-Discipline in Nibbana, ”the Blessed One said.
+Discipline in Nibbana, "the Blessed One said.
 
 [Msdiv 88] (# msdiv88) {# msdiv88 .ref .msdiv} "I am in the divine human world
 I see a Brahmin holding a posture without ragadhi. I adore you with full eyes
@@ -198,7 +198,7 @@ Abandon lusts and dispel doubts by looking at the Nibbana in two days and nights
 
 [Msdiv 96] (# msdiv96) # msdiv96 .ref .msdiv} "Someone in all lusts
 Vitharagivu also associated with Akinchanayatana and was the same person except for the fear of the consequences below.
-Are you not going to be in that Akinchannayatana? ”Ayushmat Upasivathame Questions
+Are you not going to be in that Akinchannayatana? "Ayushmat Upasivathame Questions
 Does.
 
 [Msdiv 97] (# msdiv97) # msdiv97 .ref .msdiv} "Someone has lost all lust
@@ -220,7 +220,7 @@ Express yourself well in Munithame. Is that the point? "
 
 [Msdiv 101] (# msdiv101) {# msdiv101 .ref .msdiv} "
 No form. All rights reserved
-All the arguments of the Skandadhi Dhammas have been destroyed. ”The Blessed One
+All the arguments of the Skandadhi Dhammas have been destroyed. "The Blessed One
 Preached.
 
 Upasivamanavapuchcha Jatti.
@@ -229,7 +229,7 @@ Upasivamanavapuchcha Jatti.
 
 [Msdiv 102] (# msdiv102) {# msdiv102 .ref .msdiv} "Kshatriyas in the world
 Even if there are sages. Because our sages are born of the ultimate wisdom
-Is it because of the rugged lifestyle? ”Ayushmat Nandatheme
+Is it because of the rugged lifestyle? "Ayushmat Nandatheme
 He asked.
 
 [Msdiv 103] (# msdiv103) {# msdiv103 .ref .msdiv} "Nanda, from the point of view
@@ -402,7 +402,7 @@ Blessed are we who have come to inquire of the loss of consciousness
 Let's hear the saying.
 
 [Msdiv 136] (# msdiv136) {# msdiv136 .ref .msdiv} "Pain inside out
-The impatient mind loses consciousness, ”the Supreme Buddha said.
+The impatient mind loses consciousness, "the Supreme Buddha said.
 
 Udayamanavapuchcha Therasama.
 
@@ -452,7 +452,7 @@ Mogharajamanavapuchcha Pannarasama.
 [Msdiv 145] (# msdiv145) # msdiv145 .ref .msdiv} "weak, discolored
 I am an old man. Eyesight is low, hearing is difficult. I'm sober
 Do I know about birth control and removal of shit right here? Such a doctrine
-Please preach, ”Pingiyathema said.
+Please preach, "Pingiyathema said.
 
 [Msdiv 146] (# msdiv146) {# msdiv146 .ref .msdiv} "Pingiya, due to images
 People are suffering because of the images they see of those who are suffering. Pingiya, therefore tho

@@ -27,7 +27,7 @@ A king. It is not called Renu. 'Rajasa is another name for lust. (ii) Five
 The Supreme Buddha has removed this kingdom. So the jinn departed
 It is said that there are kings of evil. (iii) Hatred is king. (Where (ii) applies
 Should.) Moha is a king. (Here (ii) should be applied.) Those who are are blessed
-The Lord dwells in the rock temple. “Went to the abyss of misery
+The Lord dwells in the rock temple. "Went to the abyss of misery
 The sage who lived next to the city was afraid of the Trinitarian killer.
 This is how the Blessed One lived. Again
 The Blessed One was there because he had satisfied all the merits. Closed dwellings
@@ -170,7 +170,7 @@ Antidepressant means sedative or sedative.
 
 [APZ 79.2] (# apz79.2) # apz79.2 .ref .apz} "Greetings to the Blessed Ones
 Come "means to invite the Blessed Buddha to ask for a proper inquiry
-Let's go. We arrived. Arrived. That is. “Keep your word
+Let's go. We arrived. Arrived. That is. "Keep your word
 Hear "is your word Sermon, Listen to the conclave, Learn, hold
 That is why the Brahmin also said,
 

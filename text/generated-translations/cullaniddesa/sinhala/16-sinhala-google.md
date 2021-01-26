@@ -98,7 +98,7 @@ If there is a doctrine born of some causal principle, it is all for the purpose 
 The image is the one who knows and exists and does not take seriously (the individual)
 Does not take strictly. Does not consult, does not enter. Pain, sign,
 Edits, Science, Momentum, Genesis, Crisis, Bhavya, Samsara, Vatta
-Does not take strictly. Does not consult. Will not enter. “Conscious monks
+Does not take strictly. Does not consult. Will not enter. "Conscious monks
 Nothing in the whole world means "'bhikkhu' 'or the primordial kalyanaka
 Bhikkhu, scholar or monk. There are four things that are mindful
 If. The Satipatthඨාna that looks at the body according to the body grows if one is conscious. (1-8) 4 (ii)

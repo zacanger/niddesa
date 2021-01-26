@@ -83,7 +83,7 @@ Those who are free will not return to power.
 [APZ 18.5] (# apz18.5) # apz18.5 .ref .apz} "Is someone spiritual?
 He practiced the senses of all the external worlds except this world and the Hereafter
 (Pirinivan time) Hope. "
-I know the doctor knows that God has a cultivated soul. “How miserable
+I know the doctor knows that God has a cultivated soul. "How miserable
 How do you do that?
 Aren't the other pujas like this? What? How? That is where the suffering comes from
 Is racial grief, filthy grief, disease grief (1-4) 3 should be used from the place of grief.)
@@ -154,7 +154,7 @@ Accumulates means accumulates degrees of desire. Collects visual degrees. Degree
 Collects. Collects karmic degrees. Collects corrupt degrees. Food degree
 Collects. Collects counter degrees. Collects relic degrees to earn four degrees.
 Adopting spiritual institutions collects degrees. Graduation of the Consciousness Scientist
-Collects. Arises. ‘The foolish will be sad again and again’ is repeated
+Collects. Arises. 'The foolish will be sad again and again' is repeated
 Mourning, mourning, mourning, mourning, mourning, mourning, mourning, mourning, mourning, mourning
 Excessive effort leads to grief. Causes, generates, and suggests. Orphans are ignorant
 The person is collecting degrees. "The foolish one" is the foolish one
@@ -350,7 +350,7 @@ The paragraph breaks really are important for readability.)
 Edited Science, Apunyabhi Edited Science, Ananjabi
 Nandiya, the abode of the cultured consciousness, is consecrated.
 Consciousness is also far removed, calmed down and brought to complete annihilation. "In the future
-Consciousness does not exist. ”There are two kinds of beings. Karma is also a crisis.
+Consciousness does not exist. "There are two kinds of beings. Karma is also a crisis.
 Bhavya also means. Rebirth or is.
 
 [APZ 24.3] (# apz24.3) # apz24.3 .ref .apz කුමක්ද What is kamma, charity
@@ -465,7 +465,7 @@ He says that he was unworthy and burned in the fire of wisdom.
 [APZ 28.2] (# apz28.2) {# apz28.2 .ref .apz}
 Two parts. Materialism and depravity. (General Order 1 (i) (ii) 2
 Two should be applied.) Even if these are said to be filthy. Bhavas are two Bhavas. Karma too
-Crisis is also rebirth. ‘The unconscious (impure) person
+Crisis is also rebirth. 'The unconscious (impure) person
 Did not come in lust. Unattached, constant, detached dwelling with an unrestricted mind
 And. He certainly means that he crossed this gorge, that is,
 "Absolutely" is a positive word. Ogha means lust, bhavogha, dittogha,

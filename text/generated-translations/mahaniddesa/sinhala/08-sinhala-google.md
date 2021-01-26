@@ -143,7 +143,7 @@ Rising elevates the mind. The descent lowers the mind.
 Does not stick. I have seen this and this derivation in the debates of the visual conflicts
 You do not have the permission required to post
 'Opposition' means quarrel, quarrel, interpretation, debate, again or without meaning
-That story is ‘opposite stories, namely. Does not make a fuss. Does not argue, half quarrels
+That story is 'opposite stories, namely. Does not make a fuss. Does not argue, half quarrels
 Debate dissipates conflicts and calms down. His half-hearted debate
 The analytical meds were removed. No.The abode of the unrestricted mind, which became birth
 Does.
@@ -235,8 +235,8 @@ Remove,
 [APZ 67.2] (# apz67.2) # apz67.2 .ref .apz} "Even if this is true."
 The world is great. This is also true. The other Dhammas are empty. Although arguing.
 
-Talking though. Saw. And declares. And practice. “You read them, you are here
-When a controversy arises, the opposition has no leader. ”Those ideologues are for you
+Talking though. Saw. And declares. And practice. "You read them, you are here
+When a controversy arises, the opposition has no leader. "Those ideologues are for you
 Argument by Argument Analysis by Analysis Remedy by Remedy especially
 Species. Loosening of the anterior cruciate ligament of the anterior cruciate ligament
 They are the champion against you, the opposite man,
@@ -265,7 +265,7 @@ The opposite defilement was won. When broken. When viewing pages. Hence the oppo
 Says away. Someone is an Arahant Kshinashravas.
 
 [APZ 68.2] (# apz68.2) # apz68.2 .ref .apz} "behavior" is behavior. Residence
-Doing and maintaining posture. And control. Yapeth means. “Vision from point of view
+Doing and maintaining posture. And control. Yapeth means. "Vision from point of view
 Did you make a mistake "? Have you ever lost sight of someone?
 Bindunahu Sansindhunahu was incapable of being born.
 On the contrary, they do not take the opposite view from the point of view

@@ -250,7 +250,7 @@ In the last body are the sitiahu. He is the last of the two.
 [APZ 7.2] (# apz7.2) # apz7.2 .ref .apz} "The end of their journey.
 The last body. There is no genocidal pilgrimage. They have no rebirth. "
 That is. It is said that the Arahants had degraded Dhammas due to that.
-By what means are there so many “disciplines” here that someone has degraded dhammas?
+By what means are there so many "disciplines" here that someone has degraded dhammas?
 What is discipline, what is discipline, what is discipline, what is discipline, what is superconsciousness?
 Discipline is wisdom. Mahanai, what is the supreme discipline? Sew here
 Sil is also inhabited by the pratimoksha sanvara. Greetings and

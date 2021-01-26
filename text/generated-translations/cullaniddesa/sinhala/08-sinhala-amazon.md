@@ -8,7 +8,7 @@
 
 [APZ 18.1] (#apz18 .1) {#apz18 .1 .ref .apz} "This is a critique, the Trusts
 Manipulate the preaching. Three Questions (3-1) 10, 11, 12, 13, 14,
-15 minutes should be applied. “Bhuta” is a word of honor. (Great Sleeper (7-2) 1
+15 minutes should be applied. "Bhuta" is a word of honor. (Great Sleeper (7-2) 1
 Should be used from where they go. In 1731) You are God
 I know, and know, whether there is a soulfulness. You know the pain.
 I know that the soulfulness is there. I'm figuring out. Wanted Spirit, Wada
@@ -72,7 +72,7 @@ The doctrine defies the conscience of the mind, which was the deception of the p
 
 [APZ 18.3] (#apz18 .3) {#apz18 .3.ref .apz} "Putanahu hears the congregation.
 The king of the castWhoever disposes of other evil words, among men
-Dumanahu is voracal.”
+Dumanahu is voracal."
 
 [APZ 18.4] (#apz18 .4) {#apz18 .4 .ref .apz} "I have cast the cherries. Angenital
 And the horses are great. Kunajaranum is the most great. More than it
@@ -82,9 +82,9 @@ Even if the mardunasith does not return to the jewels.
 
 [APZ 18.5] (#apz18 .5) {#apz18 .5 .ref .apz} "Is someone psychic
 Except the exteriorist and all the world's genres.
-(Puranivan Time) is awaited.” This is what is put. The Trusts
-He knows that the souls that have been worded are nature. “How sad
-How to “cause”? is a consort pulmonary, melancha pullary,
+(Puranivan Time) is awaited." This is what is put. The Trusts
+He knows that the souls that have been worded are nature. "How sad
+How to "cause"? is a consort pulmonary, melancha pullary,
 Is it not so that the other people are not so? What? How? Where to suffer
 (1-4) 3 should be used from where the sorrow is the nation's sorrow.)
 It seems that the emergence of a certain Dharman. The condensate appears as going to the abdomen. Karma
@@ -97,8 +97,8 @@ The root of these woes is critique. The reason is variable. Reconcision is criti
 Critique. The news is critic. The presence is critic. The diet is critic. Start
 Critique. The area is critic. The consortium asks, asks.
 
-[APZ 18.6] (#apz18.6) {#apz18 .6 .ref .apz} "One of the other images in the locator”
-“A thing” is the omnivorous of all things
+[APZ 18.6] (#apz18.6) {#apz18 .6 .ref .apz} "One of the other images in the locator"
+"A thing" is the omnivorous of all things
 The remnants of the besieged go words. 'Lokaha' is a Hell Locking
 In human locality, the relics of the mass of the divine locker in the entities of the locker
 Ready. 'No-noth' is the suffering of a nother-in-a-sedative locker
@@ -107,7 +107,7 @@ Ready. So thus said Brahman.
 [Msdiv 19] (#msdiv19) {#msdiv19 .ref .msdiv} (4-2)
 
 [APZ 19.1] (#apz19 .1) {#apz19 .1 .ref .apz} "The Conn Grievance
-Reviews,” refers to the death of the griever's business grievance
+Reviews," refers to the death of the griever's business grievance
 The grievance of the grievance, the caricature, the doomness of the grievance
 The result is critiqued,
 
@@ -115,16 +115,16 @@ The result is critiqued,
 The Brahman eminates him in the name. Bhagawath is the Word of Honor. (Great
 (7-2) 1 should be used from where they go.) This
 Bhagawatha. Do you know that the prophets are Metthagu, and it is unto you
-Publishing. “It” is to say the root of the grievance. Hou say, and say redeeming,
+Publishing. "It" is to say the root of the grievance. Hou say, and say redeeming,
 say origin, say the origin, say the food, say the start, the principle
 Say, the presence will say, I will devot, I will put, open
-I will do, I will promulate. “Should you know what to know
+I will do, I will promulate. "Should you know what to know
 Whether to be abusive, this is not the case. This was not known in the news. Parts
 Not taking as. Not by logic. Forms taken from the contrivance
 Not. The view is not transparent. For himself who has been figuring out the thing on his own
 The doctrine is the doctrine.
 
-[APZ 19.3] (#apz19 .3) {#apz19 .3.ref .apz} "Ever due to subfetition,”
+[APZ 19.3] (#apz19 .3) {#apz19 .3.ref .apz} "Ever due to subfetition,"
 SubfeederDecade. Tershna Upadhi, Karma Subdhi, Vulcers
 Subdhi, Food Dhib, Four Spiritual Relics Fuddy, Spiritual Institutions Fuddy,
 The cathedral caused by unconscious consciousness, all sadness is endowed with grief,
@@ -136,39 +136,39 @@ The lungs, kamma and a myriad reward, and this grieving saw. This grieving subpo
 Reasonance is true. In the case of subferens. Occurs, Lower
 WEth. Sight sufferers fall asleep and down.
 
-[APZ 19.4] (#apz19 .4) {#apz19 .4 .ref .apz} "Ofter images”
+[APZ 19.4] (#apz19 .4) {#apz19 .4 .ref .apz} "Ofter images"
 What is something is the rest of all the Omnidirectional
 A word that surround without. 'This is anything'. Tocking is the Hell Locking,
 The mass of the divine locus in human locus is in the locus, in the relic.
-“Noyak Figures” is the name of a sailor. Therefore, the loaders
+"Noyak Figures" is the name of a sailor. Therefore, the loaders
 Was cast by God.
 
 [Msdiv 20] (#msdiv20) {#msdiv20 .ref .msdiv} (4-3)
 
 [APZ 20.1] (#apz20 .1) {#apz20 .1 .ref .apz} "Thirty, One Who Is Not Knowing
-Gathering” means “Yamambano” which has some kind of purpose
+Gathering" means "Yamambano" which has some kind of purpose
 Any constipated man or brahman who came to him or
 A Doctor or a Holy Spirit, or a Household, or a Prophet, or a God, or
-A man or a man. “By not knowing” is the one who does not know the foolish one, the vice
+A man or a man. "By not knowing" is the one who does not know the foolish one, the vice
 Gatherer is a craving accumulator. Collects optics. CleanerSubfixes
 Collects. Karma accumulates suppositos. Collects visocious admonies. Food Sodules
 Collects. Collects redeemable admonies. The four tactic relics collect subtitles.
 Spiritual Institutions collect subtitles. Conscious Conscious Indications
-Collects. Birth. “The senseless person comes back to grief again, 'is repeated
+Collects. Birth. "The senseless person comes back to grief again, 'is repeated
 Kaikaduka, Domnus, for death of a nation to a Jharadoo,
 Strong blows come into the foul. causes, generates, causes paralyzes. Orphanthi senseless
-The person collects the admin. The “senseless one” is the foolish one
+The person collects the admin. The "senseless one" is the foolish one
 He who is disgraced.
 
 [APZ 20.2] (#apz20 .2) {#apz20 .2 .ref .apz} "So by the knower
-Should not be accrued.” So it is from the fact that it is from the same matter, that
+Should not be accrued." So it is from the fact that it is from the same matter, that
 By the way it is considered this one from sleep. All who know
 The editors are other and the person who is discouraging all
 Editors are grieving, figuring out the one who will know that all the dharms are incarnated
 There is a doctrine of birth for any reason to reproach it
 The person who learns to maintain is the one who is figuring out.
 
-[APZ 20.3] (#apz20 .3) {#apz20 .3.ref .apz} "do not collect subtitles” is a craving
+[APZ 20.3] (#apz20 .3) {#apz20 .3.ref .apz} "do not collect subtitles" is a craving
 Do not make subtleic. Optics do not do. Kelles do not make a birth. visuous
 Do not make subtleic. Do not adhere to food, do not adhere to the tabs. Four Apa
 The relics do not disrupt. Spiritual Institutions do not conjute Spiritual Institutions
@@ -178,7 +178,7 @@ Conscious bodiment does not disinfect. Do not cause.
 The grievance of the Jharadicist, the death of the grievance, the Zoks, the hugs, the grievance of the womaness
 Stronger appeal is the grievance.
 
-[APZ 20.5] (#apz20.5) {#apz20 .5 .ref .apz} "Indicates the occurrence” is the root of the grievance
+[APZ 20.5] (#apz20.5) {#apz20 .5 .ref .apz} "Indicates the occurrence" is the root of the grievance
 Indicates, the origin of the origin, is indicated by the presence, the food
 According to the start, the reference is given by the reference, the reference is given by the reference
 Ready. Subpasanawa (seeing according to) is a certain sign (in the Great Niddah
@@ -190,18 +190,18 @@ Sayanayayaya also says. So the congregations said:
 [Msdiv 21] (#msdiv21) {#msdiv21 .ref .msdiv} (4-4)
 
 [APZ 21.1] (#apz21 .1) {#apz21 .1 .ref .apz} "Something We Reviews It To Us
-Reviews and ask for something that is said to be said. “Testimonial to us
-” was said, devoted, worded, placed, opened,
-Proitions were made. “I critique the other thing. It will also be said.” is the other
+Reviews and ask for something that is said to be said. "Testimonial to us
+" was said, devoted, worded, placed, opened,
+Proitions were made. "I critique the other thing. It will also be said." is the other
 I critique something. It is also now said that manuwu, will be brought down
 Manuals, Manuals, Open Manuals, Manuals and Manuals.
 
 [APZ 21.2] (#apz21 .2) {#apz21 .2 .ref .apz} "How to condolence
-Question, queries, if asked, how is the “Dedewa Ogayya?”
+Question, queries, if asked, how is the "Dedewa Ogayya?"
 The question, the question of twelhakana, was thus, and what was this,
-It is the same. “Discreet” is Pandits, Produsers, Intelligences,
+It is the same. "Discreet" is Pandits, Produsers, Intelligences,
 Consciousness is true. 'Ojay' refers to Carmogary, Bavodiya, Ditthogy, Avijhoy.
-(ii) “race” means a drop in the presence of animals that 'jara' is
+(ii) "race" means a drop in the presence of animals that 'jara' is
 It is what it is that a certain jammer of the creatures seems to be dipping. 'Zhoca' is from the cousin or
 Touching LaddhauFrom the Blogs or Touching Laddahu's Constraint
 Or touch Laddahu's Seal Constraint or touch Laddahu's Optics
@@ -215,22 +215,22 @@ It is what a weeping is a hug, a lament.
 
 [APZ 21.3] (#apz21 .3) {#apz21 .3 .ref .apz} "How are the discreet
 It is also stated that the nation's Jara will be more than the mourning.
-Karanu Manuwi, “It” is something critique, ask for something or something goes away
-Ready. “Muni” tells the wisdom what it is. Any signal (in the Great Niddah
+Karanu Manuwi, "It" is something critique, ask for something or something goes away
+Ready. "Muni" tells the wisdom what it is. Any signal (in the Great Niddah
 (2-8) Any signal should be used from 10 to 14.)
 If the Dhamma Viedara, the name of the Epothecary, then the Conscious Consciousness
-What was called Muni? “Moneya”
+What was called Muni? "Moneya"
 What is Bodybody, Wachi what is, what is he. What is the body?
 (2-8) (ii) (12) (13) shall be used) and shall be promulted
 Manuwana manuwi, worm. Constant. Opening Points
 Manualy. Divide Measure. Measure the pros. It bristled me
 Manurements of caranu. This doctrine is thus the doctrine which you have adhered to.
-So is the doctrine that you have known by God. Therefore, Brahma“
+So is the doctrine that you have known by God. Therefore, Brahma"
 .
 
 [Msdiv 22] (#msdiv22) {#msdiv22 .ref .msdiv} (4-5)
 
-[APZ 22.1] (#apz22 .1) {#apz22 .1 .ref .apz} "I will devote doctrine to”
+[APZ 22.1] (#apz22 .1) {#apz22 .1 .ref .apz} "I will devote doctrine to"
 The beginning of this is the middle good and the late good defined communities.
 Four Sitematores Brahmecharia Four Sitematores
 Four Negative Pneyachendiyans Penshaha Powers Sapthabocentrayangayan Aryan
@@ -239,11 +239,11 @@ I will make a devotion. I will divide. I will do the same.
 
 [APZ 22.2] (#apz22 .2) {#apz22 .2 .ref .apz} "The Trusts' Metthagu
 This is not said in the news, I will decipherate the doctrine of the mankind.
-Dharma” is the one who decided in the doctrine which was known in the doctrine of the saw
+Dharma" is the one who decided in the doctrine which was known in the doctrine of the saw
 (ii) All the editors of the doctrine prophesy of the doctrine are unreal all
 The editors grieve all doctrines. A Reasonated
 Dharma Adda, the Dharma which saw it all for reproach.
-The doctrine is the same. In the doctrine which was seen in this way, “Know from the news
+The doctrine is the same. In the doctrine which was seen in this way, "Know from the news
 Not so heard or taken in part or in parts or reasoning
 As or in forms, or by penetration of view or not
 I will give to him the doctrine which was prophesy unto him, which was sought after.
@@ -275,15 +275,15 @@ Chathuwakara Bawawawawatha's future of the past
 What is touched in what is heard in the doctrines that should be known in what is heard.
 The name of scattering Wizathika.
 
-[APZ 22.6] (#apz22 .6) {#apz22 .6 .ref .apz} "Location” is in Hell Location
+[APZ 22.6] (#apz22 .6) {#apz22 .6 .ref .apz} "Location" is in Hell Location
 Entities of the relic of the mass of the divine locus in the human sphere
-Ready. “If the wenth of Loku, the cravings shall cross, the Loka is that
+Ready. "If the wenth of Loku, the cravings shall cross, the Loka is that
 The wickedness will cross the locker, or that disunity, or in remembrance. EnNinth,
 Ready.
 
 [Msdiv 23] (#msdiv23) {#msdiv23 .ref .msdiv} (4-6)
 
-[APZ 23.1] (#apz23 .1) {#apz23 .1 .ref .apz} "I am happy with it”
+[APZ 23.1] (#apz23 .1) {#apz23 .1 .ref .apz} "I am happy with it"
 What is the pleasure of your word. I am Animoden. I would like. Ready.
 What is the 'Maharshi' because of what is the 'Maharshi'? Mathew Shields
 A crowd searched, gouted, researched. Therefore, the name of Maharshi. Gentlemen
@@ -308,7 +308,7 @@ Maharshi name. Maharshi doctrine is the greatest saws. All those editors are com
 The perished Nibbana is high, where all the infests are stored, and the cravings are discarded
 Ash, the chief, is the noble doctrine, the name of Mahezee.
 
-[APZ 23.2] (#apz23 .2) {#apz23 .2 .ref .apz} "Know Is Behaving Remembrance”
+[APZ 23.2] (#apz23 .2) {#apz23 .2 .ref .apz} "Know Is Behaving Remembrance"
 All editors know that the decision is unequivocal
 All editors grieve when making a decision and all doctrines know skin
 There is a doctrine for some reasons and all that
@@ -331,8 +331,8 @@ Brahmana himself said:
 [Msdiv 24] (#msdiv24) {#msdiv24 .ref .msdiv} (4-7)
 
 [APZ 24.1] (#apz24 .1) {#apz24 .1 .ref .apz} "Some KissFiguring out how to know
-It will also be. “Metthagu” is the one of the spheters in the name of Brahman
-Armonts. “Bright” is the Word of Honor. (Great Niddeesa (7-2) 4
+It will also be. "Metthagu" is the one of the spheters in the name of Brahman
+Armonts. "Bright" is the Word of Honor. (Great Niddeesa (7-2) 4
 Should be applied.) The prophecy is also the prophecy. This is Bhagagaha.
 The gardeners are of 'Metagh', of the man, of the hath, under, and the middle of the middle.
 tells the future. Underneath tells the past. Sarasa and middle tell the present.
@@ -346,11 +346,11 @@ It is a central lotus that has an Akusshal root. The 'home' is two home.
 The home of the cravings is also the home of view. (Niddezah (2-6) 1 (ii) (iii)
 The home should be changed to 'change' motherhood '.)
 
-[APZ 24.2] (#apz24 .2) {#apz24 .2 .ref .apz} "Consciousness is impoverished” is a Funny
+[APZ 24.2] (#apz24 .2) {#apz24 .2 .ref .apz} "Consciousness is impoverished" is a Funny
 Editorical Consciousness, Inspicuous Editorical Consciousness, Annejabi
 Editorized Conscious, the Nandiya, the home and the Conscious
-Conscious also leads to the complete demise of the impossibility of constipation. “Jewelery
-“Conscious shall not remain”, there are two names of the troops. Karma Reductions
+Conscious also leads to the complete demise of the impossibility of constipation. "Jewelery
+"Conscious shall not remain", there are two names of the troops. Karma Reductions
 Ofter. Revival or Wei.
 
 [APZ 24.3] (#apz24 .3) {#apz24 .3.ref .apz} What is Karma, Funny
@@ -361,7 +361,7 @@ Except not in the jewelery. Wherefore saith the chapters.
 [Msdiv 25] (#msdiv25) {#msdiv25 .ref .msdiv} (4-8)
 
 [APZ 25.1] (#apz25 .1) {#apz25 .1 .ref .apz} "In remembrance
-He who is impostable”, 'thus abode, 'is the Nandiya and the home
+He who is impostable", 'thus abode, 'is the Nandiya and the home
 Conscious Conscience, Karma, Revival Revival
 The constipation will bring complete demise. 'Remembrance Facts
 In four, the name is remembrance. The formation of mindfulness in terms of its own (1-8) 4
@@ -382,11 +382,11 @@ Incosterity Voicewhether it will, effort, and application, whether it will be ma
 Inretreatment, and the presence of a heart, and the wise, and the elasticity of the heart.
 Heerage, determination, whether it is to engage in inhalations.
 
-[APZ 25.2] (#apz25 .2) {#apz25 .2 .ref .apz} "Bhikhu” is a project or
+[APZ 25.2] (#apz25 .2) {#apz25 .2 .ref .apz} "Bhikhu" is a project or
 Monk is stylistic (Hikmena) or monk. Behave is what to behave
 The dwelling is conducted on which the posture is dependent.
 
-[APZ 25.3] (#apz25 .3) {#apz25 .3.ref .apz} “motherhood” are two mother-in-law. Cravings
+[APZ 25.3] (#apz25 .3) {#apz25 .3.ref .apz} "motherhood" are two mother-in-law. Cravings
 Matia is also a visual mother. (hereinafter (2-6) 1 (ii) (iii)
 Must.) Except the motherhood and dismiss the sight motherhood and dismiss the motherhood
 Leave the constipation and completely go away. Discreet monk
@@ -397,7 +397,7 @@ The 'race' shall be applied in (4-4) 2 (ii) of those beings. If motherhood
 (iii) The ballot should be applied.) Here is a view of this (in the Great Niddha
 (2-6) 1 (ii) (iii) shall be applied. This is the discreet in the world of man
 The knower is the produte and the person. Sadness is Nation Sadness (4-3) 4
-Should be applied from where “sad”) Jathi Jara grief and grief here
+Should be applied from where "sad") Jathi Jara grief and grief here
 He who is discreet, is that he who is in science is discreet,
 The prophecy and he shall be born here, and he shall grieve, and mourn;
 Convenient. Complete demise. Race Jara Shocks
@@ -410,8 +410,8 @@ This means that I am happy, happy to match your word,
 I will, tolerate, place, favor, and give. 'Maharshi 'is (4-6) 1 Year
 Must be applied.
 
-[APZ 26.2] (#apz26 .2) {#apz26 .2 .ref .apz} "briquetted” is a briquetted
-Reading, the brique-imposed briefs are also open. 'Subdhi”
+[APZ 26.2] (#apz26 .2) {#apz26 .2 .ref .apz} "briquetted" is a briquetted
+Reading, the brique-imposed briefs are also open. 'Subdhi"
 Saws and masses, editors saws. Subdal Protect, Subdal Constipation,
 The impeccable Nibbana was made.
 
@@ -419,7 +419,7 @@ In that way, the spheters gave sorrows. It is by name
 The monotonous word, the real word. The word that is doubtful. The word without two ideas
 The word of repulsion. Waste is the word. The permanent word. This is what it is.
 
-“Bright” is the Word of Honor. (The Great Niddezah (7-2) 1
+"Bright" is the Word of Honor. (The Great Niddezah (7-2) 1
 Should be applied from where it goes.) Sadness arisen. (ii) nation sadness and jara
 Sadness caused a strong sorrow, a hug physical sadness, a Domnasa gave a strong appeal of sadness.
 Constipated. (iii) The same was known by you.
@@ -429,20 +429,20 @@ Deadly. Therefore, Brahmana said:
 [Msdiv 27] (#msdiv27) {#msdiv27 .ref .msdiv} (4-10)
 
 [APZ 27.1] (#apz27 .1) {#apz27 .1 .ref .apz} "They also dispel sadness
-Do” are those trims, Brahmins, and Doctor, Holy Spirit,
-The domestics, the proveyors, and the two times, the men were dismantling. “If sadness”
+Do" are those trims, Brahmins, and Doctor, Holy Spirit,
+The domestics, the proveyors, and the two times, the men were dismantling. "If sadness"
 (4-9) 2 (ii) shall be applied to race sadness.) Dumb, constipation,
-Complete demise, “Muni” is “what” to come to the consciousness
+Complete demise, "Muni" is "what" to come to the consciousness
 says. (2—8 of the Great Sleepings) 10 should be applied from where Muni is going.) Cravings
 Muni even exceeded the network, admoniate admonishes. warding warns
 doer. Frequently admoniate. Repeat admonition. Patronage
-Ready. “Naga” is what makes it amentrance to the spasms. “curly” is
+Ready. "Naga" is what makes it amentrance to the spasms. "curly" is
 Kaine curls, word or curls, heart or curls, alias policy
 Or curly, or by doctrine policy. Care, respecting
-I, multidimensional, multidimensional, “Collections gather, forgetfully worship Him.
-Ready. “Naga” is Nagasena, Naga, because they do not transgression,
+I, multidimensional, multidimensional, "Collections gather, forgetfully worship Him.
+Ready. "Naga" is Nagasena, Naga, because they do not transgression,
 Noyenui Naga. Naga, absent. How the Guilty of the Trusts
-Nagama “guilt” because of undoing, a returnee who caused laminable felles
+Nagama "guilt" because of undoing, a returnee who caused laminable felles
 Lator Akushala Dharmayo, who will again give death to the nation and death of the grievous reward.
 Saw. (In the Great Sleepness (9-11) 2 should be applied.) Gathering to the Nagyan
 I worship with that point. If I admoniently admoniate
@@ -452,22 +452,22 @@ Therefore, Brahmana said:
 [Msdiv 28] (#msdiv28) {#msdiv28 .ref .msdiv} (4-11)
 
 [APZ 28.1] (#apz28 .1) {#apz28 .1 .ref .apz} "Something Brahman Names Wedagu
-“Brahmina” is the exclusion of Dhamma, since Brahmina is a “Brahmina”
+"Brahmina" is the exclusion of Dhamma, since Brahmina is a "Brahmina"
 NAMI. (4-3) (1) Brahmina should be used from where it goes.)
-“Teeth Teeth” goes to the vein. Tharamatha tells the informant. (Mahaniddeesa (4-5)
+"Teeth Teeth" goes to the vein. Tharamatha tells the informant. (Mahaniddeesa (4-5)
 3 (ii) Should be applied.) 'Maniference' is known. Particularly known.
 Figuring out. Cintura (Kelles) are not rags, malice
 Thickness, mucus, dimensional sneaks, vision sneaks, clayey sneaks,
 Some of the things that are visocious, and that they were originally inscripted.to be born
 Ayoch says that the fire was burned, and the wisdom was called.
 
-[APZ 28.2] (#apz28 .2) {#apz28 .2 .ref .apz} "Kama Names”
+[APZ 28.2] (#apz28 .2) {#apz28 .2 .ref .apz} "Kama Names"
 Two sections. Object rooms are also cleavage rooms. (1 (i) (ii) of the Great Niddice 2
 Should be applied.) The saws go to the clayshamayo. There are two names of Bhavayo. Karma
 Revival is also the rejuvenation. 'Unicrable (not straight) person
 Unvisited in the room. Unfolded, Constant, Separated Unrestricted Mindfulness
 also. And the same was the same, and this was crossed, and said,
-“From it” is the monotonous word. Ogya is Carmogary, Bhavogidya, Ditthogy,
+"From it" is the monotonous word. Ogya is Carmogary, Bhavogidya, Ditthogy,
 Avivorie, crossed. is the exceeded, and is the same. This is the one that crossed
 Cropped the carmogaia. Bhavogidya crossed, Ditthoghe crossed. Heathly decomposition Wasa
 There is, there is the habituated travel, there is the left end, there is the direction that went, the control
@@ -480,7 +480,7 @@ The trench is segmented. The spooked cage is segmented. Discharge lock is segmen
 Shantha Dhamma is segmented. The weight of the saliva is weighed. Separate from rooms (Great
 20 should be applied on Niddeusa (1541)
 
-[APZ 28.3] (#apz28 .3) {#apz28 .3.ref .apz} “The same way for the country”
+[APZ 28.3] (#apz28 .3) {#apz28 .3.ref .apz} "The same way for the country"
 Thratharaya tells Nibbana. All editors in a particular house did shout
 All the indices were conjured, the cravings were depletedIs it that the genitourless,
 Ninched. Heathrow went to the extreme and went to the extreme
@@ -488,13 +488,13 @@ came to the end, went to the end, came to the end, went to the security
 came into Sarana, came into sanctuary, went into sanctuary, came into sanctuary,
 went to soar, went to soar, came to urrum, came to Nibbana
 Got to Nibbana, Heathly was dissipated (in the Great Niddezah (3-7) 6
-(ii) Should be applied.) There is no rebirth. “Hull not” is Raghula (Great
+(ii) Should be applied.) There is no rebirth. "Hull not" is Raghula (Great
 15—5 (1) of Niddeesah should be used from Hull.) Collect all the fissure
 Someone named Hull, did this Hull and first of all, Shantha
 In comparison, how to be born, and the fire called wisdom (Continue)
 Hull says no.
 
-[APZ 28.4] (#apz28 .4) {#apz28 .4 .ref .apz} "not doubt” is a doubt of sadness
+[APZ 28.4] (#apz28 .4) {#apz28 .4 .ref .apz} "not doubt" is a doubt of sadness
 To do, to suspect sadness, to suspect grief, to be sad
 Suspicious of the Nurodagamini refusement, suspected in the precedent,
 Suspicious of Crime, Preparation, Preparation
@@ -506,14 +506,14 @@ Says no doubt. So did the bugger.
 
 [Msdiv 29] (#msdiv29) {#msdiv29 .ref .msdiv} (4-12)
 
-[APZ 29.1] (#apz29 .1) {#apz29 .1 .ref .apz} "The person who is science” is
+[APZ 29.1] (#apz29 .1) {#apz29 .1 .ref .apz} "The person who is science" is
 The wise one. The tooth is the one who is the four ways to know
 says. (Great Niddezah (4-5) 3(ii) Should be applied.)
 
-[APZ 29.2] (#apz29 .2) {#apz29 .2 .ref .apz} "Naraya” is the man man,
+[APZ 29.2] (#apz29 .2) {#apz29 .2 .ref .apz} "Naraya" is the man man,
 The person, life is. Here it is in this human locality, in this view.
 
-[APZ 29.3] (#apz29 .3) {#apz29 .3 .ref .apz} "Bawabawawawawawawawya” is Karma
+[APZ 29.3] (#apz29 .3) {#apz29 .3 .ref .apz} "Bawabawawawawawawawya" is Karma
 Karma, images of the revival of the revival, Karma of the image
 Karma of Bhavawya, Revival, Revival of Unidawawawya, Revival of Immorbivya
 Repeatly in the prophylacter, in the repetition,
@@ -523,7 +523,7 @@ Ready. Dirty means the associations are deviated, and the bending is the stickin
 Separated and dismantled in the lodge. There is also a tormented craving, persecution
 I say, I have crossed the nation's jaars.
 
-[APZ 29.4] (#apz29 .4) {#apz29 .4 .ref .apz} "If craving” images sound craving,
+[APZ 29.4] (#apz29 .4) {#apz29 .4 .ref .apz} "If craving" images sound craving,
 Odors, tastes, touches are craving. Whether this craving of someone is secret, initially
 Sindunae and Shantha, and the desire to be born, the fire of wisdom,
 There are discarded cravings, there are discarded cravings,
@@ -531,7 +531,7 @@ The marrow craving is the secret cravings are the five ragas separated ragas
 There is a consonant raga, with craving, twune, unconscious, comforted
 The Brahman is inhabited by such self-esteem. Hemah destroyed the lust,
 Malice destroyed, destroyed the brains, destroyed the crusher and destroyed the transplanted hatred
-(In Great Niddeesi (9-3) 3 “Shanthi” is discriminated against 'devastated'
+(In Great Niddeesi (9-3) 3 "Shanthi" is discriminated against 'devastated'
 Must. In 1662) destroyed all the collectors of the letter, originally in Sinde,
 Shanthapa Sanasidunae, who was born and destroyed the cravings
 Anal saw, cravy-free is a certain lust that is an adda center
@@ -539,7 +539,7 @@ A lotus is a source that says it does not have this craving for someone, initial
 Shantha, Shantha. Convenience, how to be born, and the fire called wisdom
 It also says that he desires.
 
-[APZ 29.5] (#apz29 .5) {#apz29 .5 .ref .apz} “races” are born
+[APZ 29.5] (#apz29 .5) {#apz29 .5 .ref .apz} "races" are born
 It is the case that a certain digestion is digested. The waller of those creatures called shit
 It is an occurrence, a drop, a vein. This is why the Indies have a certain maturation
 Jharai says, Someone did not suffer the cravings, neither did he desire

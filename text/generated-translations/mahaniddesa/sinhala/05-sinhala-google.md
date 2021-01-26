@@ -220,7 +220,7 @@ He who removes the impurities is said to be a Brahmin. Who do not take the view
 That is the Brahman who does not consult and does not enter into it.
 
 [APZ 37.3] (# apz37.3) # apz37.3 .ref .apz} "Wondering what to do in this world
-Do. ”There are two thoughts: lustful thinking and visual thinking.
+Do. "There are two thoughts: lustful thinking and visual thinking.
 (ii) (paragraph 1 (ii) (iii) (2-6) changed the mindset to "instead of ego"
 Should (iii) His lustful idea pierced. The visual idea calmed down. Lust
 Wondering what lust is because the visual idea is soothed because the idea is gone
@@ -243,7 +243,7 @@ In the world (paragraph 4-6 should be used here)
 [Msdiv 38] (# msdiv38) # msdiv38 .ref .msdiv} (5 - 8)
 
 [APZ 38.1] (# apz38.1) # apz38.1 .ref .apz} "Unthinkable, major
-Do not take. ”Thoughts are two thoughts: lustful thoughts and visual thoughts
+Do not take. "Thoughts are two thoughts: lustful thoughts and visual thoughts
 (Paragraph 3 (ii) should apply here.)
 
 \ (iii \) What is lustful thinking? I am also surrounded by a limited number of desires
@@ -292,7 +292,7 @@ Discipline is not to be taken for granted. "
 Nusula does not go through fasting or both virtuous deeds.
 
 [APZ 38.6] (# apz38.6) # apz38.6 .ref .apz} "The immovable went back abroad
-Does not come. ”The gap is the immortal Nibbana
+Does not come. "The gap is the immortal Nibbana
 Editions appeased, suppressed all defilements, extinguished lust called Viraga
 That's it. He went abroad. Abroad
 Came. Went to the corner. Came to an end. He has no ethnic death rites.

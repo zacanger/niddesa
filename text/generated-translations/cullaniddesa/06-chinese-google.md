@@ -34,7 +34,7 @@ when you know with wisdom; We should learn when we are proved (??); we should
 learn when we should be omniscience (??); we should learn when we should be
 renounced; we should learn when we should be practiced as evidence
 (testimony??); Learning [Ps.1,41.], should be practiced, should be carried out
-well, and should be turned after being held up.” It is because you should learn
+well, and should be turned after being held up." It is because you should learn
 for your own Nibbana.
 
 
@@ -63,162 +63,137 @@ thoughtful right here.
 32. I saw all the Brahman actors in heaven and the world of men, (there are no Brahman actors??)
 I respect (salute??) you, you are all eyes (??), Shakyamuni! Please free me from doubts.
 
----
-checkpoint
----
-
-"I saw in the world of heaven and man": "Heaven", there are three kinds of
+"I saw in heaven and the world of men": "Heaven", there are three kinds of
 heaven: secular heaven, reborn heaven, and pure heaven. What is secular heaven?
-Kings and princes and queens are called secular heavens, and these are called
-secular heavens. What is the rebirth? The Four Kings, Thirty-Three Heavens, Ye
-Motian, Tusita Heaven, Hua Le Tian, He Hua Zi Tian, Brahma All Heavens, and all
-the heavens above that are called Rebirth Heavens, and these are called Rebirth
-Heavens. What is Qingtian? [Tathagata,] The troubles of the Tathagata disciples
-have been exhausted. Arahats and Fanzhu Pichi Buddhas are called pure pure
-heavens, and these are called pure pure heavens. The Blessed One is the heaven
-of the secular and the departed heaven, the heaven of the pure heaven, the
-victorious heaven, the heaven of the heaven, the lion among the lions, the
-dragon among the dragons, the lord among the lords, the muni among the lords,
-the king among the kings. "I see in the sky and in the world of man": "In the
-world of man I see the sky; I see the superior sky; I see the sky in the sky, I
-see, I watch, I meditate, I observe." In the world of heaven and man.
+Kings and princes and queens are called secular heavens. What is the rebirth?
+The Four Kings, Thirty-Three Heavens, night days, day of the day, free days
+(??), all Brahma heavens, and all the heavens above that are called Rebirth
+Heavens. What is pure heaven? [Tathagata,] The troubles of the disciples of the
+Tathagata have been exhausted. Arahats and Fanzhu (??) Bhikkhu Buddhas are
+called pure heavens. The Blessed One is the heaven of the secular and the
+departed heaven (??), the heaven of the pure heaven, the victorious heaven, the
+heaven among the heaven, the lion among the lions, the dragon among the dragons,
+the lord among the lords, the muni among the munis, the king among the kings. "I
+see in the heavens and in the world of man": "In the world of man I see the
+heavens (??); I see the superior heaven; I see the heaven in the heaven, I see,
+I watch, I meditate, I observe." In the world of heaven and man.
 
-"Brahman activist without possessions": ""Nothingness", greed of nothingness,
-hatred of nothingness, ignorance and nothingness, slowness and nothingness,
-seeing nothingness, pollution and nothingness, evil deeds and nothingness,
-whatever those who treat the Buddha and the world It has been cut off, and the
+"Brahman actors (doers) without possessions": ""No", no greed, no hatred,
+...ignorance, sloth, seeing (sight), pollution, evil deeds; any of those who
+treat the Buddha (for Buddha??) and the world (??), it has been cut off, and the
 roots have been cut off, just like a palm tree without roots, becoming
 non-existent and immortal for the future. Therefore, the Buddha is called no
-owner. "Brahman", the Blessed One is the Seven Dhamma The excluded state is
-Brahman: seeing is excluded, suspicion is excluded, abstinence is excluded,
-greed is excluded, aversion is excluded, ignorance is excluded, slow is
-excluded, and those evil and unwholesome laws are excluded: those that are
-polluted, there are again. People who are fearful, who suffer the consequences,
-and will die in the future.
+owner (not owner of these things??). "Brahman", the Blessed One is the Seven
+Dhammas, the excluded state is Brahman (the Blessed One is the excluded state of
+the seven laws of Brahmin ??): seeing is excluded, suspicion is excluded,
+abstinence.., greed..., aversion, ignorance, sloth, and those evil and
+unwholesome dhammas are excluded: those that are polluted, there are again.
+People who are fearful, who suffer the consequences, and will die in the future.
 
-[Blessed One][Sn.3.6, 524 verses]
+[Blessed One:] [Sn.3.6, 524 verses]
 
-『After all evil is eliminated, the state where the decontaminated good enters
-the concentration standing,
+"After all evil is eliminated, the state where the decontaminated good enters
+the concentration standing (dwelling),
+He transcends samsara and becomes a consummation (hero??). Those who are not dependent,
+like this can be called a Brahman. "
 
-He transcends samsara and becomes a Consummation. Those who are not dependent,
-like this can be called a Brahman. 』
-
-『Actor』, walker[, walker], dweller, actor, turner, guardian, survivor, and
-survivor. "Is a Brahmin activist who has nothing.
+"Actor", walker, doer, dweller, turner, guardian, and survivor. "A Brahmin
+actor who has nothing.
 
 "I respect you, you are all eyes": ""You", he said the world-honored. "I
 respect", I respect with my body, or I respect with words, or I respect with my
-heart, or I Respect in its meaning, or I follow the law to respect, respect,
-respect, respect, respect [, respect]. "All eyes are", all eyes are called the
-state of all knowing wisdom. The Blessed One arrives (have), The state
-intelligence of fully reaching (having), entering, fully entering, having
-enough, having all the knowledge.
+heart, or I respect in its meaning, or I follow the Dhamma to show respect,
+salute . "All eyes", all eyes are called the state of all knowing wisdom. The
+Blessed One arrives (has) (??), the state of intelligence of fully reaching
+(having), entering, fully entering, having enough, having all the knowledge.
 
-『For him, there is nothing unseen here (in this world), there are still
-unknowable, unknowable things,
+"For him, there is nothing unseen here (in this world), there are still
+unknowable, unknowable things (there are _no_ unknowable things??), He proves
+that everything that exists should be guided, because the Tathagata is like that
+for all eyes. (as it is for all eyes??)"" [Ps.1, paragraph 121]
 
-He proves that everything that exists should be led to infer, because the
-Tathagata is like that for all eyes. "" [Ps.1, paragraph 121]
-
-Respect you for me, you are all eyes.
+I salute you, you are all eyes.
 
 "Sakyamuni! Please free me from doubts": "Sakyamuni", "Sakyamuni is a monk from
-the house of Sakyamuni." It is Sakyamuni. Or, "the rich, the rich, the rich." It
-is also Shakya. For him there are these wealth, namely: trusting wealth,
-abstaining from wealth, ashamed of wealth, ashamed of wealth, hearing about
-wealth, givingGive wealth, wisdom wealth, mindfulness of wealth, righteous
-wealth, divine wealth, root wealth, strength wealth, enlightenment wealth, Tao
-wealth, fruit wealth, Nibbana wealth, and use these various treasures as the
-rich, the rich, and the rich. Or, "Those who are possible, those who are able,
-those who flow out all kinds of things, those who are sufficient, those who are
-heroes, those who are brave, those who are brave, those who are not timid, those
-who are not frightened, those who are not frightened, those who do not run away,
-those who have given up fear of fear, those who have left their bodies The
-erector." Also Sakyamuni. Doubts are called doubts: doubt on suffering,
-suspicion on suffering, suspicion on suffering, suspicion on the path leading to
-suffering, suspicion on the front, doubt on the back, Suspicion in the context
-of the context, the suspicion in the specific conditional condition, such
-doubts, doubts, doubtful states, confusion, hesitation, doubts, crossroads
-(doubts), doubts, inconsistent grasping, doubts , Hesitating, incomplete
-understanding, stiff state, confusion of mind. "Sakyamuni! Please free me from
-doubt": "Please free me; please free me; please free me; please free me; please
-pull me out; please pull me out completely; I stabbed an arrow out of doubt."
-For Sakyamuni! Please free me from doubts.
+the house of Sakya." This is Sakyamuni. Or, "the rich, the wealthy." This is
+also Shakya. For him there are these wealth, namely: trusting wealth, abstaining
+from wealth, ashamed of wealth, hearing about wealth, giving wealth, wisdom
+wealth, mindfulness of wealth, righteous wealth, divine wealth, root wealth,
+strength wealth, enlightenment wealth, Path wealth, Fruit wealth, Nibbana
+wealth, and use these various treasures as (for??) the rich, the wealthy. Or,
+"Those who are possible, those who are able, those who flow out all kinds of
+things, those who are sufficient, those who are heroes, those who are brave,
+those who are heroic, those who are not timid, those who are not frightened,
+those who do not run away, those who have given up fear of fear, those who have
+given up terror and fear." Also Sakyamuni. Doubts are called doubts: doubt on
+suffering, doubt on the path leading to suffering, doubt on the foreground,
+doubt on the background, doubt in the context of the context (??), the doubt in
+the specific conditional condition (??), such doubts, suspicions, doubtful
+states, confusion, hesitation, crossroads, inconsistent grasping, hesitating,
+incomplete understanding, stiff state, confusion of mind. "Sakyamuni! Please
+free me from doubt": "Please free me; please release me; pull me out; please
+pull me out completely; bring me out of doubt." Sakyamuni! Please free me from
+doubts.
 
-33. I will not be able to be liberated: Dudag! Anyone who doubts in the world,
+33. I will not be able to liberate you: Dudag! Anyone who doubts in the world,
+When you know the best way, then you will get through this storm.
 
-When it comes to knowing the best way, then you will get through this storm.
+"I will not be able to liberate": "You, I will not be able to release, free,
+make liberated, pull out, pull out completely, make to ascend, make to fully
+ascend, in a doubtful arrow state (of being struck with the arrow of doubt??).
+"I will not be able to liberate". Or, "I don't work hard on the unbelievers, on
+the unwilling, on the slack, on those with inferior vitality, on the inactive; I
+don't do my best; I don't strive; I don't do with valor; I don't work with
+enthusiasm; I don't make fortitude; I don't make determination; I don't make
+vitality; I don't make it produce; I don't make it appear; I don't make it fully
+produced; I don't make it arise; I don't make it give birth to the teachings of
+the Dhamma." This is also incapable of liberation. Or, "You don't have any other
+liberators. Those who can be liberated use their own fortitude, with their own
+energy, with their own striving, with their own brave efforts, with their own
+power, with their own human power, with their own human vitality, with their own
+work, with their own correct way of doing, following the path, not going the
+opposite way, the way of following the Dhamma, and the way of doing the Dhamma,
+they can be freed." This is also the way I will not be liberate you.
 
-"I will not be able to liberate": "You, I will not be able to release, liberate,
-make liberated, make liberated, pull out, pull out completely, make ascend, make
-full ascend in doubtful arrow state." This way I will not be able to liberate .
-Or, "I don’t work hard on the unbelievers, on the unwilling, on the slack, on
-the inferior vitality, on the inactive; I don’t try my best; I don’t try my
-best; I don’t work hard; I don’t do Courageous; I don’t make enthusiasm; I don’t
-make fortitude; I don’t make determination; I don’t make vitality, I intend that
-I don’t make it produce; I don’t make it produce [; I don’t make it appear; I
-don’t make it fully produced]; I don’t make it It arises; I don’t make it give
-birth to the teachings of the Dhamma.” This is also incapable of liberation. Or,
-"You don’t have any other liberators. If they can be liberated, use their own
-power (fortitude), with their own energy, with their own energy, with their own
-efforts (brave), with their own power, With their own human power, with their
-own human vitality, with their own efforts, with their own correct way of doing,
-following the way of going, non-opposite way, the way of following the law, and
-the way of doing the law, they can Freedom." This is also the way I will not be
-free.
+This was said by the Blessed One: "Chunta (Pure??)! "I am the one who has fallen
+into the quagmire and will pull out the other people who have fallen into the
+quagmire." This is impossible. Chunta! "I am an unregulated, untrained,
+non-Nibbana one. I will make others tune, train, and attain Nibbana." This is
+impossible. [MN.8]" This is also being incapable of liberating you.
 
-This was said by the Blessed One: "Chunta! "I am the one who has fallen into the
-quagmire and will pull out the other people who have fallen into the quagmire."
-This is impossible. Chunta! "I am an unregulated, untrained, non-nibbana one. I
-will make others tune, train, and Nibbana." This is impossible. [MN.8]" This is
-also incapable of liberating me.
-
-This is said by the World Honored: [Dph.12,165偈]
-
-"I have done evil, I become pollution,
-
-I do not do evil, I become pure,
-
-Purity and impurity are separate, not one can make the other pure. "
-
-This is also for liberation I will not be able to.
+This is said by the World Honored One: [Dph.12,165偈]
+"He has done evil, he is polluted,
+He who does do not do evil, he comes pure,
+Purity and impurity are separate, one cannot make the other pure."
+This is also not being able to liberate you.
 
 This was also said by the Blessed One: "Similarly, Brahmin! Nibbana stays and
-stands, which leads to the way of Nibbana stays and stands. My persuasion stays.
-However, when my disciples are taught and taught in this way, some of them have
-reached the ultimate end Nibbana, certain ones will not arrive, Brahmin! What
+stands, which leads to the way of Nibbana stays and stands (?? Nibanna lived,
+guided by the way of Nibbana??). My persuasion stays (My advice to live??).
+However, when my disciples are taught and admonished in this way, some of them
+have reached the ultimate end Nibbana, but some will not arrive, Brahmin! What
 can I do here? Brahmin! Tathagata is the waypointer. [MN.107] Buddha only tells
 (guides) the way, and they can be liberated when they practice it by
-themselves." Also for liberation I will not be able to.
+themselves." This also is not being able to liberate you.
 
-"Dugh! Any doubter in the world": "A doubter, a person who has doubts,
-confusion, doubts, and hesitation. "Any (person)", any Kshatriya, or Brahman, or
+"Any doubter in the world": "A doubter, a person who has doubts,
+confusion, and hesitation. "Any (person)", any Kshatriya, or Brahman, or
 Vaisha, or Sudra, or layman, or monk, or heaven, or person. "In the world", in
-the world of the suffering world... (in the world) in the world. "It's Dudag!
-Any doubter in the world.
+the world of the suffering world... (omitted). Any doubter in the world.
 
 "When knowing the most triumphant Dhamma": "The highest Dhamma is called
-immortality, nibbana, which is the cessation of all actions, the cessation of
-all attachments, the cessation of craving, greed, extinguishment, and nibbana.
-"Supreme (的)』, the first, the most victorious, the extraordinary, the first,
-the most, the most advanced method, when knowing, distinguishing, knowing,
+immortality, Nibbana, which is the cessation of all actions, the cessation of
+all attachments, the cessation of craving, greed, extinguishment, and Nibbana.
+"Supreme, the first, the most victorious, the extraordinary, the highest,
+the most advanced method; when knowing, distinguishing, understanding,
 through." When knowing the most winning method.
 
-"This way you will get through this storm": "Such a storm of desire, some storm,
-the storm of seeing, the ignorantYou can get through, you can surpass, you can
-pass, you can pass, you can overcome the storm. "For this you will get through
-this storm.
+"This way you will get through this storm": "Such a storm of desire, the storm
+of seeing, the ignorant, you can get through, you can surpass, you can you can
+overcome the storm. "For this you will get through this storm.
 
-Because of that, the Lord said:
-
-"I will not be able to liberate me: Dudag! Anyone who doubts in the world,
-
-When it comes to knowing the best way, then you will get through this storm. "
-
-34. Brahman! The compassionate person asks you to teach me, I can know how to
-    stay away from the law,
-
+34. Brahman! The compassionate person asks, teach me, I can learn to stay
+away from the Dhamma (??),
 I am like the harmless person in the void, here I can walk silently and
 unstoppable.
 
@@ -226,7 +201,11 @@ unstoppable.
 teach the commandment; Brahman! Please help; Brahman! Please be merciful."
 Brahman! Please teach the commandment. "The compassionate person", The
 compassionate, the sympathizer, the protector, the funder, the compassionate."
-For the Brahmin! The compassionate person asks you to teach.
+Brahmin! The compassionate person asks you to teach.
+
+---
+checkpoint
+---
 
 "I can get away from the Dhamma that I can know": "Away from the Dhamma is
 called immortality, Nibbana, that is the cessation of all actions, the cessation
@@ -248,8 +227,8 @@ who does not fight back." This is also like the absence of the void By.
 
 "Just here you can walk silently and unrestrainedly": ""Just here silently",
 "when you are here; when you are here; when you are sitting here; when you are
-sitting on this seat ; It’s when sitting down among the crowd.” This is just
-here silently. Or, “Just here is silent, silent, calm, cooled, stopped.” This is
+sitting on this seat ; It's when sitting down among the crowd." This is just
+here silently. Or, "Just here is silent, silent, calm, cooled, stopped." This is
 also here silent There are two kinds of dependence in the "non-resistance
 ground": the dependence of craving and the dependence of seeing... (Omitted)
 This is the dependence of craving... (Omitted) This is the dependence of
@@ -271,14 +250,6 @@ Those who have left, have given up, have been freed, have been separated from
 the bondage, he is separated The heart of limitation [to live]. "Can do", can
 do, can live, can act, can turn [, can guard], can survive, can survive."
 Because it is here to be able to quietly, not rely on Ground line.
-
-Because of that, the brahmin said:
-
-"Brahmin! Those who are compassionate, please teach me, I can learn to stay away
-from Dhamma,
-
-I am like the harmless person in the void, here I can walk silently and
-unstoppable. "
 
 35. [World Zun: "Dadage!"] I will tell you the silence, in life rather than
     hearsay,
@@ -309,7 +280,7 @@ suffering of being seen; I will tell you about the collection of being seen; I
 will tell you the way of being seen; I will tell you about being The extinction
 of seeing is the extinction of [I will tell] in life. Or, [in the life as]
 "directly visible, instant, inviting you to meet, guiding, and wise men should
-experience it by themselves." This is also [I will tell] in the life. 』For
+experience it by themselves." This is also [I will tell] in the life. "For
 being alive. "Not anecdotal", not anecdotal, not from rumors, not from
 inheritance, not from Scripture, not from logical inference, not from reasoning,
 not because of theoretical reflection, not because of an opinion received after
@@ -355,7 +326,7 @@ Blessed One is the Great Immortal? "The seeker, pursuer, and seeker of the Great
 Ring Aggregate" is the Great Immortal; "The Great Definite Aggregate... Where?"
 is the great immortal. "The supreme silence", silence is called immortality,
 Nibbana, that is the cessation of all actions, the cessation of all attachments,
-the extinction of craving, greed, extinction, and Nibbana.的)』, the first, the
+the extinction of craving, greed, extinction, and Nibbana.的)", the first, the
 most victorious, the victorious, the first, the most, the top, the top." For
 Daxian! The highest silence.
 
@@ -415,10 +386,10 @@ kinds of existence", all kinds of existence in kamma In the middle, in the
 desire to be there again; in the desire to have, in the physical existence; in
 the physical existence, in the colorless existence; in the colorless existence,
 in the colorless existence, There is again and again; in repeated interest, in
-rebirth, in rebirth, and in individual birth. Don’t be thirsty, don’t arouse
-craving, don’t produce craving, You don’t want to thirst, you don’t give birth
+rebirth, in rebirth, and in individual birth. Don't be thirsty, don't arouse
+craving, don't produce craving, You don't want to thirst, you don't give birth
 to thirst, please give up, please drive away, please make the end, please make
-it go to non-existence.” For you, don’t make craving for all kinds of things.
+it go to non-existence." For you, don't make craving for all kinds of things.
 
 Because of that, the Lord said:
 

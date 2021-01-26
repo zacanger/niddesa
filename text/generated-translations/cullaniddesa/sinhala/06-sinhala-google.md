@@ -7,7 +7,7 @@
 [Msdiv 9] (# msdiv9) # msdiv9 .ref .msdiv} (2-1)
 
 [APZ 9.1] (# apz9.1) # apz9.1 .ref .apz} "Who in the world is happiest"
-Satisfied means happy and full of joy. ”Who
+Satisfied means happy and full of joy. "Who
 Was the world happy? Thus Ayushmatha Tissa said in the same way. "
 'Thus' is the (ii) vowel joint and word matching. Fill in the letters
 Equilibrium. The words are silly. This is the order of the words.

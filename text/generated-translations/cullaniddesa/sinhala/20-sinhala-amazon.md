@@ -7,7 +7,7 @@
 [Msdiv 89] (#msdiv89) {#msdiv89 .ref .msdiv} (16-1)
 
 [APZ 89.1] (#apz89 .1) {#apz89 .1 .ref .apz} "Ref.apz
-“Shakthi” was a man who came to age, was on the roofs, late
+"Shakthi" was a man who came to age, was on the roofs, late
 The last age came to the age of one hundred and twenty from the Genesis of the Little Power
 There is only a little energy. 'Rare color' is the previous good color
 It went away, and the hath disappeared, and the other fell down. Eyes are dirty.
@@ -26,12 +26,12 @@ Manage, proclamate, say, 'Something I Know Someth'
 If you will find out if the names are to be made.
 
 [APZ 89.2] (#apz89 .2) {#apz89 .2 .ref .apz} "This very little race shit
-Destroy” is the death of this very own nation jara, Business, Comparation,
+Destroy" is the death of this very own nation jara, Business, Comparation,
 It is unpretentious Nibbana. Therefore, Brahmina stated the same.
 
 [Msdiv 90] (#msdiv90) {#msdiv90 .ref .msdiv} (16-2)
 
-[APZ 90.1] (#apz90 .1) {#apz90 .1 .ref .apz} "Seeing the images”
+[APZ 90.1] (#apz90 .1) {#apz90 .1 .ref .apz} "Seeing the images"
 The image is the four great demons, and the figures of the four great demons born because of the four great demons
 Ready. From the image news, due to images, from the matter of images, exhausting, clashing,
 Even if you have the image, no one will be discarded. Kazawinda Talawatha (Great Buddha
@@ -39,7 +39,7 @@ Even if you have the image, no one will be discarded. Kazawinda Talawatha (Great
 When images are striving, metaphor, weary, clash,
 Seeing and making a decision when the clash is clashed.
 
-[APZ 90.2] (#apz90 .2) {#apz90 .2 .ref .apz} is “different”
+[APZ 90.2] (#apz90 .2) {#apz90 .2 .ref .apz} is "different"
 Gattenuate, Tamnus Aththahu. From eye disease (ii)
 Difference, and conflict, and other people were domnus (every disease
 In the end, (i) should be used here.) From Ear Disease (Great Sleeving (1-4) 4
@@ -61,7 +61,7 @@ Readable. Congregation, so that you do not have enough, often do the processing
 The function is applied, the finished action has only the unbored action
 The Kuscal Dharma was taken away.
 
-[APZ 90.3] (#apz90 .3) {#apz90 .3 .ref .apz} "Image to be reupated”
+[APZ 90.3] (#apz90 .3) {#apz90 .3 .ref .apz} "Image to be reupated"
 The figure is the birth images of the four great demons and the four great demons.
 The image is imminent, the image is deviated, the image is conjugated, the image is complete
 This is the figure of the Tha, in order to dispose of the demise, and to be reborn again
@@ -78,47 +78,47 @@ did.
 [APZ 91.4] (#apz91 .4) {#apz91 .4 .ref .apz} "Four direction and four
 In the decimal direction of Udaha you have not seen and untouched.
 No. There is neither selfness nor unselfishness. Not scientific.I'm going
-If it is known, then the doctrine is “Manuwi”, then the root is pure
+If it is known, then the doctrine is "Manuwi", then the root is pure
 Clean end in the middle perfectly everything with pure meaning, verses
 Nibbana and Nibbana Gamani Rebates. Dekanu, Worm
 Manuure, Open Manuure, Divide, Manuure, Manuure, Manuure
-Manurements, Readers. “If in some way I know” is something I am
+Manurements, Readers. "If in some way I know" is something I am
 If to know, if coming, figuring out, if seeing,
 If it is made, it is possible to dismantle it.
 
 [APZ 91.5] (#apz91 .5) {#apz91 .5 .ref .apz} "To demolish our own nation
-Caussed” is the death of the nation, constipation, containment, reproach
+Caussed" is the death of the nation, constipation, containment, reproach
 Nibbana. Therefore, Brahman himself said.
 
 [Msdiv 92] (#msdiv92) {#msdiv92 .ref .msdiv} (16-3)
 
 [APZ 92.1] (#apz92 .1) {#apz92 .1 .ref .apz} "Trusts,
-The cravings came from the craving “images of craving sounds, odors,
+The cravings came from the craving "images of craving sounds, odors,
 Taste, touch dharma cravings, which came from the whimsical cravings,
 The sins that came, the cramped, the underneath the minds.
 
-[APZ 92.2] (#apz92 .2) {#apz92 .2 .ref .apz} "Man” is the other name for the animal.
-“What is seen” is what is being inspected.
+[APZ 92.2] (#apz92 .2) {#apz92 .2 .ref .apz} "Man" is the other name for the animal.
+"What is seen" is what is being inspected.
 
-[APZ 92.3] (#apz92 .3) {#apz92 .3.ref .apz} "Justify the Community” is they
+[APZ 92.3] (#apz92 .3) {#apz92 .3.ref .apz} "Justify the Community" is they
 Jharawan, Jharawahuet, Business, Death
 In the same way, the cesspores are suffering from domanticity and intense appeal
 Justituahua. A Hell, A Cousin Community, A Thickness
 The community is the afflicted community. They are Jharawen pressed
 Gascized, Justices, Business, MadanagamaThy is helpless.
 
-[APZ 92.4] (#apz92 .4) {#apz92 .4 .ref .apz} "So” is, by the fact, that
+[APZ 92.4] (#apz92 .4) {#apz92 .4 .ref .apz} "So" is, by the fact, that
 That is why the people are seen in Heathby, in that manner, in that manner, in that sleep
 Ready.
 
-[APZ 92.5] (#apz92 .5) {#apz92 .5 .ref .apz} "Apz” is the most frequent action
+[APZ 92.5] (#apz92 .5) {#apz92 .5 .ref .apz} "Apz" is the most frequent action
 (4-8) 1 should be applied from where the 'was' impulsed '.) Kushale Dharmala
-“So that you may be unborn again, so that you may be unborn again
-Cravings are impoverished” images of cravings, sounds, odors, tastes, touches,
+"So that you may be unborn again, so that you may be unborn again
+Cravings are impoverished" images of cravings, sounds, odors, tastes, touches,
 Dhamma craving, craving is a craving handicap, craving is concerned,
 Cravings are a complete demise.
 
-[APZ 92.6] (#apz92 .6) {#apz92 .6 .ref .apz} "In order to reinvent” is what you are
+[APZ 92.6] (#apz92 .6) {#apz92 .6 .ref .apz} "In order to reinvent" is what you are
 Do not cause restimulation, in the form of the carma or in the image
 or in the unimaginable relic or in the image or in the cassava or in the cassava
 In the jewelery or in the jewelery or in the collectors of the jewelery or in the capsule or in the jewelery

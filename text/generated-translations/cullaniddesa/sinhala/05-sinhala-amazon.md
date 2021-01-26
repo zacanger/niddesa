@@ -6,18 +6,18 @@
 
 [Msdiv 1] (#msdiv1) {#msdiv1 .ref .msdiv} (1-1)
 
-[APZ 1.1] (#apz1 .1) {#apz1 .1 .ref .apz} "Is the world closed in a prince”
+[APZ 1.1] (#apz1 .1) {#apz1 .1 .ref .apz} "Is the world closed in a prince"
 (ii) The world is the hell world, the beast world, the prey world, the world of man, the divine
 The world, the mass world, the relics world, the institution world, this world, the prem world, the Brahm world,
 (iii) This world is the world of divine.
-Roundations are also called, overlapped. “Hello Ajithatha thus said”
-“Thus” is the verses joint. (iv) the verses matching. Filling verses. Fonts are evenly
-Application. The verses are silhouetted. This is the order of verses. “Hello Ajithathama” is
+Roundations are also called, overlapped. "Hello Ajithatha thus said"
+"Thus" is the verses joint. (iv) the verses matching. Filling verses. Fonts are evenly
+Application. The verses are silhouetted. This is the order of verses. "Hello Ajithathama" is
 His word is. Honor is the Word. Higher Name with Honors. Hello is this. Undefeated
 is the name of that Brahman. Similar impositions are a legislative name. Nirritant verses
 Having a say, is the same.
 
-[APZ 1.2] (#apz1 .2) {#apz1 .2 .ref .apz} "Is not the world in a princess”
+[APZ 1.2] (#apz1 .2) {#apz1 .2 .ref .apz} "Is not the world in a princess"
 Is the world not proclaiming, not shining, not bright, and not criticized,
 Do not know, do not go away.
 
@@ -34,7 +34,7 @@ indicated in formulas.)
 
 [Msdiv 2] (#msdiv2) {#msdiv2 .ref .msdiv} (1-2)
 
-[APZ 2.1] (#apz2 .1) {#apz2 .1 .ref .apz} "The World Showed With Disscience”
+[APZ 2.1] (#apz2 .1) {#apz2 .1 .ref .apz} "The World Showed With Disscience"
 If the inscience is not to know the sadness, not to know the presence of sadness, where there is no sorrow (sad
 not knowing the reproach), not knowing the sad reproach, about the past
 Not knowing, not knowing the future, not knowing the past and the future, the approach
@@ -42,9 +42,9 @@ Not to be aware of the Samurathpaddy doctrines.
 Not understanding, not discreetly thinking that lack of fading is no cause,
 senseless, infernessness, discreet, brainlessness, mullava, inscience, elthetics, saddawater,
 Applying in inscience, inscience, crushing by inscience, inscience, brains,
-Akushalamulea says this science. “Loka” means 1—1 1. (ii) to be applied
+Akushalamulea says this science. "Loka" means 1—1 1. (ii) to be applied
 Must. This world was covered by this science. In the rounds. In the spring.
-“Ajithah 'is the incarnate by the name of that Brahman.
+"Ajithah 'is the incarnate by the name of that Brahman.
 'Bhavati 'is (here in the Great Degrees 7—2 1. Where the Trusts Going
 To be used where 'imposition' is.)
 
@@ -63,10 +63,10 @@ If a certain amount of pressed has a size of application, this is the case
 Size says.
 
 [APZ 2.3] (#apz2 .3) {#apz2 .3.ref .apz} "Surveyance
-Not brought about.” It is this Maasurukamin, and this size did not appear in the world.
+Not brought about." It is this Maasurukamin, and this size did not appear in the world.
 Do not shine and do not feel.
 
-[APZ 2.4] (#apz2 .4) {#apz2 .4 .ref .apz} "says desire is the coating.” Desire
+[APZ 2.4] (#apz2 .4) {#apz2 .4 .ref .apz} "says desire is the coating." Desire
 (ii) if there is a certain lust, a lust, an application according to
 A lust like a leash is a powerful desire in the heart, spindle, urination,
 Agencism, hometown, tab, Pharma, Illusion, Janica, Sanjaniya, Sibbaniya,
@@ -85,7 +85,7 @@ The lobby, Askalamuya, says this jappiya. The world's cracking is to drink, bond
 Here passes. The world was stained with the craving of this japper. Especially stained.
 Kilty, Waightfully Kilty. Stained, Migrated. elbated.
 Say the pest. I will promulate. Deshana, Panam, Pay, Open
-I, divide, propress, proclamate, proclamate, “His sorrows shall be great fear”
+I, divide, propress, proclamate, proclamate, "His sorrows shall be great fear"
 Woes of the General Recommendation (General Recommendation (15-2) is 'shocked by birth. '
 Sadness should be changed and used to the point of view distress. (Out of 1889)
 
@@ -100,9 +100,9 @@ A decision. A trickle is a hazard.
 [Msdiv 3] (#msdiv3) {#msdiv3 .ref .msdiv} (1-3)
 
 [APZ 3.1] (#apz3 .1) {#apz3 .1 .ref .apz} "Tangs everywhere
-The “Segment” of “Galabasith” is the craving function, the vision series,
-Classical series, the visceral series is the anological series. “Everywhere” is
-Institutions are available in all institutions. “Galabasith” is Galabasith, Vagerith, Existing Eye
+The "Segment" of "Galabasith" is the craving function, the vision series,
+Classical series, the visceral series is the anological series. "Everywhere" is
+Institutions are available in all institutions. "Galabasith" is Galabasith, Vagerith, Existing Eye
 Figures flow, swirling, sounds from the spatula, odors from the nose
 Galabasith, Tongo Rasyos Galabasith, Body Touch Galabasith, MindfulnessDoctrine
 Galabasi vaginates, exists. Galabasith, wageth, prevail,
@@ -111,7 +111,7 @@ Galabasith, Galabasith, Vagerith, Taste of Tonges, Galabasith, Vagerith, Exist
 Kaine touch cravings galabasith, dharma cravings flow from the mind
 Basith, vaginth, exist, and go.
 
-[APZ 3.2] (#apz3 .2) {#apz3 .2 .ref .apz} "Thus said goodbye”
+[APZ 3.2] (#apz3 .2) {#apz3 .2 .ref .apz} "Thus said goodbye"
 Thus is the vowel joint. This is how to apply the order of verses.
 
 [APZ 3.3] (#apz3 .3) {#apz3 .3 .ref .apz} "How to prevent (waterproofing)?
@@ -119,7 +119,7 @@ How is the prevention of scabies? How is prevention? How to collate? Care-take-o
 How? How to get? Ready. I will say the symbony of the Srons. is
 The prevention of the cover of the SL is said to be the prevention of compassion. Promoted
 Manualy. Deflatulas. Measure the openings. Divide Measure. Promoted
-Manualy. Ready. “Close Covering” is a Close Covering And Close
+Manualy. Ready. "Close Covering" is a Close Covering And Close
 The receiving stream does not flow, and does not exist.
 
 [Msdiv 4] (#msdiv4) {#msdiv4 .ref .msdiv} (1-4)
@@ -129,18 +129,18 @@ Laddahua is some of these news I have told
 Opening of Laddahua Deconcations
 How to divide the laddaha and the propagation of the craving function;
 Optic function, cleavage, visceral function, anecology series.
-“Tockulu”
+"Tockulu"
 
 (ii) is the mass locus of the divine locus in the human locus of hell locus
 Relics are locating institutions.
 
-[APZ 4.2] (#apz4 .2) {#apz4 .2 .ref .apz} "Mindfulness is their prevention”
+[APZ 4.2] (#apz4 .2) {#apz4 .2 .ref .apz} "Mindfulness is their prevention"
 robesIf he had any remembrance, there was a memorial, there was a remembrance,
 Feeling of bearing, forgetfulness, forgetfulness, one week
-There is a monotonous way of a week, and this is unconscious. “Prevention” is
+There is a monotonous way of a week, and this is unconscious. "Prevention" is
 The cover is the archive file. Mindfulness is their prevention. A Grade
-Corporate says 'prevention of the cover of the Sirms” will tell the Corporate, Coverage, Gopna
-I will promulate, I will say. “It is overstated by the promontory.”
+Corporate says 'prevention of the cover of the Sirms" will tell the Corporate, Coverage, Gopna
+I will promulate, I will say. "It is overstated by the promontory."
 If any sign is pajana, amoya, dhammara
 If the view is that the prophecy is to cover these signs, this is by the prophecy
 All editors, even if they are not clogging, but not unnoticed
@@ -174,7 +174,7 @@ Should be used.)
 
 [Msdiv 5] (#msdiv5) {#msdiv5 .ref .msdiv} (1-5)
 
-[APZ 5.1] (#apz5 .1) {#apz5 .1 .ref .apz} “If you wish”
+[APZ 5.1] (#apz5 .1) {#apz5 .1 .ref .apz} "If you wish"
 Any sign is Pajayana, Vichianamveda, Pvivikayanamveda, Dharmakana Namveda,
 Salakkhanamveda, Uplakkhananamveda, Pachusa Lakkhanamveda, Punditness, Skillfulness
 Skills, Webvidya Chinthanamveda, Bhuri Medha, Matuthica Vipassana, Cattodo,
@@ -185,32 +185,32 @@ That's what. Hello Ajithatha thus. Nidukaneni. Name also refers to four name nam
 Amorphasyoi. Ruphayanam and the four great demons of the fourDedging Figurines
 Ready. Niducaneni, 'is the favorite word. Garuchanaya Honours
 The word is this Nidukanani, 'Nidukanani, Nidukaneni, Nidukanani
-Supposedly,” “This by me” is something reviews and asks for something,
+Supposedly," "This by me" is something reviews and asks for something,
 Something is invited and said. 'Review' is something quipped,
 Requested, invited to say 'Manuwi, Deshana
 Karanu Manuwi, Manurements, Manurements, Commentary Manurements, Divide
 Manage the pros, the pros are measured.
 
 [APZ 5.2] (#apz5 .2) {#apz5 .2 .ref .apz} "Where is this?
-Reviews by Manualy.” Where is this constipation,
+Reviews by Manualy." Where is this constipation,
 Into the armpits, and also under.
 
 [Msdiv 6] (#msdiv6) {#msdiv6 .ref .msdiv} (1-6)
 
 [APZ 6.1] (#apz6 .1) {#apz6 .1 .ref .apz} "Is this question critique,
-“Is this the prophecy, and the mind, the name, and the decipher.
-Invited. “Ajitha” is the speech of “Ajitha, I say it unto him”
-He emanates that Brahman in his name. “It” is also the prognotion,
-Mistake, also name name. “Tell” is to say. Published by Deshanamam
+"Is this the prophecy, and the mind, the name, and the decipher.
+Invited. "Ajitha" is the speech of "Ajitha, I say it unto him"
+He emanates that Brahman in his name. "It" is also the prognotion,
+Mistake, also name name. "Tell" is to say. Published by Deshanamam
 I keep. I'll make a commentary and I'll prop. Name of Yamthenek and image
-In the symbiotic without remaining, the name is the four impurgasios. “Image” is the four
+In the symbiotic without remaining, the name is the four impurgasios. "Image" is the four
 The great demons are the figures of the four great demons. Saving is
 All things surround without subtracting the omnidirectional omnidirectional
 Word. Do not save this.
 
-[APZ 6.2] (#apz6 .2) {#apz6 .2 .ref .apz} "is destroyed”.
-The mucus is constipated. Ready. “Without leaving the name of a particular place and the image
-Destructs” is the ConsciousThis is compelled here by the niche. Some Sauan Roads
+[APZ 6.2] (#apz6 .2) {#apz6 .2 .ref .apz} "is destroyed".
+The mucus is constipated. Ready. "Without leaving the name of a particular place and the image
+Destructs" is the ConsciousThis is compelled here by the niche. Some Sauan Roads
 There are no ends, except for a book from the connotation of the congenitous consciousness
 If the constipation is born, then the name is also the image. Constipation
 Jeth, Destruction, and the ways of the Conscious Consciousness of the Conscious Consciousness
@@ -227,7 +227,7 @@ This is the name of the name, and the constipation, and the other.
 [Msdiv 7] (#msdiv7) {#msdiv7 .ref .msdiv} (1-7)
 
 [APZ 7.1] (#apz7 .1) {#apz7 .1 .ref .apz} "Someone Willfully depleted Dhamma
-“Thuto Wedda” is the “depleted Dharma Thuto” is Arhetthu Ksheni
+"Thuto Wedda" is the "depleted Dharma Thuto" is Arhetthu Ksheni
 The men are the ones. By what point the depleted Dhamma Thuto is Rathan
 Say unto him? He is a depleted Dharma. Knowing Dhamma
 True. Determined Dhamma theto, and Dhamma theoth. Prop
@@ -248,9 +248,9 @@ She was there. They had the ends of the vein. They were in the last jewelery.
 They were in the last body. Erhath the last duplicator.
 
 [APZ 7.2] (#apz7 .2) {#apz7 .2 .ref .apz} "The End of His Sasara Journey. This
-The last body. There is no national death conundrum. He has no rebirth.”
+The last body. There is no national death conundrum. He has no rebirth."
 Ready. Dhamma Thuto, who depleted the Rhathan by that fact.
-What kind of depleted Dhamma Thuto does so many “hikmena” here
+What kind of depleted Dhamma Thuto does so many "hikmena" here
 Styles names, Hikmehui Prince Hikfatty, Hikmehui and Hikmeth, Overheart
 Hikmeth is the supremate and Hikmeth. WHAT WHAT WHAT WHAT WHAT WHAT? Herein
 Sil is inhabited by the Divisional Sangeweda. Academically and
@@ -276,44 +276,44 @@ Doers Hikmeth, Ofte Wadnahu Hikmeth, Promotional activity
 The doers of the prophecies are Hikmeth, and in that matter Zekheo
 (Hikmenno) says.
 
-[APZ 7.4] (#apz7 .4) {#apz7 .4 .ref .apz} "many” means “gentleman”. This
+[APZ 7.4] (#apz7 .4) {#apz7 .4 .ref .apz} "many" means "gentleman". This
 Effectiveness of Sevan Roadways, Effectiveness and Effective Roadways
 And these are the unaccompanied passages and the productive ones and the Rahat road.
 
-[APZ 7.5] (#apz7 .5) {#apz7 .5 .ref .apz} "here” is in this view, this
+[APZ 7.5] (#apz7 .5) {#apz7 .5 .ref .apz} "here" is in this view, this
 In this appetite of will, in this doctrine, in this discipline, this Dhamma
 In this souls of discipline, in this Brahmama chariya, in this shasthrah, in this souls
 In meditation, it is in this human localityNui.
 
 [APZ 7.6] (#apz7 .6) {#apz7 .6 .ref .apz} "I was critiqued, also by the pros
-You” are thus reproduced by Nidukaneni, saying, Are you
+You" are thus reproduced by Nidukaneni, saying, Are you
 Pledge, a puddle, a discreet, in their sayings, and in doctrine,
 Such existence in Sekhayanga is such behavior, and this is what the gochery is like.
 Such a result was critiqued by Ilwana, Invitees
 Readable.
 
-[APZ 7.7] (#apz7 .7) {#apz7 .7 .ref .apz} will say "say”. Dezzana
+[APZ 7.7] (#apz7 .7) {#apz7 .7 .ref .apz} will say "say". Dezzana
 Karanu will be measured, imposed. Manurements, openings are measured. Divide manualy,
-Manage the pros, the pros are measured. “Niducaneni, is a favorite
+Manage the pros, the pros are measured. "Niducaneni, is a favorite
 The word of respect is the word of respect and work is the significant word. This is the niche. Me
 By saying, 'Niducanani, saying,
 What is that Brahman said.
 
 [Msdiv 8] (#msdiv8) {#msdiv8 .ref .msdiv} (1-8)
 
-[APZ 8.1] (#apz8 .1) {#apz8 .1 .ref .apz} "Will not be in rooms”
+[APZ 8.1] (#apz8 .1) {#apz8 .1 .ref .apz} "Will not be in rooms"
 Komayo is mainly two kamayo. Object Rooms and Cleaner Rooms
 (Should be used at the end of section 1—1 (ii) to 3 of the General Determination.) They are the clayey
 CAMOUGH SAVING. Gijucamai tells the craving that a certain lust is an allusion
 It is a central lotus that has an Akusshal root.
 
-[APZ 8.2] (#apz8 .2) {#apz8 .2 .ref .apz} "Will not be in rooms” is a clayey
+[APZ 8.2] (#apz8 .2) {#apz8 .2 .ref .apz} "Will not be in rooms" is a clayey
 Objects from the room will not be laid in the rooms. Be a Giju, Invitation
 Do not prevent the money from being redeemed, the money is not the money itself.
 Constipation is true, constipation abstinence. Lower Ragama
 will be. A dead man shall be a dead man. Money shall be a rust. Constipation
 Be a lust. The twine was dismantled, the dandruff was supplied
-Wei. “Brahman shall close the same cans. Sathinas do not cause disturbances” is
+Wei. "Brahman shall close the same cans. Sathinas do not cause disturbances" is
 Mind, fantasy, mind, heart, pendor, bride, maninduria, consciousness
 The mind is disturbed by the viscerity of the mind, the husk of consciousness.
 Give, is in collision, is inconspicuously. Manas from linguistique to linguistique
@@ -327,7 +327,7 @@ He shall dispel the bearer of the fetter. Convenient. The heart
 Far from the grooves of the suitest. Separate Wicely Separated
 Close with unrestricted heart,
 
-[APZ 8.3] (#apz8 .3) {#apz8 .3.ref .apz} "adept in all doctrines,” is
+[APZ 8.3] (#apz8 .3) {#apz8 .3.ref .apz} "adept in all doctrines," is
 All editors are intuient in all doctrines, all editors
 Sadness was adept in all doctrines, all doctrines are innate in all doctrines
 The editors were adept at all doctrines due to inscience
@@ -350,7 +350,7 @@ Woda, the late sips are made like a palm tree, completely fading
 Were the machinery, again converted into unpretentious, etc.
 He is adept at doctrines.
 
-[APZ 8.4] (#apz8 .4) {#apz8 .4 .ref .apz} "Walk in Remembrance” is
+[APZ 8.4] (#apz8 .4) {#apz8 .4 .ref .apz} "Walk in Remembrance" is
 Remembrance of four points. (ii) Mindfulness of viewing by one
 Setting up is remembrance. Mindfulness of viewing in terms of pain in pain
 Setting up is remembrance. Mindfulness is formed by the heart of the mind
@@ -372,11 +372,11 @@ The name is remembrance of the borehole. Samatha Sbethatiya, Smethi Sambocenter,
 The road, the name of which was remembrance. This is said to be unconscious
 (iii) Whether this mindfulness came specifically, sub
 It is said unconscious, because St. Bhikkuwa Dhamma
-Bhikku names (3—4 (1) of Maha Niddeesah, where “Bhikku” is
+Bhikku names (3—4 (1) of Maha Niddeesah, where "Bhikku" is
 Should be used from.)
 
 [APZ 8.5] (#apz8 .5) {#apz8 .5 .ref .apz} "Monk erections in remembrance
-Conducting” is (ii) going in remembrance. Remembrance, Remembrance
+Conducting" is (ii) going in remembrance. Remembrance, Remembrance
 Sit, sit in remembrance. Go forward in remembrance. Back in remembrance
 Come. look in remembrance. look round in remembrance. Remembrance (limb)
 Shrink. Extending. In remembrance, the two robes bear the bowl.

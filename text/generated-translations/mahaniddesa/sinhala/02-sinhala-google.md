@@ -10,7 +10,7 @@
 Was closed. Is the same as "animal", again "cave" first
 The body is said to be the cave. Cave or Deha means Sandeha, Nava,
 Chariots, flags, left (tomb) cities, needles, (nest) huts, ganda, kumma, naga or
-These are special words for the body. ”The animal is stuck in the cave, especially in the cave.
+These are special words for the body. "The animal is stuck in the cave, especially in the cave.
 Sticking means lagnavuye. This was preached by the Blessed One. "Radha
 In Figure (ii) there is a certain desire, a certain lust, a certain attachment, a certain lust
 There is a subconscious firmness in the mind, especially in its attachment
@@ -55,7 +55,7 @@ There are touches. (24 (iv) should be applied.)
 There are Dhammas. (24 (iv) should be applied.)
 
 [APZ 7.30] (# apz7.30) {# apz7.30 .ref .apz} The Blessed One said this
-“Sir, the consciousness that arises from the image (ii) is there. (Iii)
+"Sir, the consciousness that arises from the image (ii) is there. (Iii)
 Imagery Image prestige (iv) Enhancing service with joy
 Comes in size to grow.
 
@@ -188,7 +188,7 @@ The grief must stop. Thus those material objects must be freed from sorrow.
 How should animals get rid of this? With pleasure (paragraph 4 (iv) here applies
 Should) be freed from grief. SadShould be uprooted. Sadly quoted
 Should be left in grief. The work of overcoming misery. Grief must be appeased.
-The grief must stop. Thus the animals have to get rid of this grief because “grief
+The grief must stop. Thus the animals have to get rid of this grief because "grief
 Those who should be freed. "
 
 [APZ 8.5] (# apz8.5) # apz8.5 .ref .apz} "No other redemption." Is
@@ -632,7 +632,7 @@ Inherited, in isolation, decides. (ii) This decision is wise.
 
 [APZ 13.5] (# apz13.5) {# apz13.5 .ref .apz කවර What is Pranahana Wisdom? Thus
 Determines and removes the electorate of touch. Calm down. Leading to non-attendance.
-This was uttered by the Blessed One. “Sir, some of the touches
+This was uttered by the Blessed One. "Sir, some of the touches
 If there is an election, drive it away. ThisThat 's it. Early drying
 What was done was done like a withered whale and went to the point of not being born again
 It was (this) knowledge that was brought about.
@@ -718,7 +718,7 @@ Removes. Calm down. Makes it unproductive. This is by the Blessed One
 When preached. "Sir, if there is any lust in the sign, drive it away
 That 's it. The withered root is a palm tree that was originally extracted
 It was as if it had never been seen again. "(That is.) This
-The practice of pranayama. “Knowing the sign is pure and knowing this trinity well
+The practice of pranayama. "Knowing the sign is pure and knowing this trinity well
 "Crossing the water" means lust, lust, greed, ignorance, lust, lust, lust, lust, lust, lust, lust, lust, lust, lust, lust.
 Swimming exceeds. Will take away (that is.)
 
@@ -783,7 +783,7 @@ He who abused and burned with the fire of wisdom (has the snatched hull
 Goes). He has a well-quoted hull and an abandoned hull
 There are twisted hulls, there are loose hulls, there are weakened hulls, there are twins
 Cooling means living in a state of blissful bliss.
-‘Behavior’ means to behave, to live, to control.
+'Behavior' means to behave, to live, to control.
 
 [APZ 14.17] (# apz14.17) # apz14.17 .ref .apz} "Immediate is (ii) skill
 The Dhammas have the undiminished courage of being constantly prepared and prepared

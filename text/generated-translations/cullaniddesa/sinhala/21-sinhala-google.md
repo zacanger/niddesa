@@ -14,7 +14,7 @@ The word. (Mahaniddasa (7-8) 1 should be used.) Proven imposition.
 
 [APZ 93.2] (# apz93.2) # apz93.2 .ref .apz} "This is Blessed Magadha Country
 The inhabitant Zak spoke at the rock pagoda. "Means the abode of the colony called 'Magadha'.
-Karana Zak means. ‘Inhabiting Sake’ means behaving posture exists
+Karana Zak means. 'Inhabiting Sake' means behaving posture exists
 Means to control. 'Pashanaka Chethiya' means a certain Buddha seat.
 The sixteen entourage of Brahmins are the Pingiya Brahmin and the Bavarian Brahmin.
 A student. Someone who behaves nearby. Was a attendant.
@@ -80,7 +80,7 @@ Not done. Not done by the father. Brother by sister,
 By allies, not by rice relatives, not by shramana brahmins
 Not done. Not done twice. Blessed is he who has ended the emancipation
 As a result of the enlightenment of the Supreme Buddha
-An imposition made. This is the Buddha. “These came to the Buddha, the pyre worship
+An imposition made. This is the Buddha. "These came to the Buddha, the pyre worship
 Charana is the virtue and etiquette of "sages with karaha, pirivaruha, charana dhamma"
 Occurrence, Silasanvara and Charana, Sense Sanvara and Charana, Feeling at meal time
 Charana. Sleep deprivation is also a condition. There are seven Dhammas
@@ -136,7 +136,7 @@ The 'Buddha' is some of those Blessed Ones. (17-2) 1 From 'Buddha'
 Should be applied.) In Adichcha Bandhu, Adichcha means the sun. The sun too
 Gautama from the tribe, Blessed Ones Gautama from the tribe, Blessed Ones
 God is a tribal relative of the Sun. A tribal relative. Therefore
-The Buddha himself is called Adichcha Bandhu. ‘Behaved in celibacy’
+The Buddha himself is called Adichcha Bandhu. 'Behaved in celibacy'
 Celibacy is the separation from immorality or not doing it.
 Again, the Aryan Eightfold Path is synonymous with celibacy.
 
@@ -166,7 +166,7 @@ Is done.
 [APZ 100.3] (# apz100.3) {# apz100.3 .ref .apz} "If anyone does,"
 Samyak Pratipada, Anuloma Pratipada, Unchanged Pratipada, Aliases
 Pratipada, Dharmanudharma Pratipada, follows, "If one follows so
-Going from here to beyond. ”The path (beyond) says to the immortal Nibbana.
+Going from here to beyond. "The path (beyond) says to the immortal Nibbana.
 This is what the defilements, the masses, and the consecrated say.
 
 [APZ 100.4] (# apz100.4) # apz100.4 .ref .apz} "Going Abroad" means Abroad

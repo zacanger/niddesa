@@ -90,7 +90,7 @@ leave, diminish, disappear... (omitted) they become [patients,] worryers; in the
 ears... (omitted) in the nose... Tongue...in the body...in the color...in the
 sound...in the smell...in the taste...in the touch...at home...in the group
 (congregation)...in the residence...in the gain...in the fame... Praising...in
-pleasure...in clothes...in the shelter...in the housing...when the patients’
+pleasure...in clothes...in the shelter...in the housing...when the patients'
 needs and medical necessities disappear, lose, decline, dissipate, leave,
 diminish, and disappear, they are annoyed and angry , Be annoyed, be annoyed,
 become a patient, a worry. "This is also "annoyed" in color.
@@ -192,7 +192,7 @@ thirsty to go with; be thirsty Those who follow; those who are followed by
 craving; those who are taken down by craving; those who are overthrown,
 conquered, and whose hearts are plundered by craving. "People" are synonymous
 with beings. "Watching", watching, seeing Watching, watching, watching, and
-observing.” To watch people who are falling into love.
+observing." To watch people who are falling into love.
 
 "[World Zun: "Binqiya!"]": ""Binqiya", the Blessed One calls the Brahman by his
 name. "World Zun", this is a respectful synonym... (abbreviated) Anri
@@ -242,7 +242,7 @@ your thirst for no longer. "
 At the same time as the chanting ends, for those who have the same intention,
 same endeavor, same intention, and same dwelling place as the Brahmins, the
 distant dust and dhamma eyes of thousands of living things arise: "Any
-collection of dhammas is an extinction." The Brahman’s mind was freed from all
+collection of dhammas is an extinction." The Brahman's mind was freed from all
 defilements without clinging. With the gain of the Dhamma vision, the sheepskin
 clothes, knots, bark clothes, sticks, long-mouthed water bottles, hair and
 beards disappeared, becoming bald heads, robes and cloth clothes, Holders of

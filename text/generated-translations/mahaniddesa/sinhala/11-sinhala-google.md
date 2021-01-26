@@ -114,7 +114,7 @@ These are the defilements of strife, debate, mourning, grief, pride, superstitio
 The mind was engaged in miserliness.
 
 [APZ 98.6] (# apz98.6) # apz98.6 .ref .apz}
-Does. ”Means to cause controversy when it arises and when it arises.
+Does. "Means to cause controversy when it arises and when it arises.
 I heard here and there to break them. From there to divide the harvest
 Listen and say here. Thus encouraging the broken to break the united
 In order to separate, the glue of separation is bound to separate from the bond of separation
@@ -193,7 +193,7 @@ In the end the innocence is gone.
 
 [APZ 100.4] (# apz100.4) # apz100.4 .ref .apz} "Plow the field with desire.
 The egg is sown. Wealthy merchants are eagerly at sea. Some
-Even if I go from lust to innocence, that desire of mine will prosper. ”To the prosperity of desire
+Even if I go from lust to innocence, that desire of mine will prosper. "To the prosperity of desire
 It is called innocence. Desire and Loyalty What is born of this is desire and sincerity
 This led to. The will is dormant. Arose of will. Will
 Nationalized means that the will is preceded by "something human help
@@ -350,7 +350,7 @@ Is.
 
 [APZ 103.7] (# apz103.7) # apz103.7 .ref .apz} "by Shramana
 Knowing the Dhamma held "means knowing, generating, equating, deciding and publishing
-Held. Published. When preached. “All edits are impermanent
+Held. Published. When preached. "All edits are impermanent
 It was said knowingly and knowingly. Published. Preached. Imposed
 Was kept. Opened and distributed. Published. All editors
 Suffering and all Dhammas are infinite and ignorance causes edits (
@@ -360,7 +360,7 @@ Loss, inspiration, derivation, and departure are the four elements of the Five E
 Of all the great demons, if there is a Dhamma born for some reason
 Knowing that it existed for the sake of loss, it was decided on the basis of equality.
 Preached, ordained, laid down, opened, distributed, proclaimed,
-The Blessed One preached, “Sir, I know the Dhamma well
+The Blessed One preached, "Sir, I know the Dhamma well
 I preach. I do not know, I do not know, I do not know, I do not know
 Not without. I preach with miracles. Miracle
 Not without. Not unknowingly, but without sleep by Mavis, who preaches knowingly
@@ -413,7 +413,7 @@ Has been nationalized. Touch is the source.
 [APZ 105.2] (# apz105.2) # apz105.2 .ref .apz} "These are out of touch
 No "means when there is no touch, when there is no manifestation, when there is not
 Pleasure is not misery. Does not occur. Not enough. Unborn, not descended.
-“Does this have the meaning of potential and potential?"Is the vision of the body and the touch is asleep
+"Does this have the meaning of potential and potential?"Is the vision of the body and the touch is asleep
 There is. The potential vision is also tinged with touch. "Does this make sense?"
 That is what makes a great sense.
 
@@ -506,7 +506,7 @@ Going astray as a tactical dharma, as a dharma-like origin
 As, asara, as an derivative, as an exit, decides thus
 Being prominent reveals the image. How the image is revealed by the expression
 The Veda thus decides that the electorate in the image is removed, appeased, and becomes non-existent
-This was uttered by the Blessed One. “Sir, something in the image
+This was uttered by the Blessed One. "Sir, something in the image
 If there is a lust for votes, drive it away. Thus, the image was destroyed first
 It was made like a palm tree. That is. Thus Prahana
 The image became manifest through revelation, how the image became manifest through transcendence

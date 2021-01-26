@@ -71,7 +71,7 @@ It was surrounded by an iron wall. Closed with an iron lid.
 "The ground of that hell was made of iron, with flames of fire
 The fire is spreading for about a hundred yards.
 
-“The saddest fear of the most grievous roaring inaccessible flames
+"The saddest fear of the most grievous roaring inaccessible flames
 Which gives rise to hair-raising
 
 "(Its) eastern wall was ablaze with flames of sin
@@ -107,7 +107,7 @@ Continuing daughters.
 "Exodus is the longing of the beasts that seek redemption.
 The door closed.
 
-“They are due to kamma because of that sin which did not give them much retribution
+"They are due to kamma because of that sin which did not give them much retribution
 Unable to get out of it.
 
 [APZ 170.4] (# apz170.4) # apz170.4 .ref .apz} "This fear saddens him
@@ -257,7 +257,7 @@ Closed.
 
 [APZ 172.5] (# apz172.5) # apz172.5 .ref .apz} "Profit, Loss, Fame,
 Disgrace, humiliation, praise, pleasure,About human beings who are miserable
-Dhammas do not always exist. There are changing doctrines. ”I do not see anyone drowning.
+Dhammas do not always exist. There are changing doctrines. "I do not see anyone drowning.
 So the Blessed One said.
 
 "All the world is utterly barren. All directions are trembling.
@@ -297,7 +297,7 @@ That is to say, there is only one object, one object, which is annihilated by be
 [Msdiv 174] (# msdiv174) # msdiv174 .ref .msdiv} (15 - 5)
 
 [APZ 174.1] (# apz174.1) # apz174.1 .ref .apz} " The person
-Runs in all directions. ”Hull is a hull animal, raga hula, dveshahula,
+Runs in all directions. "Hull is a hull animal, raga hula, dveshahula,
 Moha means dimension, vision, grief, doubt. What is Raga Hula, in some mind
 Whether there is an attachment or a bond, paragraphs ((2-2) 1 and (1-3) must apply)
 Abhidhya is the root of greed and evil. This is Raga Hulai.
@@ -418,20 +418,20 @@ The landing was sadly touched by the way it was touched. Faint, mourn,
 He touches his chest and cries. Comes to consciousness, this is by the Blessed One
 Was spoken. The mother of a woman in Savathnuwara in the past of Brahmanism
 Dead. She has a crazy mind and a distraught mind from her past
-Going from street to street and from alley to alley. “My mother
-Did you see? Have you seen my mother? ”Says Brahmin, formerly of this Savath city
+Going from street to street and from alley to alley. "My mother
+Did you see? Have you seen my mother? "Says Brahmin, formerly of this Savath city
 The father of a woman died. The brother is dead, the sister is dead. The son died,
 The daughter died, the owner died. She is maddened by his laziness
-He came from street to street and from alley to alley. “Mine
-Did you see the master? Have you seen my master? ”Says Brahmana, this Savath
+He came from street to street and from alley to alley. "Mine
+Did you see the master? Have you seen my master? "Says Brahmana, this Savath
 The mother of a man in the city has died, and he is maddened by her death
 With a distraught mind, he came from street to street and alley to alley
-He said. "Did you see my mother? My ownHave you seen? ”Brahmana, before this
+He said. "Did you see my mother? My ownHave you seen? "Brahmana, before this
 In Savathnuwara, the father of a man died and the brother died.
 The sister died, the son died, the daughter died, the wife
 Kaluriya did. He is maddened by her dementia
-Aththi went from street to street and from alley to alley. “Mine
-Did you see the wife? Have you seen my wife? ”Brahman,
+Aththi went from street to street and from alley to alley. "Mine
+Did you see the wife? Have you seen my wife? "Brahman,
 Earlier, a woman went to a relative's house in Savathnuwara. Those are her relatives
 Those who want to abduct her husband and give her to someone else do not like it either.
 Then he said to the woman. Son of Arya, these relatives are from me
@@ -488,7 +488,7 @@ Says. In the world (3-4) paragraph 6 should be used)
 [APZ 175.2] (# apz175.2) # apz175.2 .ref .apz} "In those lusts or disciplines
 Is one who does not practice "means one who practices those disciplines or those five virtues
 It's not heavy, it's not bent, it's not sticky
-Is it not the one who has mastered it? ”Those lusts are omnipresent
+Is it not the one who has mastered it? "Those lusts are omnipresent
 All edits are impermanent
 Understand that all editors are miserable and understand that all Dhammas are infinite
 If there is a Dhamma that was born for some reason, it is all niroExists for fear
@@ -534,7 +534,7 @@ He was unfit to be born and burned with the fire of wisdom.
 Says.
 
 [APZ 176.3] (# apz176.3) # apz176.3 .ref .apz} "There is no greater sin than sin
-Greed overcame miserliness. ”That is to say, there is no anger
+Greed overcame miserliness. "That is to say, there is no anger
 Anger must first be said. 'Woe to me
 Did 'Anger arises (10-3) Paragraph 1 should be used) Someone's anger
 Wisdom is the key to being born weak, calm, calm and calm.
@@ -550,7 +550,7 @@ Crossed. Excess means separated.
 [APZ 177.1] (# apz177.1) # apz177.1 .ref .apz} "Sleep and body laziness
 Laziness is also suppressed if "going" to sleep is a disqualification of the body to work
 That's it. Laziness is something
-Is there a reluctance to work or a setback? ”Sleep also thinks
+Is there a reluctance to work or a setback? "Sleep also thinks
 Suppressing laziness and laziness of the body means getting rid of sleepiness, laziness of mind and laziness of body
 Does suppress.
 
@@ -609,7 +609,7 @@ When he said, 'If you know something, read it.' He knows what he does not know
 I do not know what I did not see or what I saw, I do not know
 Knowingly or unknowingly lies about the cause or the motives of others
 This is a lie. Again in three ways, in a syllable, in five ways
-It is a lie in six ways, in seven ways, in eight ways. “In lying
+It is a lie in six ways, in seven ways, in eight ways. "In lying
 Does not go "does not lie, does not come, does not drink, gathers.
 Does not. Lies will be dispelled. Calms down. Will perish.
 He is free from lying. Exodus, separated with an unrestricted mind
@@ -866,7 +866,7 @@ To God. "Selfishness is two kinds of ego. Lustful ego is also vision
 Selfishness too. Paragraphs ((2-6) 7 (ii) (iii) should be used here)
 
 [APZ 185.2] (# apz185.2) # apz185.2 .ref .apz} "Someone has two name images
-Is not egoism omnipresent? ”Is omnipresent in the two names
+Is not egoism omnipresent? "Is omnipresent in the two names
 Whether one has ego or not, whether one gets it or not, is useless in the first place
 Did it burn in the fire of wisdom?
 
@@ -876,7 +876,7 @@ Does not "means does not grieve at the object of separation, nor does it grieve 
 Touched because there is no pain, the sufferer does not grieve, faints
 No, no, no, no, no, no, no, no, no, no, no. Thus
 Lack of ego means not grieving. Not manifest as recurrent or not
-Definitely was for me because I don’t get it. Certainly not me.
+Definitely was for me because I don't get it. Certainly not me.
 Certainly it will happen to me, and I will not get it. '
 No, it does not touch the chest and does not come to consciousness.
 
@@ -908,7 +908,7 @@ That's it. "
 
 "In a world without happiness and without sorrow, Visattika has overcome lust
 A long time ago, a monk named Brahmana, who attained enlightenment
-We have seen. ”The world certainly does not rot.
+We have seen. "The world certainly does not rot.
 
 [Msdiv 186] (# msdiv186) {# msdiv186 .ref .msdiv} (15 - 17)
 
@@ -1006,7 +1006,7 @@ The jealousy of the men becomes a possession. Jealousy binds. Something like thi
 Jealousy jealousy kamma jealousy jealousy jealousy
 Veda. This is called jealousy. This jealousy of someone is futile at first
 Wisdom is the state of being born into a state of inertia
-He says he is not jealous of the fire. “No greed
+He says he is not jealous of the fire. "No greed
 "Greed" means lust. Is there any lust or attachment (10-4) 1
 Should be used in place of 'it') That is whether there is a root of greed or evil.
 Did this greed of someone go away at first and was unworthy of birth?

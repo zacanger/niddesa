@@ -7,7 +7,7 @@
 [Msdiv 23] (# msdiv23) {# msdiv23 .ref .msdiv} (4 - 1)
 
 [APZ 23.1] (# apz23.1) # apz23.1 .ref .apz} "No Holy Noble Diseases
-I see. ”I see the clean, I see the clean.
+I see. "I see the clean, I see the clean.
 I'll see. "
 
 [APZ 23.2] (# apz23.2) {# apz23.2 .ref .apz} "Greatness is health" means greatness
@@ -15,7 +15,7 @@ Came into health, came into protection, came into help, came into refuge
 I see those who have come to Nibbana, who have become immortal, who have become non-conscious.
 
 [APZ 23.3] (# apz23.3) {# apz23.3 .ref .apz} "
-Is the purity of man? ”Images from the microcosm are also from the vision of man
+Is the purity of man? "Images from the microcosm are also from the vision of man
 Holiness and purity and purity and salvation and redemption and redemption.
 The man is clean and tidy. Mida knows well Mide thus
 Knowing that it is sublime, one realizes that this is the Absolute, the Absolute, the Great,
@@ -37,7 +37,7 @@ The animal becomes clean. Free.
 Chaksur consciousness removes racism from the animal itself through imagery
 Does. Eliminates the pain of illness and death. Mourning (mourning) Suffering
 (Physical grief) removes grief, tactical suffering. He was sinful
-The other is holy. ”The other is impure
+The other is holy. "The other is impure
 The Four Noble Truths, except the Four Satipatthnas
 Samyak forces all the four limbs except the head and the senses
 Dhammas except Bodhisattva Dhammas except Aryanya Eightfold Path
@@ -46,7 +46,7 @@ The possessor is the one with lust, the one with vision, the one with depravity,
 He says so. "That person expresses that view
 Does. Thus the superstition of this person himself is that he has distorted visions.
 "Saying so" means saying so and saying so "This is the world of the universe
-The truth is the other is empty. ”The world that says so is unhappy
+The truth is the other is empty. "The world that says so is unhappy
 The world has an end. The world has no end. It is life and it is body
 Life is another body and the animal rises from the dead. The animal does not rise from the dead
 Whether he has risen from the dead or not. Whether the animal is alive or dead
@@ -297,7 +297,7 @@ Will be. Is unfit to be born. Wisdom burns in the fire.
 It is dependent on what is maintained and controlled.
 
 [APZ 28.6] (# apz28.6) # apz28.6 .ref .apz} "Wondering what's in this world
-Doing so. ”The visual mind, (ii) 2--6 (ii) (iii)
+Doing so. "The visual mind, (ii) 2--6 (ii) (iii)
 The paragraph breaks really are important for readability. (iii) He
 What is because the lustful thoughts have vanished and the visual thoughts have been destroyed
 Thinking of lust? What hatred is thought of? Wondering what to do
@@ -395,7 +395,7 @@ Was deceivedIt is said that he was heated by lust. Someone in the culmination of
 It is said that the greedy one clings to the conflict and the delusion clings to the cure.
 
 [APZ 30.6] (# apz30.6) # apz30.6 .ref .apz} "Not heated by lust.
-Was it not heated? ”Somehow lust, image lust, formless lust vanished
+Was it not heated? "Somehow lust, image lust, formless lust vanished
 The first root to be cut is the root or
 
 The end was made like a withered palm tree, not made to be unborn.

@@ -6,7 +6,7 @@
 
 [Msdiv 85] (#msdiv85) {#msdiv85 .ref .msdiv} (15-1)
 
-[APZ 85.1] (#apz85 .1) {#apz85 .1 .ref .apz} "Twice I Quested” is that
+[APZ 85.1] (#apz85 .1) {#apz85 .1 .ref .apz} "Twice I Quested" is that
 Brahmina twice asked the Buddha. Question Reviews
 He did not promulate the prophets to him. A Brahman in this extreme
 The inverter is the recess, that is why. Shrine is the Sharets
@@ -15,7 +15,7 @@ Twice I have asked, asked, and asked. Me
 He who has paasas, hath not promulgated, hath not given, and hath not leaped,
 Unwashed.
 
-[APZ 85.2] (#apz85 .2) {#apz85 .2 .ref .apz} "Have Eyes” is the Trusts
+[APZ 85.2] (#apz85 .2) {#apz85 .2 .ref .apz} "Have Eyes" is the Trusts
 Since the eyes are in a pus. Masinda has eyes. Divasinda Eyes
 There are, panacin and eyes. Buddha has eyes, with eyes, with eyes
 Occurs.
@@ -58,7 +58,7 @@ brigade. Lowerth. He knows what he knows, what he knows, what he sees
 Seen, hath, trangled doctrine, recruited Brahman, proclaimed,
 There is prayer, and the meaning is chosen. Said him, Lord Dhamma, and put up.
 
-[APZ 85.6] (#apz85 .6) {#apz85 .6 .ref .apz} "Be My Hearing in the Third Time”
+[APZ 85.6] (#apz85 .6) {#apz85 .6 .ref .apz} "Be My Hearing in the Third Time"
 Buddhism and moral question reviews up to the third time
 Publishing Divyrshi is one of the spheres and Dhizhivara
 Divyrshi name. Yamseh says Rajarsheiai unto the king,
@@ -82,15 +82,15 @@ Laddenui, Maharshi. Therefore, Brahman himself said.
 
 [Msdiv 86] (#msdiv86) {#msdiv86 .ref .msdiv} (15-2)
 
-[APZ 86.1] (#apz86 .1) {#apz86 .1 .ref .apz} “This world is also paralodic”
+[APZ 86.1] (#apz86 .1) {#apz86 .1 .ref .apz} "This world is also paralodic"
 Names are human locus. The paralogy is all paralogy except the human world. God
 Brahmaloya with a god is a world with a god, a god with a maroon
-People are the community. “You do not see the view” is that of you
+People are the community. "You do not see the view" is that of you
 Vision, appetite, will idea, do not see the world. Such a view of the matet is present,
 Such likes, such as customizable, such cult, such as
 Ideas do not see, does not see, does not suffer, does not.
 
-[APZ 86.2] (#apz86 .2) {#apz86 .2 .ref .apz} "is the one who has Yaz”
+[APZ 86.2] (#apz86 .2) {#apz86 .2 .ref .apz} "is the one who has Yaz"
 Bankers, Yaz, if they come to God, and the Bankers
 He cares for, multidimensional,
 Puddle is undirettable. Chevara Pendapatha Senasana Ambulance Dispensation
@@ -98,11 +98,11 @@ Yaz has the name. Therefore, Brahmana said:
 
 [Msdiv 87] (#msdiv87) {#msdiv87 .ref .msdiv} (15-3)
 
-[APZ 87.1] (#apz87 .1) {#apz87 .1 .ref .apz} "thus forwarded” is
+[APZ 87.1] (#apz87 .1) {#apz87 .1 .ref .apz} "thus forwarded" is
 Front sighted, foresight sight sight, foremost, greatness.
-What I came to ask questions is (3-1) 5 should be applied.) “How the world
+What I came to ask questions is (3-1) 5 should be applied.) "How the world
 To see how the world is to see, to see, to the redeemer
-To decide, whether he does not have to decide” is the Bethththu Rajaya
+To decide, whether he does not have to decide" is the Bethththu Rajaya
 Do not come, or not. Therefore, Brahmana said:
 
 [Msdiv 88] (#msdiv88) {#msdiv88 .ref .msdiv} (15-4)
@@ -114,17 +114,17 @@ The world is the world with God.
 
 [APZ 88.2] (#apz88 .2) {#apz88 .2 .ref .apz} A certain monk
 Notice to him: 'Lord, the world says the world is the world, how much the world goes
-Is it said?” Ready. Mahana, destructive, says the world. Destructions
+Is it said?" Ready. Mahana, destructive, says the world. Destructions
 The idea is destroyed. The image is destroyed, the chakhavine is destroyed, the eye is destroyed
 Wei, as a result of the eye, something is born, and it also destroies. The contact is destroyed. Mind
 perish. Doctrine is ruined. Manoconsciousness is destroyed. Touch of mind
 Destructs. As a result of the touch of mind, something is born and destroyed. Provincible to enjoy
-Or it will also be destroyed. Mahana therefore says the world goes”.
+Or it will also be destroyed. Mahana therefore says the world goes".
 
-[APZ 88.3] (#apz88 .3) {#apz88 .3.ref .apz} "Zero looks the world” is
+[APZ 88.3] (#apz88 .3) {#apz88 .3.ref .apz} "Zero looks the world" is
 The locker looks in two ways. Absence as a treatment or relic editor
 As considerations or as such. How the absence is characterized by the fact that the locator is zero
-Do you see, “O, the image gets. Not in the form of pain, as the signal
+Do you see, "O, the image gets. Not in the form of pain, as the signal
 unnoticed. Not available as editors. Unleash in consciousness. This is
 He hath hath hath hath hath hath made him.
 
@@ -184,10 +184,10 @@ Not, in the SpiritNot me, not me, not anyone, not anyone, not anyone,
 Pain signal, editoriality, consciousness, not an animal, not life, not a bad,
 Not a man. Not a swarm. Not Man, Not Spirit, In Spirit
 Not, something is not me, not for me, not anyone, not anyone, thus twelve
-In a way the world looks zero.”
+In a way the world looks zero."
 
 [APZ 88.8] (#apz88 .8) {#apz88 .8 .ref .apz} This is by the Trusts
-Wadarana. “O O, this body is not mine, not the cradle, not someone else's,
+Wadarana. "O O, this body is not mine, not the cradle, not someone else's,
 This is an ancient kamma, which is accompanied by pain in the chetanah.
 Mahaniya, its grades, Aryan and the Samurdha
 Discreet remembrance. This will be the case when there is this. This is due to birth.
@@ -206,18 +206,18 @@ Should be used.) Conscious, Conscious (should be used here (iii))
 [APZ 88.10] (#apz88 .10) {#apz88 .10 .ref .apz} "O O, the grass of this jaan,
 Whether firewood is green, if it is taken or breats, or whiten or does
 If that ternaydha thus we areDefaults itself, dazzles. Something or does
-Think” “The Lord does not” “What causes it?” on oneself or oneself
+Think" "The Lord does not" "What causes it?" on oneself or oneself
 Because they have no idea. Epideralis (hereinafter 8 (ii) (iii)
 Must.)
 
 [APZ 88.11] (#apz88 .11) {#apz88 .11 .ref .apz} "As the presence of doctrines
 The clean editor group is clean, shy, is not a fear of being.
-The land resembles firewood is discreet at some time, and it is not for mutual sake.”
+The land resembles firewood is discreet at some time, and it is not for mutual sake."
 Not for the rejunction elsewhere. The locator looks zero.
 
 [APZ 88.12] (#apz88 .12) {#apz88 .12 .ref .apz} Hello Ananda Straistingly
-This was said unto the propyants. “Lord, the world is zero and the world is zero
-It is said. How much is the lotus said zero?” “Anandya, something himself
+This was said unto the propyants. "Lord, the world is zero and the world is zero
+It is said. How much is the lotus said zero?" "Anandya, something himself
 By or upon itself or zero is therefore said that the world is zero.
 Ananda, what is zero by himself or on himself? Anandya by himself
 or on oneself or on the eye zero, the figure is zero, the chakhu consciousness,
@@ -231,16 +231,16 @@ On or something is zero, and therefore the world is said to be zero. Mezili Lota
 Looks at zero.
 
 [APZ 88.13] (#apz88 .13) {#apz88 .13 .ref .apz} By The Trusts This
-Wadarana. “Mahaniyi, MeditanaLooking for the image of the image of a certain figure
+Wadarana. "Mahaniyi, MeditanaLooking for the image of the image of a certain figure
 Is it mushy, does the stethoscope look for some stethoscope, looking for sagna
 Is the Sagna's mushy around, some mushy of the editor looking for the editor
 Weah, is consciousness looking for a certain amount of consciousness, and that is, I am to him.
 It is not for him to say, or that I am in the way, or this is not for him. Metallika Locator Zero
 Behold is zero, behold, right, with and behold, decide and protride
-Realm.”
+Realm."
 
-[APZ 88.14] (#apz88 .14) {#apz88 .14 .ref .apz} "What the Greatest Rajaya” remembrance in Hamecal
-There is” is a name that emanates Brahman. Hamecal is (the Great
+[APZ 88.14] (#apz88 .14) {#apz88 .14 .ref .apz} "What the Greatest Rajaya" remembrance in Hamecal
+There is" is a name that emanates Brahman. Hamecal is (the Great
 3—5 (3) of Niddezah should be used from where it goes in the center.) Pag-on
 Age section. Remembrance is the remembrance of four things. whichathee
 Looking at it, the satipotha is remembrance. Hemly remembrance of the name.
@@ -256,11 +256,11 @@ Eadda, a vision solidification, a vision desert, a vision evil bites
 Eindle, a vibration of vision, a combination of optics, a position of a crack,
 A bashing, a paramaraan evil wayWrong way, lying,
 A transgression, a heresy is a heresy, this is mythology,
-The “snatched” is the spirit of sight, which is booted, deviated, and smoked, saying:
+The "snatched" is the spirit of sight, which is booted, deviated, and smoked, saying:
 The death shall cross, and the jars shall cross, and the death shall cross.
 Exceer.
 
-[APZ 88.15] (#apz88 .15) {#apz88 .15 .ref .apz} "Thus looks the world” is:
+[APZ 88.15] (#apz88 .15) {#apz88 .15 .ref .apz} "Thus looks the world" is:
 He who will see the world, and who will decide. Bethethetiu
 The Rajaya does not see the Bethththu Rajaya.
 Do not suffer.
@@ -273,7 +273,7 @@ Separately from Akushala doctrines, which were taken from the break.
 Pride and healing also inhabits the prey center. Mauny, this is a mari
 Says not to lose.
 
-“Stop, override the image signal by omnidirectional to the tab
+"Stop, override the image signal by omnidirectional to the tab
 Not dreaming of the sign of Nanatha, and the Alphabeas is the Alphabeas with the Arachanama.
 makes. Mauny, this will not go away without leaving the man. Bend,
 Omnidirectional beyond passion and consciousness is infinite to Consciousness

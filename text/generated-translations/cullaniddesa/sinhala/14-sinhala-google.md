@@ -83,7 +83,7 @@ Should.) Thus the posterior end of the samsara is not visible. Thus the anterior
 The back end is also invisible in the middle samsara, situated, attached,
 Come on, Galunahu. 'When the great fear comes,' lust, '
 Bhavoghaya, Dittoghaya, Avijjoghaya, when it arises, when it arises, when it descends.
-Fear of greatness means fear of race, fear of disease, fear of death. “From the shit death
+Fear of greatness means fear of race, fear of disease, fear of death. "From the shit death
 To the oppressed "means to the filthy, to the filthy to those who go by race (birth)
 Dispersed means those who are sick and helpless.
 "Nidukane, please declare security and preach."

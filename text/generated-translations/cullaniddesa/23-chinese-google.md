@@ -30,7 +30,7 @@ that single The enlightened person eats food after inspection: "Neither for
 pleasure, nor for intoxication, not for a good figure, not for dignity, but only
 for the survival and survival of this body, to stop harm, and to support the
 Brahma. In this way, I will repel the previous feelings, will not arouse new
-feelings, be healthy, without fault, and live in peace.”
+feelings, be healthy, without fault, and live in peace."
 
 For example, if he applies oil to the sore, it is only for the purpose of
 growing [meat], [also] or, if he applies oil to the axle, only for the purpose
@@ -96,7 +96,7 @@ not fettered by the obstacles of the group (people); the heart is not fettered
 by the obstacles of the residence; the heart is not fettered by the obstacles of
 the clothes The heart is not bound by the obstacles of group feeding; the heart
 is not bound by the obstacles of residence; the heart is not bound by the
-obstacles of the patient’s needs and medical necessities." In order not to be
+obstacles of the patient's needs and medical necessities." In order not to be
 bound in the center of a family, one should be alone like a rhino horn. Row.
 
 Because of that, the single enlightened person said:
@@ -291,7 +291,7 @@ who is willing to sit alone, a person who loves to sit alone, and a practitioner
 of inner cessation, does not despise the Zen, has the viewer, and gains the
 empty house [ MN.32, paragraph 334], meditators, Zen-lovers, singular
 practitioners, and admirers of their own interests, are those who sit alone. "Do
-not ignore the Zen", the one who is enlightened in two ways Don’t neglect Zen:
+not ignore the Zen", the one who is enlightened in two ways Don't neglect Zen:
 "For the sake of the first jhana that has not arisen to become the upper yoke,
 the strong upper yoke, the fully upper yoke [, toward the upper yoke], the
 completely toward the upper yoke, or for the second jhana... (Omitted) or for
@@ -343,8 +343,8 @@ of ignorance, the end of interest, the end of rebirth, the end of rebirth, the
 end of some, the end of reincarnation, the end of cycle , Eager, and supplicant.
 "For the one who longs for the extinction of love. "The one who does not let
 go", the one who is alone is a respectful author, a regular author... (omitted)
-in good law [not neglecting responsibility The one and the one who doesn’t let
-go.” It is the one who wants to die and the one who doesn’t let go.
+in good law [not neglecting responsibility The one and the one who doesn't let
+go." It is the one who wants to die and the one who doesn't let go.
 
 "The wise, the hearer, the thoughtful": "The wise one (not the deaf and dumb)",
 the one who is enlightened alone is the wise, the wise, the enlightened, the
@@ -381,9 +381,9 @@ the end of reincarnation, the one who stands at the end of the cycle, the one
 who stands at the end, the one who stands at the end. Those who gather (body) at
 the end, those who hold the last self-enlightenment.
 
-『This is his last, this is the last gathering (body),
+"This is his last, this is the last gathering (body),
 
-The cycle of life and death, without his rebirth. 』
+The cycle of life and death, without his rebirth. "
 
 For this reason, the enlightened person is the perceiver of the Dhamma. The
 "decider", the Four Holy Paths is called the decision, and the "one with the
@@ -420,9 +420,9 @@ not timid, who is not frightened , The one who does not frighten, the one who
 does not run away, the one who is not afraid of the sound, the one who is not
 afraid of the sound, the one who does not fear, the one who does not frighten,
 the one who does not fear, the one who does not fear, the one who does not fear,
-the one who does not frighten , Those who don’t frighten, those who don’t run
+the one who does not frighten , Those who don't frighten, those who don't run
 away, live where they have given up their terror and fear, and have left their
-bodies erected.” Because a lion is not afraid of sounds.
+bodies erected." Because a lion is not afraid of sounds.
 
 "If the wind is not adhered to the net": ""Wind", east wind, west wind, north
 wind, south wind, dusty wind, dust-free wind, cold wind, hot wind , Small wind,
@@ -490,7 +490,7 @@ forest, and the border dwelling ( Reclining place): low voice, quiet, away from
 the atmosphere, living alone, suitable for sitting alone; he [walks alone,]
 walks alone, stands alone, sits alone, lies alone, enters alone for alms The
 village [, advance alone], returns alone, sits alone in a quiet place, performs
-alone, walks, lives, moves, turns, guards, survives, and survives alone.” For
+alone, walks, lives, moves, turns, guards, survives, and survives alone." For
 the border dwelling should be used, it should be like a rhino Walk alone like a
 horn.
 
@@ -513,7 +513,7 @@ everything as to oneself, with a heart of compassion, with a heart of vastness,
 excellence, immeasurable, no resentment, and no malice, and live in the whole
 world. The heart of sadness...(slightly) the heart of walking with
 joy...(slightly) the heart of walking with peace...the heart that is vast,
-outstanding, immeasurable, free of resentment, and malicious And stay.” To do it
+outstanding, immeasurable, free of resentment, and malicious And stay." To do it
 in time, be kind, compassionate, joyful, calm and liberating.
 
 "Not opposed by all worldly opponents": In the state of being practised in

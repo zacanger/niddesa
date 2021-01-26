@@ -82,11 +82,11 @@ Therefore, the single enlightened person is the one without greed.
 behave and tricks, and tricks to tricks around.
 
 What is the trickery of using resources? Here, the homeowners invite the
-bhikkhus with clothes, food, shelter, patients’ necessities, and medical
+bhikkhus with clothes, food, shelter, patients' necessities, and medical
 necessities. He is an evil desire person, a person with a desire for nature, and
 a hoper. He is a person who has clothes, food, shelter, necessities of the
 patient, and medical necessities. Hoping for more and rejecting clothes, refusal
-to give food, refusal to shelter, refusal of patients’ necessities and medical
+to give food, refusal to shelter, refusal of patients' necessities and medical
 necessities, he said: "What does high-value clothes have for Shamen!" Fanshamen
 should be put onIt is appropriate to choose rags from the mound room or garbage
 dump or in front of the shop to make coats {of}. What does it mean to Salmon
@@ -97,17 +97,17 @@ the mounds or live in the open, this is appropriate. What is it for Salmon with
 high-value patient needs and medical necessities! Van Salmon should be medicine
 with fermented cow urine or crushed halil, which is appropriate. After grasping
 that, he wears coarse clothes; receives coarse food; lives in coarse dwellings;
-uses coarse patients’ necessities and medical necessities. The homeowners knew
+uses coarse patients' necessities and medical necessities. The homeowners knew
 him this way: "This Shaman is a person with little desire, a contented person, a
 lonely person, a person who is away from the masses, a person whose vitality has
 been activated, and a talker. "They used more and more invitations with clothes,
-food, shelter, patients’ necessities, and medical necessities." He said: "The
+food, shelter, patients' necessities, and medical necessities." He said: "The
 three current states have faithful men who produce a lot of merit: the current
 state of faith has faithful men. The current state that produces a lot of merit
 and donation has a believing man who produces a lot of merit, and the current
 state of a person worthy of support has a believing man who produces a lot of
 merit. You are the believer, and the charity exists (discovered), and I am the
-receiver. If I don’t accept it, then you will become outsiders of merit. This is
+receiver. If I don't accept it, then you will become outsiders of merit. This is
 not necessary for me, but just for pity. You, I accept. After clinging to that,
 he accepts many clothes, many foods, many residences, and many patients'
 necessities and medical necessities. The frown of anyone who frowns like this;
@@ -116,7 +116,7 @@ be used.
 
 What is the trickery of behavior? Here, there are certain types of evil
 desirers, those who desire nature, and those who desire respect [thought]: "In
-this way, people will respect me. 』He placed to walk, placed to stand, placed
+this way, people will respect me. "He placed to walk, placed to stand, placed
 to sit, placed to lie down, walked for desire, stood for desire, sat down for
 desire, lay down for desire, walked like a person in concentration, as in
 concentration He stands, sits down like a meditation person, lies down like a
@@ -140,7 +140,7 @@ dwelling like this...in a half-roof house...in a tall building...in a flat
 house...in a cave...living in a cave...living in a hut (solitary mansion)...
 ...Living in a heavy pavilion...Living in an observatory...Living in a round
 house...Living in a shed...Living in a lecture hall...Living in a tent...Living
-under a tree...He is the sand gate of great power. 』
+under a tree...He is the sand gate of great power. "
 
 Or, those who keep frowning; those who keep frowning; those who keep tricking;
 those who keep nagging; those who are respected because of their mouths, he said
@@ -209,7 +209,7 @@ called an evil companion: "There is no charity, no offerings, no offerings, no
 good or evil kamma, no results and rewards. In this world, there is no other
 world, no mother, no father, no metamorphic sentient beings. There is no
 righteous, righteous sandman or brahman in this world who testifies to this
-world and other worlds.” This is an evil companion . "Evil companions should be
+world and other worlds." This is an evil companion . "Evil companions should be
 avoided": "Evil companions should be avoided, should be avoided." That means
 that evil companions should be avoided.
 
@@ -272,7 +272,7 @@ enthusiasts should not make friends; those who are loose should not make
 friends; they should not make friends, should not engage in, should not
 participate, should not be used, should not be practiced, and should not It
 should be good practice (complete practice), and should not be turned around
-after holding it.” For yourself, you should not make friends with enthusiasts
+after holding it." For yourself, you should not make friends with enthusiasts
 and loosers, and should walk alone like a rhino horn.
 
 Because of that, the single enlightened person said:
@@ -450,7 +450,7 @@ alone like a rhino horn.
 
 "This is dyeing: the little happiness here": ""Dyeing", or "crochet", or
 "tempting object", or "sticking", or "obstacle", which is synonymous with the
-five desires." Here’s a little happiness", this is said by the Blessed One:
+five desires." Here's a little happiness", this is said by the Blessed One:
 Bhikkhus! There are these five desires, which are the five? Can be recognized by
 the eye, what is wanted, cute, agreeable, cute, and accompanied by desire , The
 color of greed and color... (abbreviated) can be touched by body knowledge, what
@@ -458,7 +458,7 @@ is desirable, cute, desirable, cute, accompanied by desire, and greedy, monks!
 These are called five Desires. Bhikkhus! All the happiness and joy that arise
 from these five desires, bhikkhus! This is called lust. This pleasure is small;
 this pleasure is insignificant; this pleasure is only some; this pleasure is
-Inferior; this happiness is inferior; this happiness is inferior intent.” For
+Inferior; this happiness is inferior; this happiness is inferior intent." For
 this is dyed: the little happiness here.
 
 "Those with less pleasure have more suffering here": "The Blessed One said:
@@ -559,7 +559,7 @@ and walking in all directions, this is also confusing.
 Or, after the bhikkhu sees color with his eyes, he becomes a grasper of
 appearance and a grasper of subtle appearance, because when he stays at the root
 of his eyes, greed, sorrow and evil will flow in. He does not act according to
-his self-control. If you don’t protect the roots of the eyes, and do not achieve
+his self-control. If you don't protect the roots of the eyes, and do not achieve
 self-control [SN.35.120] on the roots of the eyes, this is also confusing your
 eyes.
 
@@ -576,7 +576,7 @@ How is the eye down? Here, the bhikkhu is not a person with unstable eyes, and
 one who does not possess eyes: "What should be seen becomes invisible, and what
 should be crossed becomes visible. "Not from gardens to gardens, from gardens to
 gardens, from villages to villages, from towns to towns, from cities to cities,
-from countries to countries, from places to places, he didn’t want to see long
+from countries to countries, from places to places, he didn't want to see long
 parades and occasional parades in various forms. Engaged in. This is the eye
 down.
 
@@ -605,8 +605,8 @@ garden, from village to village, from town to town, from city to city, from
 country to country, from place to place, he lives Those engaged in long parades
 and irregular parades. This is wandering.
 
-or a wandering monk in the monk’s garden, possessWandering: for no benefit, no
-reason to lift the ground, quietly walking from the monk’s room to the monk’s
+or a wandering monk in the monk's garden, possessWandering: for no benefit, no
+reason to lift the ground, quietly walking from the monk's room to the monk's
 room, from residence to residence, from half-roof house to half-roof house, from
 high-rise to high-rise , From the flat house to the flat house, from the cave to
 the cave, from the cave to the cave, from the hut to the hut, from the heavy
@@ -653,8 +653,8 @@ color, lives in the body without the establishment of the mind, and the one with
 little heart is not truthful. Liberation: the evil and unwholesome dhammas that
 have arisen have no end; after hearing the sound with ears... (omitted) after
 knowing the dhamma with consciousness, fall in love with the lovable dhamma,
-reject the unlovable dhamma, live in the body and have no thoughts It’s not true
-that it’s not true to know the mind, liberate from wisdom, and liberate from
+reject the unlovable dhamma, live in the body and have no thoughts It's not true
+that it's not true to know the mind, liberate from wisdom, and liberate from
 wisdom: those evil and unwholesome dhammas that have arisen have no
 extinguishment, fellow students! This is called the bhikkhu who is the leaker in
 the color that can be recognized by the eye... (omitted) The Dhamma of Conscious

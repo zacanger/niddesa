@@ -14,7 +14,7 @@ They did, they imposed, they set, they made known.
 [APZ 53.2] (# apz53.2) {# apz53.2 .ref .apz} "Ayushmat Hemakathema said. Gautama
 Before the Sasana "means before the Gautama Sasana." From the Gautama Sasana means the Buddha
 From the Sasana, from the Jinnah Sasana, from the Tathagata Sasana, from the Deva Sasana, from the Arahantha Sasana
-That is. ‘So’ is like this, “So it was” is all this. Thus
+That is. 'So' is like this, "So it was" is all this. Thus
 Is. Thus it was by news or generation or by fragmentation
 Argument or theory or form of reasoning or view
 They professed a doctrine which they did not know well by penetration or knowing.
@@ -106,8 +106,8 @@ Determine if there is any causal doctrine to prevent it all
 Knowing that it exists, it is decided by looking at it and announcing it.
 
 [APZ 56.2] (# apz56.2) # apz56.2 .ref .apz} "Someone" means
-They are exhausted. “Mindfulness is real"" If you are mindful of four points (1-8) 4
-(ii) should be applied. Even if they say they are mindful. “The wise know this
+They are exhausted. "Mindfulness is real"" If you are mindful of four points (1-8) 4
+(ii) should be applied. Even if they say they are mindful. "The wise know this
 Comparison of "vision" in "vision" in "vision nivunahu"
 The Dhamma, the Dhamma that has been decided and made public, the Dhamma that all editors see as impermanent,
 The Dhamma that sees all editors as miserable, the Dhamma that sees all Dhammas as infinite,

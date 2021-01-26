@@ -108,7 +108,7 @@ That is. Therefore the Brahman himself said:
 [APZ 83.1] (# apz83.1) # apz83.1 .ref .apz} "All consciousnesses are
 The Blessed One knows the Four Noble Truths as consecration. How
 Does the Blessed One know the Four Noble Truths as consecrated? This
-The Blessed One preached, “MahaNeni, Idin Rupupaya (ii)
+The Blessed One preached, "MahaNeni, Idin Rupupaya (ii)
 Consciousness exists. Transformation into image growth
 Comes in abundance. (iii) Mahaneni, Idin Vedanupaya or (here (ii) applied
 Should.) Mahanai, then there is Sankarupaya or consciousness.
@@ -150,7 +150,7 @@ Does not express. The ballot is meaningful, even in the present tense
 Something knows the real time to solve those problems. Vote, thus
 That is, the past, the future, the present, the realities of the doctrines belong to the present
 What was demonic, what was semantic, what was dharmic, what was disciplinary. Therefore
-Says real. ‘The vote is somehow with the mortals of the world with God
+Says real. 'The vote is somehow with the mortals of the world with God
 The God of Bamboos has seen, heard, touched, known to the human community.
 When all that came and sought was realized by heart. Therefore it is said to be real.
 

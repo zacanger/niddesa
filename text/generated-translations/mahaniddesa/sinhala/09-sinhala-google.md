@@ -7,7 +7,7 @@
 [Msdiv 70] (# msdiv70) # msdiv70 .ref .msdiv} (9 - 1)
 
 [APZ 70.1] (# apz70.1) {# apz70.1 .ref .apz} "Have you seen Trishna, Arati, Raga?
-Isn't there any lust in sexual intercourse? ”Saw the daughters of Tanha, Arathi and Raga.
+Isn't there any lust in sexual intercourse? "Saw the daughters of Tanha, Arathi and Raga.
 There was no desire or lust or prema in the doctrine of fornication "from the dead urine
 I do not want to touch anything that is full. "
 After all, this body was full of urine. Filled with filth. Of semen
@@ -133,7 +133,7 @@ Purity, Purity, Immunity, Liberation, Liberation, Unspoken Practice
 Did not. That is.
 
 [APZ 74.7] (# apz74.7) # apz74.7 .ref .apz} "Seeing, hearing, wisdom,
-Seeing is not the same as going without the seal. ”
+Seeing is not the same as going without the seal. "
 Object consensus should be preferred. What is given has fruit. Donated
 There are consequences to that. Consequences of Sacrifice Rewards of Good and Bad Deeds
 has. There is this world. There is an afterlife. The mother has. The father has. There are parasitic animals. Someone
@@ -269,7 +269,7 @@ Haruwa means.
 He does not feel special "means if one has mastered these three dimensions
 If it happens first, if it calms down, if it calms down, if it is unfit to be born
 He would not have been shaken in these three dimensions if he had been burned at the stake. Not shaken
-Whether the person is equal or superior or inferior or “a
+Whether the person is equal or superior or inferior or "a
 Not for me "means not for me.
 
 [Msdiv 78] (# msdiv78) # msdiv78 .ref .msdiv} (9 - 9)
@@ -314,7 +314,7 @@ To the late Venerable Haliddakani of Hunna,
 said. Lord, the Great Katyayana, the Blessed One, the Eightfold Path
 In the Magandiya question of type,
 
-“Leaving Munithema's abode (Aniketha Sareeva) is homeless in the village
+"Leaving Munithema's abode (Aniketha Sareeva) is homeless in the village
 What is not joined is emptied of lusts as non-presentations.
 How can you quarrel with people? "
 

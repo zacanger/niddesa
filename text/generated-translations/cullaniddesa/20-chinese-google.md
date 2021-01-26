@@ -27,7 +27,7 @@ down and putting the stick on all living things.
 
 "None of them hurts": "The life of each sentient being will not be injured by
 clods, or sticks, or swords, or chains, or ropes. Do not use mud or sticks or
-sticks for all living beings. Those who hurt with swords, chains, or ropes.”
+sticks for all living beings. Those who hurt with swords, chains, or ropes."
 Because none of them hurts.
 
 "You shouldn't want your son to have companions from where": "No" is negative.
@@ -73,14 +73,14 @@ demon accompanied by the army, the evil demon, the relatives of the liberated,
 the net, the strong mobile, The entangled thirsty loves him to abandon, drive
 away, make the end, and make it go to non-existence.
 
-『People who have thirsty love as their partner, reincarnate for a long time,
+"People who have thirsty love as their partner, reincarnate for a long time,
 
 becomes this state, other states, does not go beyond reincarnation.
 
 knows this kind of trouble: craving is the origin of suffering,
 
 Departure from thirsty love, no taking, bhikkhus should march conscientiously.
-』[It.15/Sn.3.12,745-746 verse]
+"[It.15/Sn.3.12,745-746 verse]
 
 This is the one who is alone with the desire for love and righteousness.
 
@@ -96,11 +96,11 @@ alone? The path without a fork is called the four mindfulness, the four
 righteousness, the four god feet, the five senses, the five powers, the seven
 enlightenment factors, and the eight sacred paths.
 
-『The one who sees the death of life, the one who is pitiful, knows that there
+"The one who sees the death of life, the one who is pitiful, knows that there
 is no way,
 
 used this way to cross the storm in the past, and they will be and present.
-』[SN.47.18]
+"[SN.47.18]
 
 This is the single enlightened person who "has crossed the road without fork" as
 alone.
@@ -111,20 +111,20 @@ root of wisdom, power of wisdom, enlightenment, investigation, vipassana, and
 right view on the four realms. The one who is enlightened only by the way, the
 enlightened by the way, and the enlightened with the wisdom alone feels that
 "all actions are impermanent"; that "all actions are suffering"; that "all
-dhammas are selfless"; Feeling that “knowledge is based on deeds”; feel that
-“knowledge is dependent for name and form”; feel that “touch is based on six
-locations”; feel that “feeling is based on touch”; "Received as the predestined
+dhammas are selfless"; Feeling that "knowledge is based on deeds"; feel that
+"knowledge is dependent for name and form"; feel that "touch is based on six
+locations"; feel that "feeling is based on touch"; "Received as the predestined
 to have thirst for love"; felt "Thirsty and love as the predestined to obtain";
 felt "to take as the predestined for existence"; felt "to be predestined for
 existence"; felt "to be born" There is old death due to the condition; feeling
-“to die with the extinguishment of ignorance”; to feel “to die with the deeds to
-know and to die”; to feel “to extinguish with the name and to perish”; to feel
-“to extinguish with the name and form”; Feeling "destroyed in six places";
+"to die with the extinguishment of ignorance"; to feel "to die with the deeds to
+know and to die"; to feel "to extinguish with the name and to perish"; to feel
+"to extinguish with the name and form"; Feeling "destroyed in six places";
 feeling "destroyed by touching"; feeling "destroyed by thirst"; felt "destroyed
-by thirst"; felt "being destroyed by extinguishing Extinguish”; feel that
-“existence and death will lead to birth and death”; feel that “existence and
-death will lead to death and death”; feel that “this is suffering”; feel that
-“this is suffering collection”; feel that “this is suffering and extinguish”;
+by thirst"; felt "being destroyed by extinguishing Extinguish"; feel that
+"existence and death will lead to birth and death"; feel that "existence and
+death will lead to death and death"; feel that "this is suffering"; feel that
+"this is suffering collection"; feel that "this is suffering and extinguish";
 feel that this is leading to suffering Feeling that "these are troubles"; feel
 that "this is the set of troubles"... (slightly) feel that "this is the path
 leading to troubles"; feel that these dhammas should be ubiquitous; feel that
@@ -162,7 +162,7 @@ vitality will act with their vitality, those who make it appear will act with
 thoughts, those who establish (do) do not distract will act with determination,
 those who know know will act with wisdom To act, the one who knows to walk with
 the act of knowledge, "In this way, the one who walks in the way makes all the
-good dhamma survive. 』Walking in order to walk, “in this way those who walk the
+good dhamma survive. "Walking in order to walk, "in this way those who walk the
 way reach excellence. "To walk with excellence, these are eight kinds of
 behaviors.
 
@@ -179,7 +179,7 @@ contrasting to that one. "If it is too salty, it is called as salt, if it is too
 bitter, it is called bitter, if it is too sweet, it is called like honey, if it
 is too hot, it is called like fire, and if it is too cold, it is called like
 ice. Known as Ruhai, the disciples who reach the great supernatural power are
-calledAs a master. 』Similarly, the single enlightened person is there like that
+calledAs a master. "Similarly, the single enlightened person is there like that
 one, equals to that, contrasts to that, alone without partner (no duality), free
 from bondage, and he walks, lives, and acts correctly in the world. , Turn up,
 guard, make survival, make survival. "Because you should walk alone like a rhino
@@ -255,7 +255,7 @@ The king was not satisfied with this situation. The king imprisoned him with
 handcuffs, or with ropes, or with fetters, or with vines, or with kudzu vines,
 or by throwing into chains, or by fences, or by The village is tied to the town
 [, or to the city], or to the country, or to the place, and it is even declared:
-"You must not walk away from here. 』He also feels suffering and sorrow by the
+"You must not walk away from here. "He also feels suffering and sorrow by the
 bondage,Where did this terror, suffering, and sorrow arise? It arises from his
 love, happiness, greed, joy and greed.
 
@@ -299,7 +299,7 @@ intense], violent, and pungent sensations there, and he would not die until the
 evil kamma was eliminated. Where did this terror, suffering, and sorrow arise?
 It arises from his love, happiness, greed, joy and greed.
 
-『There are four doors in the four corners, divided into equal parts,
+"There are four doors in the four corners, divided into equal parts,
 
 is surrounded by iron walls, and the top is covered by iron.
 
@@ -307,7 +307,7 @@ The land is made of iron, and it is burned to light by the fire,
 
 all a hundred yoshin, exist after all.
 
-It’s terrible to burn miserably, but it’s hard to get close to it
+It's terrible to burn miserably, but it's hard to get close to it
 
 The appearance of        with upright hair is a horror of suffering.
 
@@ -355,9 +355,9 @@ Everywhere they ran out, the doors were closed,
 
 They have a desire to go out, and sentient beings are seekers of escape.
 
-They don’t go out there, they get it by kamma,
+They don't go out there, they get it by kamma,
 
-For those bad kamma, there are many things that have been done and immature. 』
+For those bad kamma, there are many things that have been done and immature. "
 
 Where did this terror, suffering, and sorrow arise? It arises from his love,
 happiness, greed, joy and greed.
@@ -399,7 +399,7 @@ gave his life for [you] [DN.31], he does not contempt when [you] is exhausted,
 this is a friend at home.
 
 What is a buddhist monk? Here, the bhikkhu is a lovable, agreeable, respectable,
-admirer, interpreter, tolerant of other people’s words, and a esoteric talker.
+admirer, interpreter, tolerant of other people's words, and a esoteric talker.
 He does not encourage [AN.7.37] and persuade on non-increasing precepts. He
 persuaded him in the four-mindfulness practice effort, in the four sages...
 (slightly omitted) in the four gods... in the five senses... in the five
@@ -420,7 +420,7 @@ pity for friends and confidants, he makes the interests retreat.
 lowliness, make others stand in nobility while the heart is restrained, or make
 others stand in lowliness, make oneself stand in nobleness and the heart is
 restrained. How to make yourself humble and make others stand up noble and
-flatter others? [Thinking:] 『You are very helpful to me, I rely on you to get
+flatter others? [Thinking:] "You are very helpful to me, I rely on you to get
 clothes, food, shelter, the needs of patients, medical necessities, and anyone
 who gives or wants to do they think I am dependent on you Those who are regarded
 as you, all my previous names from my parents have disappeared to me, because
@@ -429,7 +429,7 @@ visit [some]'s home. "This is to make oneself humble, to make others stand noble
 and their hearts are bound.
 
 How to make others humble, make oneself stand noble and be restrained?
-[Thinking:] 『I am a good person to you. Because of me, you turn to the Buddha,
+[Thinking:] "I am a good person to you. Because of me, you turn to the Buddha,
 to the law, and to the Sangha, become those who are free from killing, from
 those who have not given and take, from those who have not given, and those who
 are free from lying, and from For those who drink wine, fruit wine, and wine, I
@@ -473,7 +473,7 @@ Like a bamboo shoot that is not stuck, it should walk alone like a rhino horn.
 bush. In the bamboo bush, old bamboo is stuck, entangled, entangled, attached,
 fixed, and obstructed. The same is true. Entangled together is called craving,
 it is greed, greed (complete greed), follow greed, conformity, joy, greed, the
-heart’s greed, want, fascination, taking, greed, big greed , Staining, sludge,
+heart's greed, want, fascination, taking, greed, big greed , Staining, sludge,
 disturbance, deceit, [reincarnation] root cause, [bitter] fertility, tailoring
 (craving), net, river, bondage, rope, attachment, accumulation, companion, wish,
 have The channel of desire, forest (forest), love forest (forest cluster),
@@ -489,7 +489,7 @@ for colorless craving, craving for death, craving for color, craving for sound,
 craving for smell, craving for taste, craving for touch, craving for Dhamma,
 torrent , Yoke (binding), binding, clinging, obstacles, covering, covering,
 binding, kilesas, latent tendency of troubles, entanglement, vines, miserly, the
-root of suffering, the occurrence of suffering, the devil’s catching net, The
+root of suffering, the occurrence of suffering, the devil's catching net, The
 hook of the devil [, the food of the devil], the realm of the devil, the
 dwelling place of the devil, the bondage of the devil, the river of thirst, the
 net of thirst, the rope of thirst, the sea of thirst, the root of craving,
@@ -502,7 +502,7 @@ love; "it seizes" is love; "Fraud" is for love; "poisonous root" is for love;
 thirst: in color... in sound On... On the smell... On the taste... On the
 touch... At home... (omitted) On the masses... On the residence... On the
 profit... On the reputation... On the praise... ...In pleasure...in clothes...in
-group food...in sitting equipment...in patients’ needs and medical
+group food...in sitting equipment...in patients' needs and medical
 necessities...in the world of desire...in the realm of form...in the realm of
 non-material ...In the desire to have...in the physical existence...in the
 colorless existence...in the thinking existence...in the non-imaginative
@@ -545,7 +545,7 @@ horn.
 
 Because of that, the single enlightened person said:
 
-"It’s like a huge bamboo being entangled together: whoever follows his children
+"It's like a huge bamboo being entangled together: whoever follows his children
 and wives,
 
 Like a bamboo shoot that is not stuck, it should walk alone like a rhino horn. "
@@ -643,7 +643,7 @@ conversation, pleasant talk, and pleasant conversation are called companions.
 walking, and traveling": "When staying at home, standing, walking, and traveling
 among his companions, he considers his own interests, the interests of others,
 and both Interests, consider the interests of the current life, the interests of
-the afterlife, and the interests of the two (Cambodia version).” For him, he is
+the afterlife, and the interests of the two (Cambodia version)." For him, he is
 a negotiator among his companions: when living at home, standing, walking, and
 traveling.
 
@@ -737,7 +737,7 @@ beings in the East will not disobey, those in the South will not disobey, and
 those in the West will not disobey Yes, all beings in the north are not against
 them, all beings in the middle of the east are not against them, and all beings
 in the middle of the south are not against them, and all beings in the middle of
-the west are not against them. It’s non-violating. All beings in the middle of
+the west are not against them. It's non-violating. All beings in the middle of
 the north are not against them. All beings below are not against them. All
 beings above are not against them. All beings in all directions are not against
 them. It is not against; in a state of sadness that has been practiced... in a
@@ -748,8 +748,8 @@ directions It is not against it. "In order to become a member of the Quartet.
 "To the one who is satisfied with everything": "The One Enlightened One is the
 one who is satisfied with whatever clothes, and praises the satisfaction with
 whatever clothes. He does not come to inappropriate evil because of clothes.
-Please, don’t tremble if you don’t get clothes, don’t get the clothes tied,
-don’t faint, innocent, have seen the troubled land, can be used with wisdom and
+Please, don't tremble if you don't get clothes, don't get the clothes tied,
+don't faint, innocent, have seen the troubled land, can be used with wisdom and
 wisdom [SN.16.1], and he does not use this No matter what kind of clothes are
 satisfied, praise oneself, and do not despise others. Those who are skilled, not
 lazy, righteous, and mindful are called the single enlightened person who lives
@@ -757,12 +757,12 @@ in the past highest holy caste [DN. 33/AN.4.28]. It is a person who is satisfied
 with whatever feeding... (omitted).
 
 It is a person who has been satisfied no matter what the place of residence...
-(omitted) is the person who has satisfied no matter what the patient’s needs and
-medical necessities are, and is praised for no matter what the patient’s needs
+(omitted) is the person who has satisfied no matter what the patient's needs and
+medical necessities are, and is praised for no matter what the patient's needs
 and medical necessities have been satisfied, he Do not come to inappropriate
-evils because of the patients’ needs and medical necessities, do not tremble
-without getting the patients’ needs and medical necessities, and get the
-patients’ necessities and medical necessities without being tied up, not
+evils because of the patients' needs and medical necessities, do not tremble
+without getting the patients' needs and medical necessities, and get the
+patients' necessities and medical necessities without being tied up, not
 fainted, He is innocent, has seen the troubled land, and has been used with
 wisdom and wisdom. Moreover, he neither praises himself for the satisfaction of
 the needs and medical necessities of any patient, nor does he contempt others.
@@ -837,7 +837,7 @@ Besides, monks! After the monk hears the sound with his ears...(slightly) after
 smelling the smell with his nose...(slightly omitted) after tasting the smell
 with his tongue...(slightly omitted) touching the touch with his
 body...(slightly omitted) after knowing the Dhamma with consciousness, he arises
-Yu Jie’s memories and intentions of evil and unwholesome Dhamma. "They live in
+Yu Jie's memories and intentions of evil and unwholesome Dhamma. "They live in
 him; evil and unwholesome laws live and enter (occupy)." Therefore, he is called
 "a disciple." "{Evil and unwholesome laws conquer him with that conquest}[They
 conquer him; evil and unwholesome laws conquer him]." Therefore, he is called
@@ -851,11 +851,11 @@ internal enemies, internal killers, internal grievances; monks! Sorrow...
 (slightly) monks! Infatuation is internal dirt, internal non-friends, internal
 enemies, internal killers, and internal grievances. Bhikkhus! These are the
 three types of internal grime, internal non-friends, internal enemies, internal
-killers, and internal grievances. 』
+killers, and internal grievances. "
 
-『Creed is the cause of no benefit, and greed is the one who shakes the heart,
+"Creed is the cause of no benefit, and greed is the one who shakes the heart,
 
-Horror arises from it, and people don’t realize it.
+Horror arises from it, and people don't realize it.
 
 The greedy person does not know the benefits, the greedy person cannot see the
 law,
@@ -864,7 +864,7 @@ At that time he was a blind dark one: anyone who can conquer with greed.
 
 瞋 is the cause of no benefit, anger is the one that shakes the heart,
 
-horror arises from it, and people don’t realize it.
+horror arises from it, and people don't realize it.
 
 The angry do not know the benefits, the angry cannot see the law,
 
@@ -873,11 +873,11 @@ At that time he was a blind dark one: a man who can conquer.
 foolishness is the cause of no benefit, foolishness is the one that shakes the
 heart,
 
-horror arises from it, and people don’t realize it.
+horror arises from it, and people don't realize it.
 
-fools don’t know the benefits, fools can’t see the law,
+fools don't know the benefits, fools can't see the law,
 
-At that time he was a blind dark one: anyone who can be conquered by idiots. 』
+At that time he was a blind dark one: anyone who can be conquered by idiots. "
 
 like thisIt is the danger of "living there".
 
@@ -888,26 +888,26 @@ sufferings, and restlessness arise; lord! When the aggression within the man
 himself arises... (Omitted) King! When the foolishness within the man arises,
 disadvantages, sufferings, and restlessness arise, Lord! When these three
 methods within the man arise, disadvantage, suffering, and restlessness arise.
-』
+"
 
-『Greed, aversion, foolish, disgusting man,
+"Greed, aversion, foolish, disgusting man,
 
-hurt oneself, like many fruits [damage] its tree heart. 』
+hurt oneself, like many fruits [damage] its tree heart. "
 
 This is also "inhabiting there" in danger.
 
 This was said by the World Zun: [SN.10.3]
 
-『From here, there are greed and anger, from here unhappiness, happiness, and
+"From here, there are greed and anger, from here unhappiness, happiness, and
 body hair stand up.
 
 arises from here and then seeks intentionally, like a little boy letting a crow
-go. 』
+go. "
 
 This is also "inhabiting there" in danger.
 
 "Those who endure the dangers", "the ones who endure in danger, the winners, the
-overwhelming, the terminator, the renegade. 』For those who are tolerant of
+overwhelming, the terminator, the renegade. "For those who are tolerant of
 danger. "The one who does not frighten", the one who is only enlightened is the
 one who is not timid, not frightened, not frightened, and does not run away. He
 lives in a person who has given up fear of fear and has stood up from his body.
@@ -925,7 +925,7 @@ like a rhino horn. "
 129. Even if there are some monks who are difficult to take care of, there are
      lay members who live at home,
 
-After becoming someone who doesn’t care about other people’s sons, he should
+After becoming someone who doesn't care about other people's sons, he should
 walk alone like a rhino horn.
 
 "Even if there are some monks, it is difficult to take advantage": "Here, even
@@ -934,24 +934,24 @@ are given instructions, they are given many questions, although they are given
 clothes, they are given And the bowl, although it was given a copper bowl,
 although it was given a water filter, although it was given a water filter
 pouch, although it was given a bag, although it was given a shoe, although it
-was given a belt, they would not listen, If you don’t listen to your ears, don’t
-need to know, those who are disloyal, disobedient, and opposing behaviors, don’t
-turn your face to others [Ni.2].” Because even some monks are difficult to get
+was given a belt, they would not listen, If you don't listen to your ears, don't
+need to know, those who are disloyal, disobedient, and opposing behaviors, don't
+turn your face to others [Ni.2]." Because even some monks are difficult to get
 along with.
 
 "There are also resident families who live at home": "Here, even if there is a
 type of resident who should be given elephants... (Omitted) Although they are
 given cars, fields, homes, gold, and gold coins, they are given to villages...
 (Omitted) Towns...Cities...Royal capital...Although they are given places, they
-don’t listen, don’t listen to them, don’t need to know them. If they are
-disloyal, disobedient, or opposing behavior, don’t go Face to the others."
+don't listen, don't listen to them, don't need to know them. If they are
+disloyal, disobedient, or opposing behavior, don't go Face to the others."
 Because there are still lay members living at home.
 
 "After becoming someone who does not care about the sons of others": "Besides
 being the sons of others in all this sense except for myself. After becoming
 indifferent to the sons of those other people, after becoming a less busy
-person, becoming a non-concerning person After that.” In order to become someone
-who doesn’t care about other people’s sons, one should walk alone like a rhino
+person, becoming a non-concerning person After that." In order to become someone
+who doesn't care about other people's sons, one should walk alone like a rhino
 horn.
 
 Because of that, the single enlightened person said:
@@ -959,7 +959,7 @@ Because of that, the single enlightened person said:
 "Even if there are some monks who are difficult to take care of, there are lay
 members living at home,
 
-After becoming someone who doesn’t care about other people’s sons, he should
+After becoming someone who doesn't care about other people's sons, he should
 walk alone like a rhino horn. "
 
 130. After abandoning the mark of the family, such as the ebony tree whose
@@ -1025,7 +1025,7 @@ Summary:
 
 Don't want wives and children (entangled bamboo thickets), close friends and
 confidantes (connection = fetters→love→bitter troubles and the horror of loss of
-interest being bound), lovely separations, don’t care about other people’s sons
+interest being bound), lovely separations, don't care about other people's sons
 (= Everything outside oneself), watching the freedom not to be desired, should
 walk alone like a rhino horn.
 

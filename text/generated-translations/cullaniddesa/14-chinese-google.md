@@ -46,21 +46,21 @@ person who has left the dust.
 idiot instead of dust is called grime, and "dirt" is a synonym for idiot.
 
 abandon the person who has eyes behind the dust, so the winner is called the
-person who has left the dust. 』
+person who has left the dust. "
 
 is the one who is free from dust.
 
-"Sit down", "The Blessed One is sitting in the Gata Temple in Bosha. 』Sit down.
+"Sit down", "The Blessed One is sitting in the Gata Temple in Bosha. "Sit down.
 
-『When Muni was sitting on the hillside, he had reached the other side of
+"When Muni was sitting on the hillside, he had reached the other side of
 suffering,
 
-disciples serve, Sanming’s death deceased. [SN.8.10]』
+disciples serve, Sanming's death deceased. [SN.8.10]"
 
 This is also the one who sits down. Or, "In the state where all efforts have
 ceased, the Blessed One is the one who sits, the one who has fallen, and the one
 who has practiced... (Omitted) The cycle of life and death, without his
-regeneration. 』This is also the one who sits down. "For those who have
+regeneration. "This is also the one who sits down. "For those who have
 meditation, those who are free from dust, and those who sit down.
 
 "[Like this Venerable Udhya]": ""Like this", the continuation of the sentence...
@@ -75,7 +75,7 @@ the future. Therefore, the Buddha should be the author.
 "For those who have not spread, for the monks who have cut off the stream,
 
 For those who have been cut off what should be done and what should not be done,
-the scorching heat is not found. [Sn.3.11,720 verse]」
+the scorching heat is not found. [Sn.3.11,720 verse]'
 
 "Should be the author, the one who has no troubles": ""Variousness", there are
 four kinds of troubles: the troubles of desire, some troubles, the troubles of
@@ -168,7 +168,7 @@ undesirable sufferings of the heart touch. "Both with the sorrow and sorrow":
 "The desire to sorrow and the sorrow, cessation, calm, cessation, cessation,
 immortality, and Nibbana." It is both and the sorrow.
 
-"And the exclusion of drowsiness": "’Sudd’s," that is the state of unbearable,
+"And the exclusion of drowsiness": "'Sudd's," that is the state of unbearable,
 unsuitable work, stained, withdrawn, dull, depressed, withdrawn, drowsy,
 ignorant, and ignorant. "Exclusion", as well as the exclusion, renunciation,
 cessation, cessation, cessation, immortality, and Nibbana.
@@ -189,16 +189,16 @@ of mind; "I did the evil deeds of speech, and did not do the good deeds of
 language."... (slightly omitted ) "I did the evil deeds, but I did not do the
 good deeds."... (omitted) "I did the killing, and the abstinence from killing
 was not done by me."... (omitted) "Take without giving It was done by me, and
-the precepts taken without giving were never done by me.”... (slightly omitted)
+the precepts taken without giving were never done by me."... (slightly omitted)
 "I did it by me, and the precepts for adultery were never done by me."...
 (slightly omitted) LiarThe quit was not done by me. "... (slightly omitted) "I
 did the parting language, and the abstinence of the parting language was not
 done by me."... (slightly omitted) "I did the vicious language, and the
 abstention of the vicious language was never done by me."... …(Omitted) "I did
-the slurs, and I didn’t do the abstinence of slurs."...(Omitted) "Greedy was
+the slurs, and I didn't do the abstinence of slurs."...(Omitted) "Greedy was
 done by me, and not greedy was not done by me."...(Omitted) "Malicious It was
-done by me, it was not done by me innocently.”... (omitted) “I did wrong views,
-and right views were not done by me.” He had regrets, heart regrets, and
+done by me, it was not done by me innocently."... (omitted) "I did wrong views,
+and right views were not done by me." He had regrets, heart regrets, and
 confusion of intentions. This is what was done. Regret, heart regret, and
 confusion arise with what has not been done.
 
@@ -236,7 +236,7 @@ tranquil state of the mind, the neutral state of the mind in the fourth jhana.
 jhana... (omitted) mindfulness. "Purification from calmness to mindfulness":
 "The peace and mindfulness in the fourth jhana are pure, pure, completely pure,
 pure, pure, clean, free from defilements, plastic, suitable Working, standing
-still, reaching immobile.” Mindfulness is completely pure because of peace.
+still, reaching immobile." Mindfulness is completely pure because of peace.
 
 "Thinking of Dhamma is the forerunner": "Thinking of Dhamma is called Zhengzhi.
 It is the beginning, the first, and the forerunner for the liberation of
@@ -251,7 +251,7 @@ thinking.
 "I talk about the liberation of the complete wisdom": "The liberation of the
 complete wisdom is called the liberation of the Arahat. I speak, I explain, I
 teach, I inform, I build, I uncover, I analyze, I clarify, I explain the
-Arahat’s Freedom." Tell me about the complete wise liberation.
+Arahat's Freedom." Tell me about the complete wise liberation.
 
 "The destruction of ignorance": ""Ignorance", ignorance in suffering...
 (omitted) Ignorance [的 fence], the root of ignorance. "Destruction", the
@@ -311,7 +311,7 @@ wandering.
 love", the thirst for lust... (abbreviated) the thirst for Dhamma. "With the
 surrender of thirsting, it is called Nibbana like this": "With the surrender of
 thirsting, calm, cessation, and cessation, it is called, said, told, talked,
-explained, explained like this Speak as Nibbana.” To give up with thirst is
+explained, explained like this Speak as Nibbana." To give up with thirst is
 called Nibbana like this.
 
 Because of that, the Lord said:

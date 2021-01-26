@@ -4,11 +4,11 @@
 
 #3. Parayanathththuthiganza
 
-“So that the prophets have dweled and dwelt the work of the country in the rock.
+"So that the prophets have dweled and dwelt the work of the country in the rock.
 Question asked by sixteen Brahmins who were invited
 Solved. Knowing the meaning of one question, knowing doctrine and practicing in doctrine
 If the races, Jara, go to the end of the death. This Dharma (person) is sent to it
-Because this Dhamma has another name, “pharayana”.
+Because this Dhamma has another name, "pharayana".
 
 [Msdiv 149] (#msdiv149) {#msdiv149 .ref .msdiv} Iji, Tissa's post,
 The pulmonary is also metagaya, arteriary, subcutter, nandaya, and also hemorrhoids,

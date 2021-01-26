@@ -16,7 +16,7 @@ Terrorist lust did not fail, but someone's fears
 Inferior people give birth to inferior offspring and, thus, propagate their inferiority.
 
 [APZ 121.2] (# apz121.2) {# apz121.2 .ref .apz} "By what means?
-What? ”They were not terrified, they were not afraid, they were not terrified.
+What? "They were not terrified, they were not afraid, they were not terrified.
 Even if it is confirmed by the fact. "Penalties" are three penalties. Corporal punishment, verbal punishment,
 The mind is the rod. If the threefold bodily defilement is the body, the fourfold
 Verbal immorality is the rod of speech. The threefold depravity is the mind.
@@ -30,11 +30,11 @@ You shall not afflict with a rod or a weapon or a rope, (iii) all
 For animals or by hand (here (ii) should be used.).
 
 [APZ 121.5] (# apz121.5) ෙකු # apz121.5 .ref .apz} "Son does not like.
-Where does a friend come from? ”Is the antithesis. 'Sons' means (ii)
+Where does a friend come from? "Is the antithesis. 'Sons' means (ii)
 Four sons. The son born of the field, born of himself
 The son is the adopted son, the prodigal son. With someone
 Easy to get to, good to go, easy to get to, easy to sit on
-Sleep hopes for an easy address, even if they are assistants. “A son
+Sleep hopes for an easy address, even if they are assistants. "A son
 Does not like "means a son does not like, does not expect.
 
 [APZ 121.6] (# apz121.6) # apz121.6 .ref .apz} "Where is a friend?" Is
@@ -350,7 +350,7 @@ The Lord declared:
 [Msdiv 128] (# msdiv128) # msdiv128 .ref .msdiv} (18-8)
 
 [APZ 128.1] (# apz128.1) # apz128.1 .ref .apz} "with animals in four directions
-He was not angry. ”Then the Buddha compassionately (ii)
+He was not angry. "Then the Buddha compassionately (ii)
 Spreads a direction and inhabits. Also the second direction, the third direction, the fourth direction
 And all the worlds above and below, all the worlds, all the worlds, all the worlds, all the worlds
 The compassionate mind dwells spread with an insatiable hatred-free heart. Please
@@ -409,7 +409,7 @@ Deterioration due to the danger of these skills, whether it is the growth of the
 In order.
 
 [APZ 128.6] (# apz128.6) # apz128.6 .ref .apz} "How to live there
-Is that so? ”Those lame akushala dhammas are born there, and Yamse is the soul of these akushala dhammas.
+Is that so? "Those lame akushala dhammas are born there, and Yamse is the soul of these akushala dhammas.
 This is how the condition was associated. The creatures that associate with the land lie on the ground,
 Animals that have been in contact with water sleep, but have been in contact with water
 The creatures lie down. In the forest lie the creatures associated with the forest,
@@ -462,7 +462,7 @@ If courage is beyond.
 [APZ 130.4] (# apz130.4) {# apz130.4 .ref .apz} "Lay bonds" means sons,
 Wife and slaves. Slaves and sheep. Pork chicken. Elephants Horses
 Velambuda, Fields Hiranya Swarna Gam Niyam Village Kingdoms and Countries
-These are forts and treasuries. ‘Lay that creates some kind of attachment like this
+These are forts and treasuries. 'Lay that creates some kind of attachment like this
 Break off the traits of the brave one 'means that the earthly Buddha cuts off the traits
 The brave one who breaks down and calms down and becomes unproductive
 Behaves alone with the limb. Therefore, the Buddha on that soilHans said.
@@ -493,7 +493,7 @@ The one who has, the one who has the intellect, the one who has the wisdom "mean
 It means suppressing and eliminating all dangers.
 
 [APZ 131.4] (# apz131.4) # apz131.4 .ref .apz} "Happy minded
-He will deal with him. ”That is what the Buddha remembered.
+He will deal with him. "That is what the Buddha remembered.
 It has long been said that when one is endowed with sublime mindfulness and wisdom
 It is composed of remembrance and remembrance. That is. So on that soil
 The Buddha declared.
@@ -502,7 +502,7 @@ The Buddha declared.
 
 [APZ 132.1] (# apz132.1) {# apz132.1 .ref .apz} "From a wise friend
 If you do not get it "means one who does not get a wise, intelligent, wise and intelligent person
-That is. ‘Behaving together’ means behaving with. Courageous “good
+That is. 'Behaving together' means behaving with. Courageous "good
 Viharas have "(19-11) 2 (ii) which also have good Viharas from the first middle.
 Should). 'Courageous' means diligent, wise and intelligent
 Wisdom is the potential.
@@ -569,12 +569,12 @@ That is. So the Buddha then declared.
 [APZ 135.1] (# apz135.1) # apz135.1 .ref .apz} "Thus a second and my
 Unity "means that lust is second to none, and that a person is second to none
 Or will. How is lust second? The lusts here are the lusts of images
-Sounds, smells, tastes, touches are lusts. ”One's lust is futile
+Sounds, smells, tastes, touches are lusts. "One's lust is futile
 If not, he says, lust is second to none.
 
 [APZ 135.2] (# apz135.2) # apz135.2 .ref .apz} "Lust is second to none
 The person behaves for a long time in Sasara from one self to another
-Sasara does not go away. ”Thus lust is made second
+Sasara does not go away. "Thus lust is made second
 The person is second to none, but some person here is not because of himself
 Whether it was one or the other who thought the restless mind was arrogant, not because of reason,
 Whether the third or the fourth speaks of its futility. How is that?
@@ -614,13 +614,13 @@ Do not search, do not increase, do not work in abundance. Fear of this bliss
 I say yes.
 
 [APZ 136.3] (# apz136.3) {# apz136.3 .ref .apz නම් If the mind is "fascinated"
-Is there a mind? The mind is called, whether pleasing or not, “The mind in a distorted form
+Is there a mind? The mind is called, whether pleasing or not, "The mind in a distorted form
 Draws "means 'pleasing to the heart.' Is from images of different colors, viz
 (18--16) 1 (ii) should be used here.) Different colorsThe mind from touches
 It means to draw and to please. Seeing the consequences of lust
 
 [APZ 136.4] (# apz136.4) {# apz136.4 .ref .apz} This is by the Blessed Sacrament
-Preached. “Sir, there is a certain caste son here who lives by some craft
+Preached. "Sir, there is a certain caste son here who lives by some craft
 Vedas, that is, apart from farming or herding cattle or holding government posts
 Atamasso, learning the craft or facing the cold and facing the heat
 Mosquitoes. The air, the sun, the touch of the long nations
@@ -714,7 +714,7 @@ It does not die in the womb. Hence the womb is another name for lust.
 Whether it is lust or the primordial being somewhere, this lust is "satisfying."
 Descended from the form and returns to the mother's womb. Gentlemen, in a way, gentlemen
 The vengeful spirits are the ones who have outgrown this vengeance and are alienated
-The trembling animal looks on. “Seeing in this fear lust is in this fear lust
+The trembling animal looks on. "Seeing in this fear lust is in this fear lust
 It is to be seen, decided, and proclaimed. Hence the Buddha on that soil
 Stated.
 
@@ -831,7 +831,7 @@ Some kind of vision, a forest of vision, a desert of vision, a camp of vision
 A thorn, a shock of vision, a combination of vision, a grin, a prestige
 An entry, a wrong path, a lie, a pilgrimage, a mistake,
 Is this a bit of a glimpse into the grip of boredom, the grip of superstition?
-This vision is the evil thorn, ‘transcended’ means ideologically transcended. Reserved,
+This vision is the evil thorn, 'transcended' means ideologically transcended. Reserved,
 That is.
 
 [APZ 141.2] (# apz141.2) මාර්ග # apz141.2 .ref .apz} "
@@ -854,7 +854,7 @@ Then the Buddha declared.
 [Msdiv 142] (# msdiv142) {# msdiv142 .ref .msdiv} (18-22)
 
 [APZ 142.1] (# apz142.1) # apz142.1 .ref .apz} "Nillopavuye, not hypocritical
-There is no thirst. ”Nillopaya says to lose desire. Is there any lust?
+There is no thirst. "Nillopaya says to lose desire. Is there any lust?
 If there is attachment, if there is greed, if there is a root of evil, if it is greed
 Lust is then the Buddha's futility, first quoted
 It was made like a tree so that it would not be reborn when it was completely destroyed
@@ -1098,7 +1098,7 @@ Not to mention, for some reason this chakra is tough for those who live incohere
 Do you follow the mundane doctrines of greed and sorrow in order to curb it?
 Adheres and protects the chakra. Comes to the snout of the chakra. By ear
 Hearing the sound, he sniffed the scent and tasted the divine touch
-In short, knowing the Dhamma with the mind is not a sign. Something that doesn’t take shape
+In short, knowing the Dhamma with the mind is not a sign. Something that doesn't take shape
 In fact, it is worse then worthless, it consumes time and resources but returns no sales.
 The laic akushala dhammas of sadness follow him and follow it for the sake of sanvara.
 Preserves the senses, comes to the forefront of the senses. Has a protected mind
@@ -1225,7 +1225,7 @@ Should be used from the point of view of 'two points again')
 The other is the one who has a lowly attached mind.
 
 [APZ 151.6] (# apz151.6) # apz151.6 .ref .apz} "unbound by caste (home)
-There will be a mind, ”said the BuddhaMinds that are not connected with the consciousness of the world
+There will be a mind, "said the BuddhaMinds that are not connected with the consciousness of the world
 There will be minds that are not connected by the genus Pest. Habitat unaffected by pests
 There will be hearts. There are minds that are not connected with the Chivara pest. Pindapatha
 There will be minds unbound by pests. Hearts unaffected by pests
@@ -1271,7 +1271,7 @@ That is. That is why the Buddha declared.
 [Msdiv 153] (# msdiv153) {# msdiv153 .ref .msdiv} (18-34)
 
 [APZ 153.1] (# apz153.1) # apz153.1 .ref .apz} "The first two sorrows
-The two pleasures and sufferings have been eliminated, ”the Buddha said
+The two pleasures and sufferings have been eliminated, "the Buddha said
 Suffering is the first of the two sorrows to be lost by the suffering of the afflicted
 Coexistence of non-healing non-neglect and mindfulness of the Four Noble Truths
 Does.

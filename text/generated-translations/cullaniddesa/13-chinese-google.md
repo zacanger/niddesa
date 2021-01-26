@@ -111,9 +111,9 @@ of people have joined from all nations.
 
 "Hero! Looking forward to what you say": "Hero", the Blessed One is a hero,
 "Energetic" is a hero; "Able" is a hero; "Those who flow out all kinds of
-things" are heroes; "Sufficient ones" are heroes [; ”Is a hero; “heroic” is a
-hero; “one who is not afraid” is a hero; “one who is not afraid” is a hero; “one
-who does not fear” is a hero; “one who does not run away” is a hero; "Is the
+things" are heroes; "Sufficient ones" are heroes [; "Is a hero; "heroic" is a
+hero; "one who is not afraid" is a hero; "one who is not afraid" is a hero; "one
+who does not fear" is a hero; "one who does not run away" is a hero; "Is the
 hero]; "the one who has left the body and erected the hair" is the hero.
 
 "Here has gone from all evil abstainers to a state of vitality after
@@ -131,7 +131,7 @@ They look forward to your words.
 Sudra, Layman, Monk, Heaven, People. "You", he said the Blessed One. "Thoroughly
 "Explanation", please explain that thoroughly; please teach, please inform,
 please establish, please uncover, please analyze, please clarify, please
-explain.” To ask you to explain them thoroughly.
+explain." To ask you to explain them thoroughly.
 
 "Because like this you are the knower of these laws": "Because like this you are
 the knower, the judge, the judge, the clearer, the understander of these laws."
@@ -175,7 +175,7 @@ suffering, "Middle Quartet" means not suffering or not happy; "Up" means above
 the sole of the foot, "Down" means below the hair, and "Middle Quartet" means
 being In the middle." means the four directions above, below, and in the middle.
 
-「FanWhat they cling to in the world": "What they grasp, cling to, grasp, grasp,
+'FanWhat they cling to in the world": "What they grasp, cling to, grasp, grasp,
 grasp, grasp, grasp, grasp, whatever, things like mortals, feelings, thoughts,
 actions, and consciousness Attachment. "In the world", in the world of the
 suffering world... (omitted) in the world." It is what they cling to in the
@@ -186,7 +186,7 @@ demon, the demon of fun, the demon of rebirth, the demon of rebirth, the demon
 of reincarnation, the demon of reincarnation, and the cycle follow , Follow and
 become followers. "Affection", sentient beings, people (everyone), human beings,
 student Brahmins, people (men), individuals (Putjala), life, to the born,
-sentient, to the Indra , Those born of Manu.” Because of that, the demon follows
+sentient, to the Indra , Those born of Manu." Because of that, the demon follows
 sentient beings.
 
 Because of that, the Lord said:
@@ -213,7 +213,7 @@ cling", sex should not grasp, should not grasp, should not hold, should not
 take, should not cling, receive...( (Slightly)
 Think...do...knowledge...interests...death...become...have
 (exist)...reincarnation...reincarnation, he should not grasp, should not cling,
-should not hold, should not Grasping, should not be attached.” For this reason,
+should not hold, should not Grasping, should not be attached." For this reason,
 those who understand should not be attached.
 
 "The mindful bhikkhu is anything in all the world": ""Bhikkhu", a philanthropist
@@ -222,7 +222,7 @@ practicing and observing on the body When the body is mindful, it is mindful...
 (omitted) He is called mindful. "Anything", any form, feeling, thinking,
 behavior, consciousness "In all worlds", in all suffering worlds, in all human
 worlds, in all celestial worlds, in all aggregate worlds, in all realm worlds,
-in all worlds.” For the mindful. Bhikkhu is anything in all worlds.
+in all worlds." For the mindful. Bhikkhu is anything in all worlds.
 
 "Looking at the stuck grasper like this": "Various people grasp, grasp, hold,
 take, cling to, feel... (slightly) think... do... know... interesting...

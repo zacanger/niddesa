@@ -127,7 +127,7 @@ the shining Blessed Wisdom has the brilliance of wisdom, [Break] all the works
 ……(Omitted) the darkness of pollution, the darkness that destroys ignorance,
 after showing (to see) the light of wisdom, after knowing the desire for things,
 after giving up on the desire for pollution, he wins, defeats, overwhelms, End,
-crush, walk, stay, act, turn, guard, survive, and survive.” The shining sun
+crush, walk, stay, act, turn, guard, survive, and survive." The shining sun
 shines on the earth.
 
 "The one who is broadly wise is the one who is less wise": "I am the one who is
@@ -160,7 +160,7 @@ can know. Here is the separation of birth and aging. "
 67. [World Zun: "If you save the mud!"] Please temper your cravings on desire,
     and treat detachment from desire as a stable one,
 
-Picked up or rejected, don’t be found anything.
+Picked up or rejected, don't be found anything.
 
 "Please adjust to the desire of desire": "Desire", from the eulogy there are two
 desires: the desire of things and the desire of pollution... (omitted) these are
@@ -194,19 +194,19 @@ terminated, what should be brought to non-existence." For picked up or rejected.
 
 "Don't be discovered about anything": ""Anything", greed is a thing; hatred is a
 thing; ignorance is a thing; slowness is a thing; seeing is a thing; pollution
-is a thing; evil is a thing , Any of these things (Cambodia version) Don’t be
-discovered, don’t be forced to be discovered, don’t be completely discovered,
-don’t be discovered, please abandon, please drive away, please make the end,
-please make it go to non-existence ." Don’t be discovered for anything.
+is a thing; evil is a thing , Any of these things (Cambodia version) Don't be
+discovered, don't be forced to be discovered, don't be completely discovered,
+don't be discovered, please abandon, please drive away, please make the end,
+please make it go to non-existence ." Don't be discovered for anything.
 
 Because of that, the Lord said:
 
 "[World Zun: "Ruodu Gengni!"] Please temper your cravings and regard detachment
 as a stable one,
 
-Picked up or rejected, don’t be found anything. "
+Picked up or rejected, don't be found anything. "
 
-68. Anything before, please let it wither, please don’t have anything
+68. Anything before, please let it wither, please don't have anything
     afterwards,
 
 If you can't hold it in the middle, you will live a silent life.
@@ -219,13 +219,13 @@ way, what was before, please let it wither. Or, "Any past kamma creations that
 have not matured and repaid, please let them wither, ask you to wither, ask you
 to wither, ask you to expand and wither, and ask you not to be seeds, please
 give up Please break, please drive away, please make the end, please make it go
-to non-existence.” This is also what before, please make it wither.
+to non-existence." This is also what before, please make it wither.
 
 "Please don't have any afterwards": "The afterwards are called [future.]
 Regarding the actions of the future [what can arise] any greed, any aversion,
 any delusion, any slowness, any perception, any pollution, any evil deeds , Any
-of these for you don’t have, don’t make, don’t produce, don’t produce, don’t
-cause it to arise, don’t cause it to arise, please give up, please drive away,
+of these for you don't have, don't make, don't produce, don't produce, don't
+cause it to arise, don't cause it to arise, please give up, please drive away,
 please make the end, please make it come Doesn't exist." Please don't have it
 for any later.
 
@@ -245,7 +245,7 @@ Act, turn, guard, survive, and survive." For you, you will live a silent life.
 
 Because of that, the Lord said:
 
-"Anything before, please make it wither, please don’t have anything afterwards,
+"Anything before, please make it wither, please don't have anything afterwards,
 
 If you can't hold it in the middle, you will live a silent life. "
 
@@ -264,10 +264,10 @@ names and forms, to those who renounce greed, those who have no greed, those who
 abandon greed, those who exclude greed, those who liberate greed, those who
 renounce greed, and those who renounce Think of the greedy person, the greedy
 person, the greedy person, the greedy person, the greedy person, the greedy
-person, the greedy person, and the greedy person.” In all names and colors,
+person, the greedy person, and the greedy person." In all names and colors,
 Brahmadoor! For those who have no greed.
 
-"For this one’s troubles are not discovered": ""Farrings", there are four kinds
+"For this one's troubles are not discovered": ""Farrings", there are four kinds
 of troubles: the troubles of desire, some troubles, the troubles of seeing, and
 the troubles of ignorance. "For this one", to the Arahat For those who have
 exhausted their troubles. "Undiscovered", these troubles are not, non-existent,

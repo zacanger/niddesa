@@ -6,8 +6,8 @@
 
 [Msdiv 81] (#msdiv81) {#msdiv81 .ref .msdiv} (14-1)
 
-[APZ 81.1] (#apz81 .1) {#apz81 .1 .ref .apz} "Does anyone post the past?”
-“Whoever” means those who do not have an academician who knows himself
+[APZ 81.1] (#apz81 .1) {#apz81 .1 .ref .apz} "Does anyone post the past?"
+"Whoever" means those who do not have an academician who knows himself
 Has he disappoints the three truths of doctrines not heard before? There is also a serviceman
 The penity came into being the divines of the productions. The past is stated
 The prophets are prophesied in his own and in others. Future Prodals
@@ -34,8 +34,8 @@ Should be used.) Thus, the propyants proclaimed the past of others.
 He is the past of five hundred nations, and in his own, and in the past.
 Proposes.
 
-[APZ 81.4] (#apz81 .4) {#apz81 .4 .ref .apz} "Great Matter” Formula
-(ii) arises the past in their own and others. (iii) “Mahasadasana”
+[APZ 81.4] (#apz81 .4) {#apz81 .4 .ref .apz} "Great Matter" Formula
+(ii) arises the past in their own and others. (iii) "Mahasadasana"
 Formula stated (should be used here (ii)) 'Mahagoinda '
 The formula should be used here (ii).) The Excellent God
 Determine the formula (should be used here (ii))
@@ -54,7 +54,7 @@ Testimonies the past. The future is well stated. The existing time is stated.
 Says, Dezhana, imposes. Places, opens, divides, replaces, prosists
 Makes.
 
-[APZ 81.6] (#apz81 .6) {#apz81 .6 .ref .apz} "There is no doubt that there is no Pharah”
+[APZ 81.6] (#apz81 .6) {#apz81 .6 .ref .apz} "There is no doubt that there is no Pharah"
 Cravings called PharajaTells. A certain lust, a sticking stick,
 A central lottery is an Akushalamulaka, if this is a craving.
 The Spirit of Buddhism was originally synthesated. A whale tree is like a whale tree
@@ -76,7 +76,7 @@ It should be used from where to 'question') so said Brahman.
 
 [Msdiv 82] (#msdiv82) {#msdiv82 .ref .msdiv} (14-2)
 
-[APZ 82.1] (#apz82 .1) {#apz82 .1 .ref .apz} "Threated Image Signs”
+[APZ 82.1] (#apz82 .1) {#apz82 .1 .ref .apz} "Threated Image Signs"
 What is the image signal? Rupavahara society or Birnahu
 Themes of the theme park in the world or a signal, these images are made.
 Signal images are four images of images
@@ -84,7 +84,7 @@ And the signs were prophesy. Vadana Laddahu, eMauawahu go.
 All Points are Recipient, All Referential Image
 It is his images that are found in the unpretentious prophecy.
 
-[APZ 82.2] (#apz82 .2) {#apz82 .2 .ref .apz} "See Nothing” is
+[APZ 82.2] (#apz82 .2) {#apz82 .2 .ref .apz} "See Nothing" is
 Akijachanagatha is society, in what kind do you say there is nothing?
 In remembrance of Conscious Conscious Societies
 Rise in remembrance and dispel that consciousness itself. Disappears, there is nothing
@@ -108,7 +108,7 @@ Ready. Therefore, Brahmana said:
 [APZ 83.1] (#apz83 .1) {#apz83 .1 .ref .apz} "All Conscious Is
 He knows the four Conscious Conscious Conscious. How
 Do the Conscious Conscians know the four Conscious Conscious? This is
-Determined by the Trusts” HighNeni, Conn Rupupupa (ii)
+Determined by the Trusts" HighNeni, Conn Rupupupa (ii)
 Conscious is present. Inflammation into morphology
 (iii) Adopts to deviations, swollen stethoscope or (hereinafter (ii) Applied
 Must.) There is a sense of consciousness or consciousness that is present in the swollen.
@@ -132,7 +132,7 @@ Consciousness Almighty is nothing beyond Consciousness
 This is the Conscious Conscious Conscious, who came to the Akijanachanagama
 He sees septic suppositories as a result.
 
-[APZ 83.3] (#apz83 .3) {#apz83 .3.ref .apz} "StageKnow”
+[APZ 83.3] (#apz83 .3) {#apz83 .3.ref .apz} "StageKnow"
 Incarnate. This was declared by the chasers. Chunya.
 Not Past or Absent by the Puppies, and Awarts
 Yamecveda does not claim it as well. Chunya, Nostalgia (ii) Happened
@@ -157,7 +157,7 @@ Arrived, searching for everything was done by heart. Therefore, it says that
 [APZ 83.6] (#apz83 .6) {#apz83 .6 .ref .apz} "Chunya was raised some night
 Whether a reviled tradition comes to the Samples, a certain night's reproach
 Do you say something in the meantime, from Nibbanasadhara, and all that
-So. Not from anatomy. Therefore, it says that “Chunya, ThatalaThou shalt say, and do so. Do it say so. Thus
+So. Not from anatomy. Therefore, it says that "Chunya, ThatalaThou shalt say, and do so. Do it say so. Thus
 The realist is the reality of the reality. Therefore, it says that
 
 [APZ 83.7] (#apz83 .7) {#apz83 .7 .ref .apz} "Chunya, in the locality with God
@@ -165,7 +165,7 @@ Restaurant in the field of Brahmins with maroon buoons
 prevailed. The mutual can not die. Constant as mutual. Hence
 Thalagatha says.
 
-[APZ 83.8] (#apz83 .8) {#apz83 .8 .ref .apz} "Know This” is
+[APZ 83.8] (#apz83 .8) {#apz83 .8 .ref .apz} "Know This" is
 This person is evil traits raised to death by the breaking of the boar
 The birth of the spoiled worm, which falls in the evils, is a boredom.
 Melotho also sees the facts. The prophets of this person by breaking the boar
@@ -213,20 +213,20 @@ So did the bugger.
 
 [Msdiv 84] (#msdiv84) {#msdiv84 .ref .msdiv} (14-4)
 
-[APZ 84.1] (#apz84 .1) {#apz84 .1 .ref .apz} "Karma that incarnates”
+[APZ 84.1] (#apz84 .1) {#apz84 .1 .ref .apz} "Karma that incarnates"
 It tells the Karkanachanagama editor. It is a cracker
 Knowing and knowing the bonding, knowing the shield, and deciding with the decision
 Propare
 
-[APZ 84.2] (#apz84 .2) {#apz84 .2 .ref .apz} "Nandi combination thus know” is
+[APZ 84.2] (#apz84 .2) {#apz84 .2 .ref .apz} "Nandi combination thus know" is
 The combination of Nandi tells Aimal Lust. Images are elbowed in that kamma. Images
 Lust is the combination of Nandi knowing and knowing bonding, knowing shields and knowing skin
-Determine and Prohibit “Ithi” (thus) is the verses joint, verses
+Determine and Prohibit "Ithi" (thus) is the verses joint, verses
 Adjustment. Filling the verses is to complete the letters. Words are siling. Verses
-The order is to show. “Knowing the Matter” is thus knowing this, and deciding
+The order is to show. "Knowing the Matter" is thus knowing this, and deciding
 Propare
 
-[APZ 84.3] (#apz84 .3) {#apz84 .3.ref .apz} "The wall looks with its utmost”
+[APZ 84.3] (#apz84 .3) {#apz84 .3.ref .apz} "The wall looks with its utmost"
 There is a birthplace in it, rising from it with the Arcchina, and its birthplace.
 Doctrines look inordinately, look at grievous, look at disease (1-8) 3
 Should be applied from where the disease goes.) Looks unaminably. SAYE, CHECKNE

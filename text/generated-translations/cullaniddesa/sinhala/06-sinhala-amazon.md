@@ -6,22 +6,22 @@
 
 [Msdiv 9] (#msdiv9) {#msdiv9 .ref .msdiv} (2-1)
 
-[APZ 9.1] (#apz9 .1) {#apz9 .1 .ref .apz} "Who is happy in this locker” is
-It turned out that the Santhushthu was preferable to have full views.” Whoever
-Was it Santosha in Lokura? Thus said thou, “Hello, thou shalt not do so.” Going
+[APZ 9.1] (#apz9 .1) {#apz9 .1 .ref .apz} "Who is happy in this locker" is
+It turned out that the Santhushthu was preferable to have full views." Whoever
+Was it Santosha in Lokura? Thus said thou, "Hello, thou shalt not do so." Going
 'These' is (ii) the vowel joint and the verses matching. Filling verses Fonts
 equalization. Situation of verses. This is the order of verses.
 
-[APZ 9.2] (#apz9 .2) {#apz9 .2 .ref .apz} "Hello” is the favorite word. Hon.
+[APZ 9.2] (#apz9 .2) {#apz9 .2 .ref .apz} "Hello" is the favorite word. Hon.
 Word. Honor is a word to be considered. Hello is this. 'Tissa' is Tissa
 The name of Brahman is the imposition. The essence is the Nirukthi verse. Armantry.
 This is the victim of that Brahman. The imposition is the law.
 
-[APZ 9.3] (#apz9 .3) {#apz9 .3.ref .apz} "Who has no shock?” Cravings,
+[APZ 9.3] (#apz9 .3) {#apz9 .3.ref .apz} "Who has no shock?" Cravings,
 This is the shock, the vision shock, the dimensional shock, the clesy shock, the kamma shock
 Whoever does not receive, and not academic, or not, first of all
 Is it possible to be born, and to constipation, and to burn with a fire called wisdom
-Ready. “Whoever knows the two extremes”
+Ready. "Whoever knows the two extremes"
 Requiration Does one know the danger and does not go in the center know in the center
 The unrestricted heart of Sara Dumuyah, who is not ungevedda
 makes. Ready.
@@ -29,14 +29,14 @@ makes. Ready.
 [Msdiv 10] (#msdiv10) {#msdiv10 .ref .msdiv} [Msdiv 11] (#msdiv11) {#msdiv11
 .ref .msdiv}
 
-[APZ 11.4] (#apz11 .4) {#apz11 .4 .ref .apz} "Will I say to whoever is the great man”
+[APZ 11.4] (#apz11 .4) {#apz11 .4 .ref .apz} "Will I say to whoever is the great man"
 is the aperty male, the main male is the main male
 PuIt shall be said that the Rushaya is the high man. I will indicate it. It is
 I will do the business.
 
 [APZ 11.5] (#apz11 .5) {#apz11 .5 .ref .apz} "Hello Shariputra Stationers
 He said this unto the congregations. 'Lord, the great man is the great man
-says, 'How much does the Lord say is the great man?” Ready.
+says, 'How much does the Lord say is the great man?" Ready.
 Shariputra, I say the great man, because I have marrow hearts. Free Hearts
 I will not say the great man as there is. Shariputra, How to Mold Hearts
 Is there? Shariputra, living here according to the sew study.

@@ -4,7 +4,7 @@
 
 # 3. Parayanaththuthigatha
 
-The Blessed One said, “I live in the rock dagoba of Magadha.
+The Blessed One said, "I live in the rock dagoba of Magadha.
 Sixteen Brahmins were invited to ask questions
 Solved. Knowing the meaning of one question, knowing the Dhamma and following the Dharmanudharma
 If race, filth, go to the end of death. These Dhammas (person) are sent abroad

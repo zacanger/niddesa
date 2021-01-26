@@ -28,7 +28,7 @@ Please. Please enforce. Please leave. Please open, please divide.
 Please make it public. Please comment. That is.
 
 [APZ 83.5] (# apz83.5) # apz83.5 .ref .apz} "Trial by the Great Man
-What was asked, what was hoped for was explained. “Great
+What was asked, what was hoped for was explained. "Great
 From man "means the supreme, the great, the great, the noble.
 
 [Msdiv 84] (# msdiv84) # msdiv84 .ref .msdiv} (10 - 2)
@@ -63,7 +63,7 @@ Does not. It does not desire. It does not come to joy. Thus the antecedent assoc
 Would not have done.
 
 [APZ 84.4] (# apz84.4) # apz84.4 .ref .apz} "should still be read
-Will not go. ”The present tense refers to the present tense, the present tense
+Will not go. "The present tense refers to the present tense, the present tense
 From then on, the craving subsided. The vision calmed down. The lust is exhausted
 Since the vision is soothing, it does not count as lustful.
 Does not fall into the category of hate. It does not matter who is bound.
@@ -76,7 +76,7 @@ He does not fall into the category of a sniper or a novice snorer. Such
 No cause, no effect. It doesn't matter if something counts.
 
 [APZ 84.5] (# apz84.5) ෙහි # apz84.5 .ref .apz} "He has no precedent"
-Means to the Arahant Kshinashravas. “Precedent is presentation
+Means to the Arahant Kshinashravas. "Precedent is presentation
 Making twoKaki. It is the presentation of desire and the presentation of vision.
 (2-6) 1 (ii) (iii) Selfishness should be used interchangeably.
 
@@ -123,7 +123,7 @@ Just to see the directions. Not so much the touching of the rods. Sometimes
 Anger is only to touch rods and weapons. Not so much the lifting of rods and weapons.
 Sometimes anger is just about picking up sticks and weapons. From so many rods
 Not the beating. Sometimes anger is only to be beaten with sticks. as long as
-Not shattering. Sometimes it’s just a matter of crushing the anger
+Not shattering. Sometimes it's just a matter of crushing the anger
 Will be. Not so much the fractures. Sometimes anger just breaks down
 Will be. Not so much the breaking of limbs. Sometimes anger
 The limbs are just fractures. That is not killing.
@@ -570,7 +570,7 @@ There will be. Nibbana is at an end. That is.
 
 [APZ 88.5] (# apz88.5) # apz88.5 .ref .apz} "
 Did the ignorance and the break-up of the house eliminate the desire for this?
-He is said to be a noble man. ”All the inferiority complex clings. Kalyana
+He is said to be a noble man. "All the inferiority complex clings. Kalyana
 The saptas have not been attached to the Arahants since the time of Pratyagjana. Non-stick
 He was guilty of depleting hatred as he was depleted by depletion of lust
 He was accustomed to the rain as he was deluded by the depletion of the moha
@@ -747,7 +747,7 @@ Calmed, unworthy of birth, burned with the fire of wisdom.
 
 [APZ 91.1] (# apz91.1) ෙහි # apz91.1 .ref .apz ෙහි "Someone has no abstractions"
 To one, it means to the deserving Kshinashravas. That's it
-The absurdity is twofold. The absurdity of desire is the absurdity of vision. ‘Selfishness’ is absurd
+The absurdity is twofold. The absurdity of desire is the absurdity of vision. 'Selfishness' is absurd
 (2-6) 1 (ii) (iii) should be used)
 Inexhaustible effectsDebt calmed down visually. Degeneration of cravings
 There is no such thing as inertia because the visual inertia is soothing, apparent
@@ -837,7 +837,7 @@ Land trouble or not. Not obvious. Depression, first of all. St.,
 Calmed down.
 
 [APZ 93.5] (# apz93.5) # apz93.5 .ref .apz} "or has a soul
-Will not be. ”Atta is the divine view that it does not exist, that there is no soul
+Will not be. "Atta is the divine view that it does not exist, that there is no soul
 It's not. There is no soul-searching. The soul goes not
 There is no redemption for anyone who has no redemption. To someone
 No grape, he has no take. Takes, beyond the two redemptions

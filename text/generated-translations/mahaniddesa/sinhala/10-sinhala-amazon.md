@@ -7,43 +7,43 @@
 [Msdiv 83] (#msdiv83) {#msdiv83 .ref .msdiv} (10 - 1)
 
 [APZ 83.1] (#apz83 .1) {#apz83 .1 .ref .apz} "How to see
-How is Aththa said to be Upshantha” from any vision of the bearer
+How is Aththa said to be Upshantha" from any vision of the bearer
 Justification should be made from any location, any kind of fenced.
 
-“What kind of nature is” from any location.
+"What kind of nature is" from any location.
 The treatment will go from any railing.
 
 [APZ 83.2] (#apz83 .2) {#apz83 .2 .ref .apz} "is said to be the prefect
 Shanthi says that there was no craving. Testimonial
 makes. How to see is the hyper signal critique.
 
-[APZ 83.3] (#apz83 .3) {#apz83 .3 .ref .apz} "What Nature Is It” is Overhead
-says. Upsantha is a hyperthermia critic. “It is said to me, I am told,”
+[APZ 83.3] (#apz83 .3) {#apz83 .3 .ref .apz} "What Nature Is It" is Overhead
+says. Upsantha is a hyperthermia critic. "It is said to me, I am told,"
 I'll critique something that is. Ask for something and hope for something. Something goes down.
 Goumama, is a prey to the architects of the Buddhist Buddhist
 Armonts.
 
-[APZ 83.4] (#apz83 .4) {#apz83 .4 .ref .apz} will say "say”. Testimonial
+[APZ 83.4] (#apz83 .4) {#apz83 .4 .ref .apz} will say "say". Testimonial
 Manurements of caranu. Measure to be imposed. Constant. Open openings are measured, divided.
 Measure the pros. Measure the posts. Ready.
 
 [APZ 83.5] (#apz83 .5) {#apz83 .5 .ref .apz} "Reviews by the Noble Man
-The request was requested to be given by the following days. “Noble
-From man” is the greatest man, the chief chief of the chief.
+The request was requested to be given by the following days. "Noble
+From man" is the greatest man, the chief chief of the chief.
 
 [Msdiv 84] (#msdiv84) {#msdiv84 .ref .msdiv} (10 - 2)
 
-[APZ 84.1] (#apz84 .1) {#apz84 .1 .ref .apz} "Cravings before death”
+[APZ 84.1] (#apz84 .1) {#apz84 .1 .ref .apz} "Cravings before death"
 Trimming before the break of the soul before the breakage of the babyBefore Out
 The puffiness cravings have the redeemable lust only the pristine raga is the sanginana raga
 Separated from the craving, twined, dreamed and furnished like Brahman
 inhabited by spirit.
 
 [APZ 84.2] (#apz84 .2) {#apz84 .2 .ref .apz} "Trusts are Honors
-Word. (7-2) 1 Vots of “have little noise” from GC
+Word. (7-2) 1 Vots of "have little noise" from GC
 Should be used in place.
 
-[APZ 84.3] (#apz84 .3) {#apz84 .3.ref .apz} "Filtered End Unassociated”
+[APZ 84.3] (#apz84 .3) {#apz84 .3.ref .apz} "Filtered End Unassociated"
 The 'filtered extreme' says to the distant past. Cravings from the distant past
 Convinced. The outlook was constipated. The outlook as cravings are impoverished
 This is not the precinct, because it is compassed. Yelliu or Dynstalgia
@@ -63,7 +63,7 @@ does not. It does not crave. It does not come to its prey. MESILA EMSUrine inhal
 Not done.
 
 [APZ 84.4] (#apz84 .4) {#apz84 .4 .ref .apz} "To say also in the present
-Do not go.” The present is the present, which tells the existing period. Existing times
+Do not go." The present is the present, which tells the existing period. Existing times
 Since the craving becomes predisable. The outlook was simmering. Cravings
 Since the view is constipated, the lust will not go into the number.
 Malice shall not go into the category of justice. The linked person shall not go to the number.
@@ -75,8 +75,8 @@ saying a man or a God, or a puppet, or a ruler, or
 A sassava or a nevasannah shall not go into the genus of a sassava or the genus of a prose. Such
 There is no reason and no reason. There is no matter how to go to the number.
 
-[APZ 84.5] (#apz84 .5) {#apz84 .5 .ref .apz} "HE NO PREVIOUS”
-What is the earth, he said, is to the scepies. “Presentation of a frontline
+[APZ 84.5] (#apz84 .5) {#apz84 .5 .ref .apz} "HE NO PREVIOUS"
+What is the earth, he said, is to the scepies. "Presentation of a frontline
 There are two modifications. The craving is the presentation and the perspective perspectives.
 (2-6) 1 (ii) (iii) The submission of motherhood should be used as discriminatory.
 
@@ -102,7 +102,7 @@ No denying
 
 [Msdiv 85] (#msdiv85) {#msdiv85 .ref .msdiv} (10 - 3)
 
-[APZ 85.1] (#apz85 .1) {#apz85 .1 .ref .apz} "Not Motivated, Not Alarmed”
+[APZ 85.1] (#apz85 .1) {#apz85 .1 .ref .apz} "Not Motivated, Not Alarmed"
 It was said that not to be done. Re-action should be said first.
 The process occurs in ten points. I have done a lot of incarnate. Me
 Dosage is now done by the action. I'm going to do a miswork in the future
@@ -149,7 +149,7 @@ or not. I do not receive an ambulance medicine or someone in an ambulance.
 We do not fear that we are not afraid to do not come to the evening.
 
 [APZ 85.3] (#apz85 .3) {#apz85 .3.ref .apz} "Repent not to glamour oneself
-Some person here will boast of “not”. (here
+Some person here will boast of "not". (here
 (3-3) V says' to 'boast' by 'saying' in '5.
 From where Civilist Wemi to where 'Nevadanasakanayatha Sociality'
 Should be used) Thus there is no boasting. Far from boasting,
@@ -162,23 +162,23 @@ Cucus, the sign of the uncommitted, the time of the period of the period of the 
 The signal is incorrect in time when the signal is incorrect
 About the mind that the sign of the thing is correct
 Repentance: This is the cookie of repentance in the heart of two things
-Wei. WHERE NOT DON. (Here (2-7) 7 “reproach”
-From where “Kukusa is born” discriminated and “how to make”
-I need to apply the place “by myself”) Does anyone have this kukusa secret and first of all.
+Wei. WHERE NOT DON. (Here (2-7) 7 "reproach"
+From where "Kukusa is born" discriminated and "how to make"
+I need to apply the place "by myself") Does anyone have this kukusa secret and first of all.
 Shantha was unfit to be born, and the fire called wisdom was burned
 It is said that the person who has no kukus
 
 [APZ 85.6] (#apz85 .6) {#apz85 .6 .ref .apz} (discreetly)
-“Mantrajana says to the prophecy if any prophecy
+"Mantrajana says to the prophecy if any prophecy
 Vedi, (3-1 (iii) Any produsent should be used from where) Amohayayayayveda Dhamma
 Wichayada Samaratththia says words in such a discreet crowd
 Many say that most of the people are doing evil
-The words spoken in the evils are not said by the name of Yanuyi Manthabhani. “Not Pride”
+The words spoken in the evils are not said by the name of Yanuyi Manthabhani. "Not Pride"
 Any dissipation in the mind of its quotation,
 Is a restlessness a misery of the emotionalism, it is inflationary
-says. This “pride” of someone was the first one, and was the first one.
+says. This "pride" of someone was the first one, and was the first one.
 Sisinduni was born, and the wisdom was burned with fire
-The person who does not have quotation says”
+The person who does not have quotation says"
 
 [APZ 85.7] (#apz85 .7) {#apz85 .7 .ref .apz} "From the same word
 Muni Name Since HikmunuLeave the blasphemism here
@@ -211,15 +211,15 @@ Muni was the same.
 
 [Msdiv 86] (#msdiv86) {#msdiv86 .ref .msdiv} (10 - 4)
 
-[APZ 86.1] (#apz86 .1) {#apz86 .1 .ref .apz} "I do not have a passion”
-“Lama” tells the craving. A certain lust, an adda center
+[APZ 86.1] (#apz86 .1) {#apz86 .1 .ref .apz} "I do not have a passion"
+"Lama" tells the craving. A certain lust, an adda center
 There is a nettle, a lobby, a root of the letter, that is. If someone has this tilt craving
 Consciousness of the genius, first of all, of connotation, of birth, of the thought of being born
 Fire burns, and this is unaluted in the future. What is this in the Realidu or Future
 I will be an image. (9-10) From where this image is going to consciousness
 Should be used to the place) will not be in the future.
 
-[APZ 86.2] (#apz86 .2) {#apz86 .2 .ref .apz} "does not suffer the last thing,” is
+[APZ 86.2] (#apz86 .2) {#apz86 .2 .ref .apz} "does not suffer the last thing," is
 It does not grieve either the object that comes to the change. The object changes or changes
 does not. My eye did not change. My ear, my nose, my tongue,
 My body, my figures, my sounds, my odors, my tastes, my mine
@@ -230,7 +230,7 @@ My son, my daughter, my friends, my friends, my relatives, my relatives
 The relatives of the Sahara do not grieve the change. Not fainting. No. in lee
 Do not clamp. Remembrance does not come into the first place. Ready.
 
-[APZ 86.3] (#apz86 .3) {#apz86 .3.ref .apz} "Leisure in touches”
+[APZ 86.3] (#apz86 .3) {#apz86 .3.ref .apz} "Leisure in touches"
 The contact of the eye is the contact of the eye, the contact of the earContact, nasal contact, tongue
 Touch, touch of the mouse, touch of the mind, touch of the room, touch of the crusher, comfort
 The touch of pain, the touch of suffering pain, the feeling of comfort and sadness
@@ -249,7 +249,7 @@ Moments, of all clayings in size, of all miracles, of all
 From the tribulations, from all burns, from all the plantations, all the unscrupulous collection
 Looks apart from.
 
-[APZ 86.4] (#apz86 .4) {#apz86 .4 .ref .apz} "Visits, Not Invisible.” is
+[APZ 86.4] (#apz86 .4) {#apz86 .4 .ref .apz} "Visits, Not Invisible." is
 His December visionism, originally instilled. Shantha. Constipated
 Efology to be born. The wisdom was burned by the fire. does not go out of sight,
 Does not deviate, does not text, does not make one places. As a standpoint
@@ -257,17 +257,17 @@ does not offer. Do not return.
 
 [Msdiv 87] (#msdiv87) {#msdiv87 .ref .msdiv} (10 - 5)
 
-[APZ 87.1] (#apz87 .1) {#apz87 .1 .ref .apz} "Was not hypocritical”
+[APZ 87.1] (#apz87 .1) {#apz87 .1 .ref .apz} "Was not hypocritical"
 Since the lust was the favorite, then Peylamine. Because malice, hypnosis is innate
 Pneumatic. Craction, Subnoise, Virtualy, Esche_Wave,
 Marriousness, deception, courteousness, tightness, one together, dimension, egoism
 These are the primitive, because they are the primitive. This is by the Trusts
-Desensitization. “How is the monk, Mahaniya, how is the monk?
+Desensitization. "How is the monk, Mahaniya, how is the monk?
 Mahanahu's asmi is a primitive, like a palm tree originally incarnated
 He was again discarded as unborn, and this is the same.
 The third one was Veyi
 
-[APZ 87.2] (#apz87 .2) {#apz87 .2 .ref .apz} "was not hypocritical” in (ii) hypocritical
+[APZ 87.2] (#apz87 .2) {#apz87 .2 .ref .apz} "was not hypocritical" in (ii) hypocritical
 Three objects. Search for the main object, Iriyapatha, Nambed Kuncher
 Object, Samantha Japapapa (Telling in Close Words Without Straightly
 Ready. Which object is the cult object called the search for the field? The housekeepers here are robes,
@@ -328,7 +328,7 @@ VoiceTo be born in the bereaved, first of all, in the first place, in the first 
 Aograma, and the wisdom was burned by fire, and the same is unhypocrite.
 
 [APZ 87.3] (#apz87 .3) {#apz87 .3.ref .apz} "Desire Not Was Eraser
-“Desire” tells the craving. whether there is any lust, whether there is an allusion (here
+"Desire" tells the craving. whether there is any lust, whether there is an allusion (here
 (1-3) Should be applied from where any bid in the 4) whether there is a strong lobby,
 Whether there is a lobby, and whether there is a letter root. Does this desire craving for someone?
 Shantha and compasyon, and he was born with a fire called wisdom,
@@ -339,9 +339,9 @@ Images, Room, Image, Image, Sagna, Sagna, Assassava,
 NEVASANKANASANKAYA, CHATVOKA BWIVANKAYA, PAST,
 What the future, the existing genitals, the incarnate heard,
 It does not desire in the doctrine of the toothed. Not like. It does not taste. Fanship
-does not. Not expected. Hence the name “Afel”
+does not. Not expected. Hence the name "Afel"
 
-[APZ 87.4] (#apz87 .4) {#apz87 .4 .ref .apz} "Not Erased” is a Survivus
+[APZ 87.4] (#apz87 .4) {#apz87 .4 .ref .apz} "Not Erased" is a Survivus
 Aside from that. Crater, Chancellor, Went, Cheap Moeturya, Dhamma Moeturya,
 Ready. A situation that allows someone to get a deletion is powerful
 A desire is a powerful bond in the mind of a strong passivity, this is the deletion
@@ -350,7 +350,7 @@ A jewel. The deletion of institutions is also a deletion. Taking, this is also a
 Is this measure of one's genius, whether the congenitus was born, and the consciousness
 NammThe fire burns and immortales (says no maraur.)
 
-[APZ 87.5] (#apz87 .5) {#apz87 .5 .ref .apz} "Not proud is not disgusting”
+[APZ 87.5] (#apz87 .5) {#apz87 .5 .ref .apz} "Not proud is not disgusting"
 Pride is three presumptuous or not. That is, pride of the word
 Pride, pride in the heart. How is the pride of the mouse? Here are some
 A person went to the middle of the Sanghaya, who did not show respect for the standing monks and
@@ -385,7 +385,7 @@ In some houses, in secret rooms, and in some place the caste of the people.
 Kulakamarikas sit and get there fast. The princess also hands his head.
 The entrance to the village or (house) thus shows the physical pride of the house.
 
-[APZ 87.6] (#apz87 .6) {#apz87 .6 .ref .apz} "How The Word Shows Pride”
+[APZ 87.6] (#apz87 .6) {#apz87 .6 .ref .apz} "How The Word Shows Pride"
 Here some person goes to the middle of the Sanghaya, but shows pride in the word. Kayan Middle
 Gone shows pride in the Word. The entrance to the village, including, shows the pride of the word.
 Some person here went to the middle of the Sanghaya, uninvited the standing monks or invited
@@ -449,12 +449,12 @@ This abominable absence of easily disposed hackevedic
 The person says. All inferior people are abominable. Teachings
 Since the pruritus, the octaral persons are not disgusting.
 
-[APZ 87.10] (#apz87 .10) {#apz87 .10 .ref .apz} "Kaylaam was not included”
-“Caylaam” is what some person here says kayalam,
+[APZ 87.10] (#apz87 .10) {#apz87 .10 .ref .apz} "Kaylaam was not included"
+"Caylaam" is what some person here says kayalam,
 Let you hear here and say near the side, for the part of these, that they may be the part of them
 Hear in Ethon and say unto them:
 In order to break down, the words of the sticking of the spoilage are called. This is
-“Kalim” says Bend, which causes the kayal in two points. In order to be propitiated
+"Kalim" says Bend, which causes the kayal in two points. In order to be propitiated
 Or in the hope of breaking, or in the hope of a break. How to prosper
 Will cause, I will be a favorite for him. I will be preferential. I will be confident.
 I will be innate. Yaluwanni '
@@ -467,14 +467,14 @@ The fire was not burned, nor was it coughing,The application is available.
 
 [Msdiv 88] (#msdiv88) {#msdiv88 .ref .msdiv} (10 - 6)
 
-[APZ 88.1] (#apz88 .1) {#apz88 .1 .ref .apz} "The love affairs do not stick to things”
-“Sticky work” means saws to the treaded properties. Greatly divine
+[APZ 88.1] (#apz88 .1) {#apz88 .1 .ref .apz} "The love affairs do not stick to things"
+"Sticky work" means saws to the treaded properties. Greatly divine
 And men prefer tandy properties. Taste. Hopefully. Desire.
-Aleth. From that fact, the treaded virtues “stick work”. Someone's
-This “love work” is the craving of the secret, and the image craving with their eye
+Aleth. From that fact, the treaded virtues "stick work". Someone's
+This "love work" is the craving of the secret, and the image craving with their eye
 The shedded stone, exists. Sound cravings from the nose, odor cravings from the nose, tongue
 Rare craving, kaine touch craving, heart dharma craving shedding, stone,
-There exists, is this “Satyah” craving of someone who is in the first place
+There exists, is this "Satyah" craving of someone who is in the first place
 Is it the fire of wisdom, whether they were born, and the wisdom was burned in the fire,
 Their eye does not indulge in image craving (iv). Ungullible. does not exist. (v) Kanin
 Sound cravings (should be applied here (iv)) Odourous cravings from the nose (here (iv)
@@ -482,7 +482,7 @@ Should be applied.) Taste cravings from the tongue (should be applied here (iv))
 Cravings (Should be applied here (iv)) Dhamma craving in the heart does not fall,
 Ungable, non-existent.
 
-[APZ 88.2] (#apz88 .2) {#apz88 .2 .ref .apz} "NOT APZ”
+[APZ 88.2] (#apz88 .2) {#apz88 .2 .ref .apz} "NOT APZ"
 (ii) any person herein from race or tribe or
 From the caste or body color, or from wealth or from something other, or mutual
 Think down (iii) This enshrined dimension of your heart is over a high degree of thought
@@ -490,13 +490,13 @@ If a raised flag is like a flag, it says that this is overweight.
 This immense, intuitive, first of all, to be born, and to be born
 Ayoah, and wisdom, was not burned in the fire, nor in the utmost sense.
 
-[APZ 88.3] (#apz88 .3) {#apz88 .3.ref .apz} "Insists, raids”
-“Intensible” means soft. Wetted Waggard Karma
+[APZ 88.3] (#apz88 .3) {#apz88 .3.ref .apz} "Insists, raids"
+"Intensible" means soft. Wetted Waggard Karma
 NAMI. It is best to do this, if you do not have a good good skin. Establish a softest mindfulness
-Justify Hairson. A softest award is a major “Teaching”
+Justify Hairson. A softest award is a major "Teaching"
 NAMI. Footbruises with soft feet. Meshed Indores
 By the Lord Octangal, which is softed by the powers of the body.
-Justifiable name. “There are understandings” are three reflex.
+Justifiable name. "There are understandings" are three reflex.
 Pariyaththi Reply Aththa, Adhigama Reply
 Requer. What is the Pariyathi Reply and to some person here
 (ii) Formula, home, business, stanza, idanaya, save, nation,
@@ -515,7 +515,7 @@ Tapes are tabulates. This is a newsReconcise, but also
 The reactionary says. Whether one has the Percision or not, the Circulation
 Whether or not, hyperthermia or not, what he will understand.
 
-[APZ 88.4] (#apz88 .4) {#apz88 .4 .ref .apz} "does not think. Not disappointed.”
+[APZ 88.4] (#apz88 .4) {#apz88 .4 .ref .apz} "does not think. Not disappointed."
 (Creed is not without sticking) is known by one's own consciousness (i) to himself
 The prophesy doctrine to a mutual man or Brahman or God
 (ii) All editors who are not recomitant to a lever or a Brahman
@@ -565,11 +565,11 @@ There will be. Proofs! Proofed!! Physicality, this is discreet by someone
 Unknown and unseen, and unseen, they are from the creed of the other
 Go. That is, apply the voice (here (i)) to the pannavinia
 Abundant habituation was drained into the shelter. Home Location
-There will be. The house is turned over. “”
+There will be. The house is turned over. ""
 
 [APZ 88.5] (#apz88 .5) {#apz88 .5 .ref .apz} "A Man Has Done Horses
 Whether the unknowns and the breaking of the cottage did not dispel the desire,
-Hence the noble man says” All the subtleties. Notitions
+Hence the noble man says" All the subtleties. Notitions
 Since the pruritus people have not been saptists, but Aleth, no secrets. Non-Alloy
 The glass was cast by depletion of malice, because he was decompressed by depletion of lust.
 Because the street was made by decay of the brains, so the rain was finished and practiced
@@ -578,8 +578,8 @@ Behavior is he has no congenation of birth deaths, no rebirth.
 [Msdiv 89] (#msdiv89) {#msdiv89 .ref .msdiv} (10 - 7)
 
 [APZ 89.1] (#apz89 .1) {#apz89 .1 .ref .apz} "Profits are not willing.
-Also unnoticed in the loss. Profit is not willingly. Not in the loss”
-How to profit willingly hikfat? “I have the cheapest here,”
+Also unnoticed in the loss. Profit is not willingly. Not in the loss"
+How to profit willingly hikfat? "I have the cheapest here,"
 Siuru Pidapatha Senasun sees a monk who is purified by ambulance. to him
 This is the idea. Hello any reasons for thisWakin Siriu Pidapatha Senasun
 Ambulance is also a recipient of medication. He gets this idea.
@@ -595,14 +595,14 @@ He has this idea. Hello this is an armature. Pindophia,
 A classicist, a therchic, a sectarium, a subconscious ritual, a nezajicator
 A realist, therefore, this is the third robes of the Pindapatha Senasun ambulance
 Medications are prescribed. (Think) In order to be born profit due to profit
-Profit Profit Profit is an arcanist (7-4) 1 (v) “Profit Center”
+Profit Profit Profit is an arcanist (7-4) 1 (v) "Profit Center"
 Should be applied to places) Profit is willing. How Profit
 Hickfat of intolerance? Profit without profit.
 Spirit that the soul may be deposited for self-control as long as it does not improve
 Learn the formula for extinguishing. Learn discipline and learn pride
 Profit is unwillingly.
 
-[APZ 89.2] (#apz89 .2) {#apz89 .2 .ref .apz} "NOT LOSS” is:
+[APZ 89.2] (#apz89 .2) {#apz89 .2 .ref .apz} "NOT LOSS" is:
 Not in the loss? Some person here I am caste or not. Councor or
 Unnoticed. (ii) Profit or not receive. Reputation or not.
 Comments or not. Provinted or not. robes or not. inflammation or
@@ -614,14 +614,14 @@ Noisy is unakpies. Irritation also does not cause irritation. Thus, the loss is 
 Ready.
 
 [APZ 89.3] (#apz89 .3) {#apz89 .3.ref .apz} "Anger is not in the craving and in the servant
-No Alai” is a kind of heart action provocation
+No Alai" is a kind of heart action provocation
 This is the deviations of a convulsive resentment, and this is the same.
 This virulence of one is that the craving is born in the first place
 Iograd, wisdom, burning fire, and disopposition, anger
-says no. “Cravings” are image cravings, sound cravings, odor cravings, rouses
+says no. "Cravings" are image cravings, sound cravings, odor cravings, rouses
 Cravings, touch cravings are craving.
 
-[APZ 89.4] (#apz89 .4) {#apz89 .4 .ref .apz} "Rasi”, the stem stem,
+[APZ 89.4] (#apz89 .4) {#apz89 .4 .ref .apz} "Rasi", the stem stem,
 Bark Stirling, Leaf Shear, Flowers Rare, Nuts Rare, Sour Rare, Sweet Rare, Thread
 Stir, bitter rash, salty rash, sweet, unpleasant winter furnaces to the whip. Stirling
 There is a certain Brahman who is a giveaway. They are graced by tongue
@@ -652,7 +652,7 @@ will be. Unrestricted heart dwells.
 [Msdiv 90] (#msdiv90) {#msdiv90 .ref .msdiv} (10 - 8)
 
 [APZ 90.1] (#apz90 .1) {#apz90 .1 .ref .apz} "The instructor is in remembrance of Hamecal
-There is a “Wei” instructor which has six features
+There is a "Wei" instructor which has six features
 (ii) Seeing the image with the eye is not happy, not happy. Comes in remembrance
 Discreet dwells in the middle. (iii) heard the sound of the eatings (here (ii) applied
 Should) know a smell from the nose (should be applied here (ii)) taste the tongue
@@ -716,12 +716,12 @@ Grade. The great one put the innate great horse. Hataas Added High Anthers
 The cast is great. His discipline is much greater than that, and these yachts did not go away
 Do not go in the direction. And he that hath cast him well, and he that hath cast him.
 He who has no second self-esteem, is not shocked in dimensions. teasing
-Having made the win, they came to the ground where they were laid.”
+Having made the win, they came to the ground where they were laid."
 
 [APZ 90.6] (#apz90 .6) {#apz90 .6 .ref .apz} in all of someone's teaspoek
 Interestingly, the middle and the exteriorized the innate.
-The penetration period is expected to be the same as the dumped. “Inspektion
-All in time” is the constant last age of every time.
+The penetration period is expected to be the same as the dumped. "Inspektion
+All in time" is the constant last age of every time.
 Remembrance is that four things are remembrance, that is, looking according to the number (iii)
 (iv) The mind of the stethoscope, if it is remembered that the formation of unconscious.
 Nooi remembrance of the mindfulness that looks according to the doctrine of the doctrine
@@ -729,14 +729,14 @@ It is very unconscious.
 
 [APZ 90.7] (#apz90 .7) {#apz90 .7 .ref .apz} "resembles the similarity of locus
 Not thinking. is a person from race or prey or from another point or likeness
-The Vemii dimension is nouveau. “WishlyNot shy. Not Niche” is from the nation or
+The Vemii dimension is nouveau. "WishlyNot shy. Not Niche" is from the nation or
 From the victim or (here (10-6) 2 (ii) should be used)
 A point or esteem is nouveau. From race or tribe (here (3-3) 5
 (ii) The ballot should be used.) One of the other points or heaters.
 Noumend.
 
-[APZ 90.8] (#apz90 .8) {#apz90 .8 .ref .apz} "If he heighs, there is no fuck”
-“To him” refers to the earthy alms. The heige is
+[APZ 90.8] (#apz90 .8) {#apz90 .8 .ref .apz} "If he heighs, there is no fuck"
+"To him" refers to the earthy alms. The heige is
 If the heighth is a forty, the ragus heighth, the heighth of the hath, the dimensional heath,
 There is a rash, a clesy stool, a cheek overhead. heighs Him
 Nor. Not scientific, or not, the originality, the original. Plant,
@@ -744,7 +744,7 @@ In comparison, it is unfit to be born, and the wisdom was burned in the fire.
 
 [Msdiv 91] (#msdiv91) {#msdiv91 .ref .msdiv} (10 - 9)
 
-[APZ 91.1] (#apz91 .1) {#apz91 .1 .ref .apz} "Someone Has No Deals”
+[APZ 91.1] (#apz91 .1) {#apz91 .1 .ref .apz} "Someone Has No Deals"
 To one is to the earthy earthy earthy. It means that there is no
 There are two immovable. The craving is the point of view. 'Mother' is the imposition
 (2-6) Should use 1 (ii) (iii)) His Cravings
@@ -754,12 +754,12 @@ Not. unnoticed. The genitus was originally born, and was born,
 The wisdom was burned by the fire.
 
 [APZ 91.2] (#apz91 .2) {#apz91 .2 .ref .apz} "The Unauthorized Person Doctrine
-“Know” means “Know” by knowing (iii) and making decisions.
+"Know" means "Know" by knowing (iii) and making decisions.
 How, all editors go unto all editors grieve all doctrines
 Unborn (should be used here (ii)) born for some reasonHarma
 It is known that all things will be maintained in order to be condensate, and decide.
 
-[APZ 91.3] (#apz91 .3) {#apz91 .3.ref .apz} "The inspiration was not” is two miracles
+[APZ 91.3] (#apz91 .3) {#apz91 .3.ref .apz} "The inspiration was not" is two miracles
 The craving miracle is also the vision miracle (discriminating the 'motherhood'
 (2-6) 1 (ii) (iii) should also be used)
 The instilled eye was not the ear was not the breath nor the nose was the tongue
@@ -767,13 +767,13 @@ The miracle was not the miracle was not the heart was not the miracle, in the im
 The caste of the touch of the taste of the odor (here 9—1 9 is the instilation
 The image should be used from where the image goes) seen and heard
 The incarnation of the doctrines to be known by three innates was not the incarnation.
-Inflamunu occupies unrestricted heart in the yard. Ready. “Jewelery or
-The craving for someone in potential is not academic.” If there is a craving image craving,
+Inflamunu occupies unrestricted heart in the yard. Ready. "Jewelery or
+The craving for someone in potential is not academic." If there is a craving image craving,
 Sound craving, odor craving, rash craving, touch craving, Dhamma craving,
 To one who has arisen means to the estheints.
 
-[APZ 91.4] (#apz91 .4) {#apz91 .4 .ref .apz} "jewavi” is in view.
-Potential is the potential dashtiya. “Ebawatha” refers to or in the view of the shantha.
+[APZ 91.4] (#apz91 .4) {#apz91 .4 .ref .apz} "jewavi" is in view.
+Potential is the potential dashtiya. "Ebawatha" refers to or in the view of the shantha.
 Potential is a fluctuating view. Repeated Jewelery
 Repeated spirits of the prose's repetitive antiquity
 Some of those secrets do not have the craving of being born. Not scientific.
@@ -782,9 +782,9 @@ Wisdom is burned by the fire.
 
 [Msdiv 92] (#msdiv92) {#msdiv92 .ref .msdiv} (10 - 10)
 
-[APZ 92.1] (#apz92 .1) {#apz92 .1 .ref .apz} "Tell Him Thing” is
+[APZ 92.1] (#apz92 .1) {#apz92 .1 .ref .apz} "Tell Him Thing" is
 Where the twinning person isI say unto him. I will promulate to him
-I am going to do business. “If there are no apecsha in the rooms
+I am going to do business. "If there are no apecsha in the rooms
 There are two kamas. The objects are also clairroom (here 1, 1 (ii) to 3 (ii)
 Should be applied up to) completely know the area of the objects, except for the room
 Dare and fade away. There is discarded kamaas there is discarded kamaas
@@ -793,23 +793,23 @@ There is lust, there is camouflage, there is no marrow lust, but there is no cra
 The Brahman inhabits the same people
 
 [APZ 92.2] (#apz92 .2) {#apz92 .2 .ref .apz} "Tie him
-No.” (tie) means four books. (ii) Strict Lobby
+No." (tie) means four books. (ii) Strict Lobby
 Knot, Evil Thought Bending Knot The Knot of Seeking for Mutual Genuine, HERE
 Truth is the problem of descending. (iii) Strong desire in one's own view
 Lobby is the issue. Virtualization of the microbies is the issue of the business. Own
 Shields or both excretions or scals.
 Knot. In one's view, this is true.
-Basing” is the grunge. “To him” is the Earhath to the Eksheni
+Basing" is the grunge. "To him" is the Earhath to the Eksheni
 He does not have glance problems, nor does he have glands.
 Not scientific. Originally, there was a salient. Plant, constipated, unfit to be born,
 Wisdom was burned by the fire
 
 [APZ 92.3] (#apz92 .3) {#apz92 .3.ref .apz} "Traverse Heating Disity (Cravings)
-Done” Willness is a craving, an allusion, (1-3)
+Done" Willness is a craving, an allusion, (1-3)
 4 The vein should be applied from where a certain draw goes) is the same. Whizathika Covers
-If it is uncommon in a sense,Shayen Alenui “Wizathika”. Larger
+If it is uncommon in a sense,Shayen Alenui "Wizathika". Larger
 The name of Wisathika. The spread is absent by the name of the wickedness. Moving in a sterile way
-The name “Willathika”. Wishly gathered.
+The name "Willathika". Wishly gathered.
 Since poison is rooted, the name of the venom. Since there is heterogeneity, the name of malignant.
 Intoxication is the name, as there is toxins. In the image of the enlarged craving
 In the odor of the sound, in the properties of the flask of the contact of the heater, in the abdomen (9-1-9
@@ -819,15 +819,15 @@ The spread is maintained. The name of Wisathika. This is the same thing that cro
 Solthika crossed the craving. So that it did not exceed
 Determined by the adepts.
 
-“I say, He who hated him without shades in the rooms. Grunge to him
-Nor. Hence, he made the state of disunity”
+"I say, He who hated him without shades in the rooms. Grunge to him
+Nor. Hence, he made the state of disunity"
 
 [Msdiv 93] (#msdiv93) {#msdiv93 .ref .msdiv}
 
 [APZ 93.4] (#apz93 .4) {#apz93 .4 .ref .apz} "He had sons and animals and chambers
-There is no building land”, 'no' is the rejection. He is an Arhetthu
-“Sons are four. his son,
-The sons born in the field, the children of the family, the children of the family. “Animals” are goat
+There is no building land", 'no' is the rejection. He is an Arhetthu
+"Sons are four. his son,
+The sons born in the field, the children of the family, the children of the family. "Animals" are goat
 Sheep poultry pig ivory cattle, which is the 'field' is alketha, viketha,
 Mungketha, Faket, Numeric field, Thalakeetha, Domestic Objects
 Fortages, fronts, after-treasures, monasteries, temples. A
@@ -836,7 +836,7 @@ Land trouble or not. Not College. The secret, originally instilled. Plant,
 CRSincy.
 
 [APZ 93.5] (#apz93 .5) {#apz93 .5 .ref .apz} "Have a Spirit or on him
-Unnoticed.” It is not. No Spirit is
+Unnoticed." It is not. No Spirit is
 Elevated view It is not. There is no redeeming of the soul. Spirit Goes Not
 There is no redemption for one to take or he has no redemption. To someone
 There is no redemption or not, he has no take. Exceeding two take, redemption
@@ -853,7 +853,7 @@ Namethuragjanayo. As the face of many variants, the vertebrates are the name. Mo
 All the dynamics are unsurged by the name of the surface. Most Untold Collections
 Collectoryuni name- Many people float with their own names.
 Many disks are made of surface names. Most of the properties
-The clash of Alunay is the blackout of the clash. “Mothers”
+The clash of Alunay is the blackout of the clash. "Mothers"
 is a Pharabaja who came to be a proctator who left this plant
 People who have a glow. Brahmina is a man who humiliates some other
 Bamuno. If the ruthagjanayas say in a certain ragahiya by some malice
@@ -868,8 +868,8 @@ A man, or a man, or a God, or a pupiper, who is born in the prostate
 Kia or Arupia, or Sagna, or Sagna, or Nevanzvah
 There is no such reason to say or say a nose. No Reverse.
 
-[APZ 94.2] (#apz94 .2) {#apz94 .2 .ref .apz} "It is not presented to him.” Going
-“To him” refers to the earthy alms. Submission if
+[APZ 94.2] (#apz94 .2) {#apz94 .2 .ref .apz} "It is not presented to him." Going
+"To him" refers to the earthy alms. Submission if
 Presentation of cravings and presentation of outlook (2-6) 1 (ii) (SR
 The application should be applied. It is predisposed to him to have cravings. Outlook presentation
 Convenient to do. The presentation of cravings is predisposed to the outlook
@@ -877,7 +877,7 @@ The presentation is in comparison with craving or outlook or perspective
 does not behave. Cravings have not made a flag of cravings, not a flag of cravings
 Not overlooking, not a flag of view, and not a flag of view
 The cravings do not overdo the vision or the cravings or the entourage.
-“Therefore, it is due to that fact that the snot be shaken in the snot
+"Therefore, it is due to that fact that the snot be shaken in the snot
 That would come from the same way. In the womb of the humiliation of the adepts of the playwright
 Allergic creamy in the stigma does not shake, does not shake.
 
@@ -900,7 +900,7 @@ Convenience, how to be born, and the fire called wisdom, and the same is unspeak
 The person says.
 
 [APZ 95.2] (#apz95 .2) {#apz95 .2 .ref .apz} "does not say the highest height. skin
-Not saying. “Muni” says to the wisdom. Srs
+Not saying. "Muni" says to the wisdom. Srs
 Wemi or similar Wemi or Heenawemi does not say, stated
 does not, does not do business,
 
@@ -911,7 +911,7 @@ The fact that the application is the merit of view, the merits of view. Regreed 
 The craving does not come to fit or visualness, because it is compassible,
 Negyi, EMSRamps do not enter, do not enter.
 
-[APZ 95.4] (#apz95 .4) {#apz95 .4 .ref .apz} in the text "Aog Wei”
+[APZ 95.4] (#apz95 .4) {#apz95 .4 .ref .apz} in the text "Aog Wei"
 Eligibility is two qualifications. To be suitable for cravings and also to be worthy of view
 (2-6) 1, (ii), (iii) shall be applied) Eligibility for his craving
 Consolation. Eligibility for vision is compounded by his cravings.
@@ -921,17 +921,17 @@ Eligibility or not. Noumend. does not cause, does not cause.
 [Msdiv 96] (#msdiv96) {#msdiv96 .ref .msdiv}
 
 [APZ 96.5] (#apz96 .5) {#apz96 .5 .ref .apz} "Someone has a sense of locality
-No” to one means to the earhath alms.
+No" to one means to the earhath alms.
 This is in the way for someone who has no nature. No saying or saying that this is the case
 Figurally taken or pain-drawn or numbering
 Enter a Conscious or Conscious Conducting
 No escape. (The latter section 4—8-7 should be applied here.) Fire called Wisdom
-The beast, the beacon. “Does not do so” is a different object
+The beast, the beacon. "Does not do so" is a different object
 does not. Changes also do not change. Changing my eye ear, nose, tongue, ear
 It does not take a while. Not fainting, not shaking hands on the chest and not crying in remembrance
 Do not come to the Muller. Mezili,
 
-[APZ 96.6] (#apz96 .6) {#apz96 .6 .ref .apz} "does not lose time”
+[APZ 96.6] (#apz96 .6) {#apz96 .6 .ref .apz} "does not lose time"
 There is no justification of touch from it, as there is no rejuvenation or suffering. Zoca
 does not. Not fainting. The chest is not puncted. into the mindfulness
 absent. Empty from the nose from the ears, from the tongue, from the nose, from the ear.
@@ -952,12 +952,12 @@ It's not for me. From that it shall be mine. I'm not going to get it out of the 
 does not. Not fainting. Unnoticed. The hand in the chest is not rattled. into the mindfulness
 absent. Ready.
 
-[APZ 96.7] (#apz96 .7) {#apz96 .7 .ref .apz} "does not go in doctrines” is by vote
+[APZ 96.7] (#apz96 .7) {#apz96 .7 .ref .apz} "does not go in doctrines" is by vote
 Do not prejudice. Do not be prejudiced by malice. Do not be prejudiced by this. Aggregate
 does not go. Do not go as lust. Do not go malicious. What does not go. Dimensions
 Not as. Optically does not go. Inflatly deflective—
 does not go. Do not go as a patronage. Not from racked doctrines. Non-flammable, ominable.
-“It says that this is the same thing.” is the Sub Shanthava
+"It says that this is the same thing." is the Sub Shanthava
 Sisinunae tells the twunae. Conveys, Reinates.
 
 Archaebedezutthanidno.
