@@ -94,7 +94,7 @@ Because then, the eloquent person said,
 "In taste is not a greedy, nor greedy, nor to raise the others, the second
 beggers,
 
-Not tied in a home center, you should be alone like a rhino horn."
+Not tied in a home center, you should be alone like a rhinoceros horn."
 
 152. after disconnection of the five covers of the mind, after all evictions
      with the contamination,
@@ -134,14 +134,14 @@ seen in the sense of the law, the non-stick, the unstuck, the unclinging, the
 person who does not turn his heart toward (victory). He has departed, departed,
 liberated, and has been bound, and he dwelt away from the restrained heart.
 After cutting off love and sabotage for the unstoppable, you should be alone
-like a rhino horn.
+like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
 "After discarding off the five covers of your mind, after expelling everything
 with the contamination,
 
-The unending person should be alone as a rhino horn after cutting off love and
+The unending person should be alone as a rhinoceros horn after cutting off love and
 sabotage.
 
 153. set aside the joy and suffering, and before the joy and worries,
@@ -177,7 +177,7 @@ horn alone.
 154. Vitality has been initiated in order to obtain the best interests, those
      who do not retreat, act unsabotingly,
 
-Hard-working, fortitude and strength should be alone like a rhino horn.
+Hard-working, fortitude and strength should be alone like a rhinoceros horn.
 
 "In order to obtain the best interests and vitality has been launched": "The
 supreme interest is called immortality, Nibbana, that is all done, all according
@@ -244,18 +244,18 @@ eldest of the family, and some of the recipients of the good law [DN.30]." For
 hard-working people. "Fortitude and strength enough", the unconscious person
 has, fully has, arrives, fully reached, full, fully sufficient, with fortitude,
 strength, vitality, effort (brave), Hui." For those who work hard, fortitude and
-strength, should be alone like a rhino horn.
+strength, should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
 "In order to obtain the best interests of vitality has been initiated, those who
 do not retract their hearts, do not slacken,
 
-KinHard-working, fortitude and strength should be alone like a rhino horn."
+KinHard-working, fortitude and strength should be alone like a rhinoceros horn."
 
 155. those who sit alone, do not ignore Zen, often follow the law in law,
 
-Patients who have been explored on all, should be like rhino horns on their own.
+Patients who have been explored on all, should be like rhinoceros horns on their own.
 
 "Sit alone, do not ignore the Zen": "The unconscious person is happy to sit
 alone, loving alone, the inner end of the practice, does not disregard the Zen,
@@ -295,7 +295,7 @@ Because then, the eloquent person said,
 "The sitting alone, and those who do not ignore Zen, often follow the law in the
 law,
 
-Patients who have been explored on all, should be like rhino horns on their
+Patients who have been explored on all, should be like rhinoceros horns on their
 own."
 
 156. the exterminator who desires thirst for love, and those who do not relax,
@@ -412,7 +412,7 @@ knowledge of the law is not contaminated, not strong, not closely contaminated,
 no pollution, has not been polluted, no strong pollution, has not been closely
 contaminated. He has departed, departed, liberated, and has been bound, and he
 dwelt away from the restrained heart. For those who are not contaminated with
-water, they should be like rhino horns alone.
+water, they should be like rhinoceros horns alone.
 
 Because of that, the unconscious.says:
 
@@ -425,7 +425,7 @@ horn."
 158. if the lion beast king is a powerful tooth, a man of oppression and
      victory,
 
-Edges should be used, and should be alone like a rhino horn.
+Edges should be used, and should be alone like a rhinoceros horn.
 
 "If the Lion Beast is a powerful tooth, is a forceful man of oppression and
 victory": "If the Lion Beastmaster is a powerful tooth, a tooth as a weapon, in
@@ -443,7 +443,7 @@ voice, quiet, away atmosphere, people alone, suitable for sitting alone; He
 [alone,] walking alone, standing alone, sitting alone, lying alone, alone in
 order to go into the village [, go alone] Alone return, sitting alone, alone,
 alone, live, act, turn up, guard, make survival, make survival." In order to use
-a borderland accommodation, you should be alone like a rhino horn.
+a borderland accommodation, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -455,7 +455,7 @@ horn."
 
 159. timely do, mercy, mercy, joy, calm relief,
 
-The people who are not opposed to all the world should be alone as rhino horns.
+The people who are not opposed to all the world should be alone as rhinoceros horns.
 
 "Do in time, mercy, compassion, joy, calm relief": "The unconscious person lives
 with the heart of one side, like this second party, like this third party, like
@@ -476,7 +476,7 @@ in a state of joy in which they have been practiced... to calm the state of
 study, and all the creations in the East are not rebellious... They are not
 rebellious to the creations of all sides. "Not opposed by all worlds": "Not by
 all world opponents, adversaries, angry, counters." For those who are not
-opposed to all worlds, they should be alone as rhino horns.
+opposed to all worlds, they should be alone as rhinoceros horns.
 
 Because then, the eloquent person said,
 
@@ -519,7 +519,7 @@ a horn of rhino."
 161. They are close to and serve for reasons of interest, and friends who have
      no reason are difficult to obtain today.
 
-People who are unnetted have their own interests, should be like rhino horns
+People who are unnetted have their own interests, should be like rhinoceros horns
 alone.
 
 "They are close and served by reason of interest": "For reasons of their own
@@ -553,8 +553,8 @@ For those who are unnetted have their own interests.
 
 "Should be alone like a horn of rhino": "Alone", the solemn senser is alone in
 the name of the family... (medium) "should be", there are eight kinds of
-lines... (medium) "like rhino horn", like rhinoceros The angle is indeed
-separate... (medium slightly)." For it should be like a rhino horn alone.
+lines... (medium) "like rhinoceros horn", like rhinoceros The angle is indeed
+separate... (medium slightly)." For it should be like a rhinoceros horn alone.
 
 Because then, the eloquent person said,
 
@@ -566,7 +566,7 @@ horn of rhino."
 
 Fourth product [Completed].
 
-The description of the rhino horn is complete.
+The description of the rhinoceros horn is complete.
 
 "Aydor, Shemalereh, and Fullounagh and
 

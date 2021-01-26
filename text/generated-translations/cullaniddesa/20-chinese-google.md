@@ -1,13 +1,11 @@
-Rhino Horn Sutra
-
-Explanation of Rhino Horn Sutra
+## Explanation of the Rhinoceros Horn Sutta
 
 First product
 
 121. After putting down the stick to all living things, none of them hurts,
 
 shouldn't you want your son to have companions from? Should walk alone like a
-rhino horn.
+rhinoceros horn.
 
 "After putting down the stick to all living things": "Everything", all
 completely, completely in every aspect, without surplus, and the whole, this is
@@ -41,7 +39,7 @@ where should he want, accept, hope, pray for friends, or acquaintances , Or
 close person, or companion." Why shouldn't I want my son to have companions
 from?
 
-"Should walk alone like a rhino horn": ""Alone", the lonely enlightened person
+"Should walk alone like a rhinoceros horn": ""Alone", the lonely enlightened person
 is alone by the name of a monk, alone with the righteousness without a partner,
 alone with the righteousness of the thirst for love, "Always free from greed "Is
 alone, "Yixiangliying" is alone, "Yixianglizhi" is alone, "Always no pollution"
@@ -173,7 +171,7 @@ the hard working behavior of the righteous person, The present action of the
 mindful person, the non-scattering action of the right minded person [Ps.1,12],
 these are eight kinds of action.
 
-"Like a rhino horn", the horn of a rhino is truly unique. In the same way, the
+"Like a rhinoceros horn", the horn of a rhinoceros is truly unique. In the same way, the
 one who is enlightened alone is like that one, equivalent to that one, and
 contrasting to that one. "If it is too salty, it is called as salt, if it is too
 bitter, it is called bitter, if it is too sweet, it is called like honey, if it
@@ -190,12 +188,12 @@ Because of that, the single enlightened person said:
 "After putting down the stick to all living things, none of them hurts,
 
 shouldn't you want your son to have companions from? Should walk alone like a
-rhino horn. "
+rhinoceros horn. "
 
 122. Connecting the arising person generates love, and the suffering of love
      arises with the accompanying,
 
-, watching the troubles of love, should walk alone like a rhino horn.
+, watching the troubles of love, should walk alone like a rhinoceros horn.
 
 "The connection that arises generates love": "connection", there are two kinds
 of connection: the connection of seeing and the connection of hearing. What is
@@ -375,13 +373,13 @@ of thirsting and the love of seeing... (slightly omitted) this is the love of
 thirsting... (slightly omitted) this is the love of seeing. "Watching the
 troubles of love": "The troubles of the love of love and the love of seeing, he
 watched, saw, watched, meditated, and observed." To watch the troubles of love
-You should walk alone like a rhino horn.
+You should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
 "Connect the arising person to form love, and the suffering of love arises,
 
-, watching the troubles of love, should walk alone like a rhino horn. "
+, watching the troubles of love, should walk alone like a rhinoceros horn. "
 
 123. To those who pity friends and confidantes, make the interests retreat and
      the heart is bound,
@@ -454,7 +452,7 @@ Jian... (Omitted) This is the intimate communication of eagerness... (Omitted)
 This is the intimate communication of Jian. "Watching this horror in intimate
 communication": "This horror in intimate communication is watching, seeing,
 watching, watching, and observing." In order to watch the horror in intimate
-communication, he should Walk alone like a rhino horn.
+communication, he should Walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -467,7 +465,7 @@ horn. "
 124. It's like a huge bamboo entangled together: whoever follows his children
      and wives,
 
-Like a bamboo shoot that is not stuck, it should walk alone like a rhino horn.
+Like a bamboo shoot that is not stuck, it should walk alone like a rhinoceros horn.
 
 "It's like a huge bamboo being entangled together": "Bamboo is called a bamboo
 bush. In the bamboo bush, old bamboo is stuck, entangled, entangled, attached,
@@ -548,11 +546,11 @@ Because of that, the single enlightened person said:
 "It's like a huge bamboo being entangled together: whoever follows his children
 and wives,
 
-Like a bamboo shoot that is not stuck, it should walk alone like a rhino horn. "
+Like a bamboo shoot that is not stuck, it should walk alone like a rhinoceros horn. "
 
 125. If an unbound deer walks to the desired pasture in the forest,
 
-A wise person is watching freedom and should walk alone like a rhino horn.
+A wise person is watching freedom and should walk alone like a rhinoceros horn.
 
 "If a deer that is not tied is in the woods, walk to the desired pasture":
 ""Deer", there are two kinds of deer: the deer and the spotted deer. For
@@ -622,18 +620,18 @@ five faculties, five powers, seven enlightenment factors, and eight holy ways.
 This is the law of freedom. What is a free man? Anyone who possesses these
 freedoms is called a free man. "The wise people watch freedom": "The wise people
 watch, see, watch, observe, and observe the freedom of Dhamma." For the wise
-people watch freedom, it should be like a rhino horn Go alone.
+people watch freedom, it should be like a rhinoceros horn Go alone.
 
 Because of that, the single enlightened person said:
 
 "If an unbound deer walks to the desired pasture in the forest,
 
-A wise person is watching freedom and should walk alone like a rhino horn. "
+A wise person is watching freedom and should walk alone like a rhinoceros horn. "
 
 126. He is a negotiator among his companions: when living at home, standing,
      walking, traveling,
 
-Watching the freedom not to be desired, one should walk alone like a rhino horn.
+Watching the freedom not to be desired, one should walk alone like a rhinoceros horn.
 
 "He is a negotiator among his companions: when staying at home, standing,
 walking, traveling": wherever he is happy, happy to come, happy to go with him,
@@ -656,19 +654,19 @@ of freedom: free law and free man. What is free law? Four mindfulness...
 free man? Whoever possesses these freedoms is called a free man. "Watching the
 freedom not to be desired": "The freedom to watch, see, watch, meditate, and
 observe the Dhamma." To watch the freedom not to be desired, one should walk
-alone like a rhino horn.
+alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
 "He is a negotiator among his companions: when living at home, standing,
 walking, traveling,
 
-Watching the freedom not to be desired, one should walk alone like a rhino horn.
+Watching the freedom not to be desired, one should walk alone like a rhinoceros horn.
 "
 
 127. There is entertainment, joy among companions, and great love among sons,
 
-hates the cute parting, and should walk alone like a rhino horn.
+hates the cute parting, and should walk alone like a rhinoceros horn.
 
 "There is entertainment and joy among companions": "Entertainment", there are
 two kinds of entertainment: there are two kinds of entertainment: physical
@@ -709,19 +707,19 @@ beings.
 What are the cute lines? Desirable colors, desirable sounds, desirable smells,
 desirable flavors, desirable touches, these are lovely behaviors. "Disgusting
 the cute parting": "Disgusting, disgusting, and ashamed of the cute parting." To
-disgust the cute parting, one should walk alone like a rhino horn.
+disgust the cute parting, one should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
 "There is entertainment, joy in companions, and vast love in sons,
 
-hates the cute parting, and should walk alone like a rhino horn. "
+hates the cute parting, and should walk alone like a rhinoceros horn. "
 
 128. Become a person who is not repellent in the Quartet, who is satisfied with
      everything,
 
 Those who are tolerant of danger and those who are not scared should walk alone
-like a rhino horn.
+like a rhinoceros horn.
 
 "For those who do not reject the four directions": "The four directions", the
 single enlightened person fills one side with a heart of compassion and lives,
@@ -912,7 +910,7 @@ danger. "The one who does not frighten", the one who is only enlightened is the
 one who is not timid, not frightened, not frightened, and does not run away. He
 lives in a person who has given up fear of fear and has stood up from his body.
 For those who are tolerant of danger and not frightened, they should walk alone
-like a rhino horn.
+like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -920,13 +918,13 @@ Because of that, the single enlightened person said:
 everything,
 
 Those who are tolerant of danger and those who are not scared should walk alone
-like a rhino horn. "
+like a rhinoceros horn. "
 
 129. Even if there are some monks who are difficult to take care of, there are
      lay members who live at home,
 
 After becoming someone who doesn't care about other people's sons, he should
-walk alone like a rhino horn.
+walk alone like a rhinoceros horn.
 
 "Even if there are some monks, it is difficult to take advantage": "Here, even
 if there is a type of monks, although they should be given refuge, although they
@@ -960,13 +958,13 @@ Because of that, the single enlightened person said:
 members living at home,
 
 After becoming someone who doesn't care about other people's sons, he should
-walk alone like a rhino horn. "
+walk alone like a rhinoceros horn. "
 
 130. After abandoning the mark of the family, such as the ebony tree whose
      leaves have been cut,
 
 After the hero cuts off the bondage of his family, he should walk alone like a
-rhino horn.
+rhinoceros horn.
 
 "After abandoning the mark of the family": hair, beard, wreath, spices, balm,
 accessories (璎珞), accessories (璎珞), clothes, coveralls, headband, massage,
@@ -1005,7 +1003,7 @@ Things that can be corrupted by greed are called the bondage of the lay family.
 alone is a hero. After the bondage of the family member is cut off, after he is
 broken, after abandoning, after being driven away, after the end, making him go
 to non-existence After." After cutting off the bondage of his family members for
-the hero, he should walk alone like a rhino horn.
+the hero, he should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -1013,7 +1011,7 @@ Because of that, the single enlightened person said:
 off,
 
 After the hero cuts off the bondage of his family, he should walk alone like a
-rhino horn. "
+rhinoceros horn. "
 
 First product [Completed].
 
@@ -1027,7 +1025,7 @@ Don't want wives and children (entangled bamboo thickets), close friends and
 confidantes (connection = fetters→love→bitter troubles and the horror of loss of
 interest being bound), lovely separations, don't care about other people's sons
 (= Everything outside oneself), watching the freedom not to be desired, should
-walk alone like a rhino horn.
+walk alone like a rhinoceros horn.
 
 11/23/2020 09:46
 

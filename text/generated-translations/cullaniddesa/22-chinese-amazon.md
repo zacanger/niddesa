@@ -4,7 +4,7 @@ Third product
      been obtained.
 
 I am a man who has been born wise and will not be guided by others: I should be
-alone like a rhino horn.
+alone like a rhinoceros horn.
 
 "Distorted opinions have been freed": Distorted views are known as twenty
 personas. Here, the ordinary man who has not heard of the Holy One has not seen
@@ -47,7 +47,7 @@ works are bitter"... "All law is without me"... "Any collection of laws is
 extinction." He is a man who is not guided by others, who do not rely on others,
 not to others, has To the one who is not bound by others, he knows, sees, is not
 obsessed, the cognitive, and the memory." For me to be a wise man who is born
-and will not be guided by others: I should be alone like a rhino horn.
+and will not be guided by others: I should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -55,12 +55,12 @@ Because then, the eloquent person said,
 the word,
 
 I am a man who has been born wise and will not be guided by others: I should be
-alone like a rhino horn."
+alone like a rhinoceros horn."
 
 142. The greedy, no deceit, the desires, and those who do not hide evil, have
      eliminated the evil and the evil.
 
-After becoming a desire in all the world, you should be alone like a rhino horn.
+After becoming a desire in all the world, you should be alone like a rhinoceros horn.
 
 "No greed, no deceit, no longing": "Greed is called thirsty love, that is greed,
 lust (total greed)... (medium) greed, greed, bad root. That greedy, thirsty
@@ -166,7 +166,7 @@ the world of bitter worlds, in the world of mankind, in heaven, in the world of
 the world, in the world of worlds, in the world in the world. "After becoming
 the hopeless in all worlds": "After becoming a hopeless in all worlds; after
 becoming a desperate man; after becoming a man from desire." To become a desire
-from all the world, you should be alone like a rhino horn.
+from all the world, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -246,7 +246,7 @@ intersect; the liberate themselves should not intersect; they should not engage,
 should not engage, should not participate, should not be used, should not be
 used, should not Practice, should not be good practice (full practice), should
 not be held up after." For yourself should not make enthusiasts and relax, they
-should be like rhino horns alone.
+should be like rhinoceros horns alone.
 
 Because then, the eloquent person said,
 
@@ -260,7 +260,7 @@ horn."
      talented friends,
 
 Knowing the interests should be removed from suspicion, and should be like a
-rhino horn alone.
+rhinoceros horn alone.
 
 "Should be close to the multi-news, law-holders": friends are multihearsay, the
 memory holder of the hearing, the accumulators heard, those who are good at the
@@ -314,13 +314,13 @@ Because then, the eloquent person said,
 "You should be close to many news, law-holders, good and defending friends,
 
 Knowing the interests should be removed from suspicion, and should be like a
-rhino horn alone."
+rhinoceros horn alone."
 
 145. in the world of entertainment, joy and desire and pleasure, do not decorate
      after becoming an expectation,
 
 The decorative state has been separated, the real language, should be like a
-rhino horn alone.
+rhinoceros horn alone.
 
 "Entertainment, joy and pleasure in the world": "Entertainment": There are two
 kinds of entertainment: physical entertainment and speech entertainment...
@@ -359,7 +359,7 @@ family.
 reliable, the trustworthy, the person who is free of fraud to the world. The
 decorative state is separated, quashed, quashed, left, left, freed, unbound, and
 he lives with a restrained heart. To decorate the state has been separated, true
-speakers, should be like rhino horns alone.
+speakers, should be like rhinoceros horns alone.
 
 Because then, the eloquent person said,
 
@@ -371,7 +371,7 @@ horn alone.
 
 146. Children, wives and parents, Caigui and relatives,
 
-After giving up according to the scope, it should be like a rhino horn alone.
+After giving up according to the scope, it should be like a rhinoceros horn alone.
 
 "Children, wives and parents": "Son [Son]", there are four kinds of sons: one
 born of himself, son born in field, adoptive son, and apprentice son. The wife
@@ -409,7 +409,7 @@ rhino."
 
 147. This is dyed: here the little joy, less fun, here there is more bitter,
 
-Like this is a hook、After the Joyer knows, it should be like a rhino horn
+Like this is a hook、After the Joyer knows, it should be like a rhinoceros horn
 alone.
 
 "This is dyed: little joy here": "dyed," or "crochet," or "temptation," or
@@ -442,14 +442,14 @@ is the hooks, after the Jue Hui knows the hook, after knowing the hook, after
 knowing the "crochet", after knowing the "seducer", after knowing the
 "sticking", knowing the "bondage", knowing the "barrier" After, he understood,
 after measuring, judging, after each, and figuring out. As such it is a
-hook、After the Joyer knows, it should be like a rhino horn alone。
+hook、After the Joyer knows, it should be like a rhinoceros horn alone。
 
 Because then, the eloquent person said,
 
 "This is dyed: here the little joy, less fun, here there is more bitterness,
 
 This is a hook like this, and the Joyer knows that he should be alone like a
-rhino horn."
+rhinoceros horn."
 
 148. After breaking the knot, such as the water fish destroyed the net,
 
@@ -480,7 +480,7 @@ return, the same, for that whoever has to be cut off the pollution, those
 pollution he no longer experience, no Return, do not go back; by a way...
 (middle) is not rewarded... Where the pollution is cut off by Arrohan Road,
 those polluted he no longer experience, do not return, do not go back." To
-return combustion like fire, you should be alone like a rhino horn.
+return combustion like fire, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -491,7 +491,7 @@ alone.
 
 149. eyes down and not wandering, guarding the root, protecting the mind,
 
-The unleakable, not burned, should be alone like a rhino horn.
+The unleakable, not burned, should be alone like a rhinoceros horn.
 
 "Eyes down and not wandering": "How are eyes confused? Here, Bichu is a man who
 is unrestless in the eyes, "The one that should be seen is not seen, and the one
@@ -695,7 +695,7 @@ Because then, the eloquent person said,
 "After taking the mark in the family, such as the day tree of the covered
 leaves,
 
-[Were] After you get out of home, you should be alone like a rhino horn.
+[Were] After you get out of home, you should be alone like a rhinoceros horn.
 
 The third product [Completed].
 

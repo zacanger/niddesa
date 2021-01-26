@@ -1,6 +1,6 @@
-Rhino Horn
+Rhinoceros Horn
 
-Description of Rhino Horn
+Description of Rhinoceros Horn
 
 First product
 
@@ -160,7 +160,7 @@ calledFor such as a master." In the same way, there is the one who is the one
 who is equal to that, the person who contrasts, the one who is alone without a
 companion (no other), who has been freed from bondage, who rightly acts, dwelts,
 moves and turns in the world, Guardian, make survival, make survival." For it
-should be like a rhino horn alone.
+should be like a rhinoceros horn alone.
 
 Because then, the eloquent person said,
 
@@ -414,7 +414,7 @@ intimate interaction: [because] love intimate interaction with [because] see...
 (medium) This is the intimate interaction of thirsty love... "Watch this horror
 in intimate interaction": "This horror in intimate interaction he watched, saw,
 watched, watched, watched, watched, watched." To watch this horror in intimate
-interaction, you should be alone like a rhino horn.
+interaction, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -427,7 +427,7 @@ alone."
 124. As a huge bamboo is entangled together: whoever is concerned about his
      children's wife,
 
-If you are not sticking bamboo shoots, you should do it alone like a rhino horn.
+If you are not sticking bamboo shoots, you should do it alone like a rhinoceros horn.
 
 "As large bamboo is entangled together": "Bamboo is called bamboo bushes, such
 as the old bamboo in the bushes are stuck, entangled, entangled, entangled,
@@ -491,18 +491,18 @@ on a rich... on the four riches... ... in the past... in the future... in the
 present... in the present... to see, smell, feel, be able to be known, not
 sticky, not captured, bound, not tied, not coma. He has departed, departed,
 liberated, and has been bound, and he dwelt with a restrained heart. For bamboo
-shoots that are not adhered to, you should do it alone like a rhino horn.
+shoots that are not adhered to, you should do it alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
 "As a huge bamboo is entangled together: whosoever follows in his children's
 wife,
 
-If bamboo shoots are not glued, they should be alone like a rhino horn.
+If bamboo shoots are not glued, they should be alone like a rhinoceros horn.
 
 125. if the deer is not tied in the forest, to the desired pasture walk,
 
-Wise people watch free and should be alone like a rhino horn.
+Wise people watch free and should be alone like a rhinoceros horn.
 
 "If an unbound deer is in the forest, go to the ranch you want": "Deer", there
 are two types of deer: the deer and the spotted deer. Such as deer living in
@@ -565,7 +565,7 @@ gods, five, five forces, seven senses, eight sacred paths, this is the law of
 freedom. What is a free man? Whosoever possesses the law of these freedoms, he
 is called a free man. "Wise people watch freedom": "Wise people watch, see,
 watch, watch, observe the freedom of the law." For the wise to watch freedom,
-you should be alone like a rhino horn.
+you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -598,7 +598,7 @@ and the free man. What is the law of freedom? Four remembrance... (middle) eight
 sacred paths, this is the law of freedom. What is a free man? Whosoever
 possesses the law of these freedoms, he is called a free man. "Watch the freedom
 that is not sought": "Watch, see, watch, watch, observe the freedom of law." To
-watch the freedom that is not sought, you should be alone like a rhino horn.
+watch the freedom that is not sought, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -650,7 +650,7 @@ What are cute lines? The desired colors, the sound of the consensual, the smell
 of the consensual, the taste of the consensual, the consensual touch, these are
 lovely lines. "Disgust the lovely farewell": "to the lovely farewell disgust,
 disgust, ashamed." To disgust the lovely farewell, you should be alone like a
-rhino horn.
+rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -837,7 +837,7 @@ terminator, discarded." For enduring people in distress. "The one who does not
 frighten," the unrighteous person is the one who is not afraid, does not
 frighten, does not frighten, does not flee, dwelt in having cut off terror and
 has left the hair." To endure a person in distress and not to frighten, he
-should be alone like a rhino horn.
+should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -850,7 +850,7 @@ horn."
      family members who live at home,
 
 After becoming a person who does not care about another's son, you should be
-alone like a rhino horn.
+alone like a rhinoceros horn.
 
 "Even if there are some family members are difficult to gain": "Here, even if
 there is a class out of the family when they are given, although they are given
@@ -873,7 +873,7 @@ family members who live at home.
 this sense except for himself, for the son of others. After becoming uncaring on
 the sons of others, after becoming unbusy, after becoming unfollowers." To
 become a person who does not care about another's son, you should be alone like
-a rhino horn.
+a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -887,7 +887,7 @@ rhino."
      leaves,
 
 After a hero is cut off the bondage of his family, he should be alone like a
-rhino horn.
+rhinoceros horn.
 
 "After abandoning the family's mark": hair, beard, wreath, spices, balm,
 ornaments (mayuo), accessories (), clothes, coverings, headscarves, massage,
@@ -922,7 +922,7 @@ family.
 "The hero is cut off in the bondage of the family": "The unconscious person is
 the hero, after his family's bondage cut off, after discard, after discarding,
 after the end of the family, so that it goes to nonexistent." After cutting off
-the bondage of the family for a hero, you should be alone like a rhino horn.
+the bondage of the family for a hero, you should be alone like a rhinoceros horn.
 
 Because then, the eloquent person said,
 
@@ -943,7 +943,7 @@ Do not want wives and children (entangled bamboo bushes), close friends friends
 (link = fetters → love → affliction → bitterness and interest loss is bound
 horror), cute parting, do not care about the son of others (= (everything
 outside yourself), watching the freedom that is not sought, should be like a
-rhino horn alone.
+rhinoceros horn alone.
 
 11/23/2020 09:46
 

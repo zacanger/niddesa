@@ -97,7 +97,7 @@ by the obstacles of the residence; the heart is not fettered by the obstacles of
 the clothes The heart is not bound by the obstacles of group feeding; the heart
 is not bound by the obstacles of residence; the heart is not bound by the
 obstacles of the patient's needs and medical necessities." In order not to be
-bound in the center of a family, one should be alone like a rhino horn. Row.
+bound in the center of a family, one should be alone like a rhinoceros horn. Row.
 
 Because of that, the single enlightened person said:
 
@@ -111,7 +111,7 @@ horn. "
      the defilements,
 
 After cutting off love and apathy, the unstoppable should walk alone like a
-rhino horn.
+rhinoceros horn.
 
 "The Five Hidden Empresses of Dismissing the Mind": "The one who is only
 enlightened, the desire to obliterate him, after giving up, after giving up,
@@ -148,7 +148,7 @@ those who do not adhere to, those who do not adhere to, those who do not fall
 in, those who do not adhere to, and those who do not hold the mind Toward
 (victorious). He who has left, has left, has been liberated, has been separated
 from bondage, he lives with the heart of freedom and restriction." After cutting
-off love and aversion for the unstoppable, it should be like a rhino horn Go
+off love and aversion for the unstoppable, it should be like a rhinoceros horn Go
 alone.
 
 Because of that, the single enlightened person said:
@@ -157,7 +157,7 @@ Because of that, the single enlightened person said:
 expelled,
 
 After cutting off love and apathy, the unstoppable should walk alone like a
-rhino horn. "
+rhinoceros horn. "
 
 153. After putting aside the joy and suffering, and the joy and worry before,
 
@@ -180,7 +180,7 @@ purified, non-filthy, free from defilements, plastic, suitable for work, and
 standing. , Reach still. "After getting the pure peace, samadhi": "The peace in
 the fourth jhana, After Samata is obtained, after obtaining [, after obtaining],
 after possessing, after receiving. "In order to obtain pure peace, after
-samadhi, he should walk alone like a rhino horn.
+samadhi, he should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -194,7 +194,7 @@ horn. "
      slack in their behaviors,
 
 Those who are firm, hardworking, fortitude and strong, should walk alone like a
-rhino horn.
+rhinoceros horn.
 
 "Those whose vitality has been activated for the gain of the highest interest":
 "The highest interest is called immortality, Nibbana, which is the cessation of
@@ -279,12 +279,12 @@ interests, those who do not shrink from their hearts, those who do not slacken
 their behavior
 
 坚Those who are hardworking, fortitude and strong, should walk alone like a
-rhino horn. "
+rhinoceros horn. "
 
 155. Those who sit alone, do not ignore Zen, and often follow the law in the
      law,
 
-has explored patients on Zhuyou, and should walk alone like a rhino horn.
+has explored patients on Zhuyou, and should walk alone like a rhinoceros horn.
 
 "Sit alone, do not ignore the Zen": "The single enlightened person is a person
 who is willing to sit alone, a person who loves to sit alone, and a practitioner
@@ -323,19 +323,19 @@ law in the law.
 have explored patients in all beings; "All actions are suffering"... (Omitted)
 "All Dhamma is selfless"... (Omitted ) "Any collection of Dhamma is an
 extinction of Dhamma". I have probed patients on all beings." In order to detect
-patients on all beings, you should walk alone like a rhino horn.
+patients on all beings, you should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
 "A person who sits alone, does not ignore Zen, and always follows the Dhamma,
 
-has explored patients on Zhuyou, and should walk alone like a rhino horn. "
+has explored patients on Zhuyou, and should walk alone like a rhinoceros horn. "
 
 156. Those who wish for the exterminator of love, those who do not let go, those
      who are wise, those who hear more, those who have thoughts,
 
 The perceiver, decider, and diligent of the Dhamma should walk alone like a
-rhino horn.
+rhinoceros horn.
 
 "Hope for the extinction of the thirst for love, the one who does not let go":
 "The thirst of "thirst for love" is the lust of... The end of the death, the end
@@ -397,7 +397,7 @@ support of responsibility, vitality, vitality root, vitality power, right
 diligence. The enlightened person arrives (has), fully arrived (has), entered,
 fully entered, possessed, fully possessed, possesses this diligence. Therefore,
 the single enlightened person is a diligent person. The perceiver, decision
-maker, and diligent person who is Dhamma should walk alone like a rhino horn.
+maker, and diligent person who is Dhamma should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
@@ -405,13 +405,13 @@ Because of that, the single enlightened person said:
 wise, the hearer, the thoughtful,
 
 The perceiver, decider, and diligent of the Dhamma should walk alone like a
-rhino horn. "
+rhinoceros horn. "
 
 157. If the lion is not afraid of the sound, if the wind is not stuck to the
      net,
 
 Like a red lotus, one who is not contaminated with water, should walk alone like
-a rhino horn.
+a rhinoceros horn.
 
 "Like a lion is one who is not afraid of sound": "Like a lion, the Beast King is
 one who is not afraid of sound, who is not afraid of sound, who is not afraid,
@@ -465,12 +465,12 @@ Because of that, that single enlightened personSay:
 stuck to the net
 
 Like a red lotus, one who is not contaminated with water, should walk alone like
-a rhino horn. "
+a rhinoceros horn. "
 
 158. For example, the lion and beast king is a person with strong teeth, a
      walker after oppression and victory,
 
-should use the side residence, and should walk alone like a rhino horn.
+should use the side residence, and should walk alone like a rhinoceros horn.
 
 "For example, the lion and beast king is a person with powerful teeth, a walker
 who oppresses and defeats": "If the lion and a beast king is a person with
@@ -491,7 +491,7 @@ the atmosphere, living alone, suitable for sitting alone; he [walks alone,]
 walks alone, stands alone, sits alone, lies alone, enters alone for alms The
 village [, advance alone], returns alone, sits alone in a quiet place, performs
 alone, walks, lives, moves, turns, guards, survives, and survives alone." For
-the border dwelling should be used, it should be like a rhino Walk alone like a
+the border dwelling should be used, it should be like a rhinoceros Walk alone like a
 horn.
 
 Because of that, the single enlightened person said:
@@ -499,11 +499,11 @@ Because of that, the single enlightened person said:
 "Like the lion and the beast king is a person with strong teeth, a walker after
 oppression and victory,
 
-should use the side residence, and should walk alone like a rhino horn. "
+should use the side residence, and should walk alone like a rhinoceros horn. "
 
 159. Do it at the right time, be kind, compassionate, joyful, calm and free,
 
-Those who are not opposed by all the world should walk alone like a rhino horn.
+Those who are not opposed by all the world should walk alone like a rhinoceros horn.
 
 "Do it at the right time, be kind, compassionate, joyful, calm and liberate":
 "The one who is enlightened alone fills one side with the heart of walking with
@@ -527,19 +527,19 @@ practiced...in a state of calmness that has been practiced, all beings in the
 east do not disobey... (Omitted) The sentient beings in all directions do not
 disobey. "Not to be opposed by all worldly opponents": "Not to be denied by all
 worldly opponents, hostiles, angry people, and counterattacks." To not be
-opposed by all worldly opponents, one should walk alone like a rhino horn.
+opposed by all worldly opponents, one should walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
 "Do it at the right time, be kind, compassionate, joyful, calm and liberating,
 
-Those who are not opposed by all the world should walk alone like a rhino horn.
+Those who are not opposed by all the world should walk alone like a rhinoceros horn.
 "
 
 160. After breaking the greed, anger and ignorance, after breaking the knots,
 
 Those who are not afraid at the end of their lives should walk alone like a
-rhino horn.
+rhinoceros horn.
 
 "After quitting greed, greed, and ignorance": "Greed", that is greed, greed
 (complete greed)... (abbreviated) greed, greed, unwholesome roots. "Angry", that
@@ -562,20 +562,20 @@ do not fear, those who do not frighten, those who do not doubt fear, those who
 do not fear, those who are not timid, those who do not frighten, those who do
 not frighten, those who do not run away, live in She is afraid of fear, and has
 left her body erect. In order not to be afraid at the end of life, one should
-walk alone like a rhino horn.
+walk alone like a rhinoceros horn.
 
 Because of that, the single enlightened person said:
 
 "After breaking the greed, hatred and ignorance, after breaking the knots,
 
 Those who are not afraid at the end of their lives should walk alone like a
-rhino horn. "
+rhinoceros horn. "
 
 161. They get close and serve for reasons of interest. Friends for no reason are
      hard to get today.
 
 The impure people have the wisdom of their own interests and should walk alone
-like a rhino horn.
+like a rhinoceros horn.
 
 "They get close to and serve for reasons of interest": "For the reasons of their
 own interests, for the interests of others, for the interests of both, for the
@@ -608,9 +608,9 @@ impure wrong views" as impure people; impure is inferior, despicable, inferior,
 low, inferior intent, and insignificant的." People who are impure have the
 wisdom of their own interests.
 
-"Should walk alone like a rhino horn": ""Only", the single enlightened person
+"Should walk alone like a rhinoceros horn": ""Only", the single enlightened person
 named as a monk alone... (Omitted) "Should do", there are eight kinds of
-activities... (Omitted) "Like a rhino Horn-like", like the horn of a rhinoceros
+activities... (Omitted) "Like a rhinoceros Horn-like", like the horn of a rhinoceros
 is truly unique... (omitted)." It means that you should walk alone like a rhino
 horn.
 
@@ -620,11 +620,11 @@ Because of that, the single enlightened person said:
 hard to get today.
 
 The impure people have the wisdom of their own interests and should walk alone
-like a rhino horn. "
+like a rhinoceros horn. "
 
 Fourth product [Completed].
 
-The description of the rhino horn sutra has been completed.
+The description of the rhinoceros horn sutra has been completed.
 
 "Ajita, Dishe Maitreya, Fulou Nage and Maitreya,
 
