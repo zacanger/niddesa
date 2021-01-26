@@ -1,6 +1,6 @@
 5. Explanations asked by the student Dudagar
 
-30. [Venerable Dudagar like this:] Lord, I ask you, please tell me this, Daxian (??)! I
+30. [Venerable Dudagar like this:] Lord, I ask you, please tell me this, Great Immortal (??)! I
     look forward to your words,
 After hearing what you said, you should learn for your own Nibbana.
 
@@ -10,9 +10,9 @@ previous). "World Honored One" ... (omitted).
 "[Venerable people like this are Da Ge]": "'Like this", ...(omitted). "Du Da
 Ge", the Brahmin's name ...(omitted).
 
-"Daxian! I look forward to your words": "Your words, ways of speaking, teaching,
+"Great Immortal! I look forward to your words": "Your words, ways of speaking, teaching,
 teaching, admonition, I expect, I hope, I pray.
-"Daxian" , Why is the Blessed One a Great Immortal? "The seeker, pursuer,
+"Great Immortal" , Why is the Blessed One a Great Immortal? "The seeker, pursuer,
 ...(omitted).
 
 "After hearing your words": "Your speech, language, teachings
@@ -203,132 +203,82 @@ Brahman! Please teach the commandment. "The compassionate person", The
 compassionate, the sympathizer, the protector, the funder, the compassionate."
 Brahmin! The compassionate person asks you to teach.
 
----
-checkpoint
----
+"I can get away from the Dhamma that I can know (I can know away from the
+Dhamma??)": "Away from the Dhamma is called immortality, Nibbana, that is the
+cessation of all actions, the cessation of all attachments, the extinction of
+craving, greed, extinction, and Nibbana. "I can know", I can know, dissociate
+(??), know for sure, understand, prove, reach, and testify." I can know, stay
+away from the Dhamma.
 
-"I can get away from the Dhamma that I can know": "Away from the Dhamma is
-called immortality, Nibbana, that is the cessation of all actions, the cessation
-of all attachments, the extinction of craving, greed, extinction, and Nibbana.
-"I can Knowing", I can know, know, dissociate, know for sure, understand, prove,
-reach, and testify." For I can know, stay away from the Dhamma.
-
-"I am like the innocent person of the void": "If the void is not stuck, not
-captured, not tied, not tied to the world, then it is the one who is not stuck,
-not captured, and not tied , The one who is not bound by all over." This is like
+"I am like the harmless person of the void (void??)": "If the void is not stuck, not
+captured, not bound, not tied to the world, then it is the one who is not stuck,
+not captured, and not tied, the one who is not bound by all over (??)." This is like
 a person who has no evil in the void. "If the emptiness is not dyed with
 carmine, or golden yellow, or indigo, or deep red [color], then the one who is
 not dyed, the one who is not angry, the one who does not change foolishly, and
-the one who does not pollute." This is also like the emptiness of the emptiness.
-The victim. "If the void does not get angry, is not abusive, does not resist,
+the one who does not pollute." This is also like the emptiness of the void.
+"If the void does not get angry, is not abusive, does not resist,
 and is not attacked, this is the one who is not angry, the one who is not
 abusive, the one who does not resist, the one who is not attacked, and the one
-who does not fight back." This is also like the absence of the void By.
+who does not fight back." This is also like the absence of the void (vanity of
+the harmless??)
 
-"Just here you can walk silently and unrestrainedly": ""Just here silently",
-"when you are here; when you are here; when you are sitting here; when you are
-sitting on this seat ; It's when sitting down among the crowd." This is just
-here silently. Or, "Just here is silent, silent, calm, cooled, stopped." This is
-also here silent There are two kinds of dependence in the "non-resistance
-ground": the dependence of craving and the dependence of seeing... (Omitted)
-This is the dependence of craving... (Omitted) This is the dependence of
-seeing... Thirsty After the dependence of love has been cut off, and the
-dependence of seeing has been cut off, it becomes the non-dependant of the eyes,
-the non-reliant of the ear, the non-reliant of the nose, the non-reliant of the
-tongue, and the non-reliant of the body, Those who do not depend on the mind,
-the colors... the sounds... the smells... the tastes... the touches... the
+TODO: this section definitely got messed up
+"Here you can walk silently and unrestrainedly": ""Here silently", "when you are
+here; when you are sitting here; when you are sitting on this seat; it's when
+sitting down among the crowd." This is just here silently. Or, "Just here is
+silent, calm, cooled, stopped." This is also here silently. There are two kinds
+of dependence in the "non-resistance ground (??)": the dependence of craving and
+the dependence of seeing... (omitted) This is the dependence of craving...
+(omitted). After the dependence of love has been cut off, and the dependence of
+seeing has been cut off, it becomes the non-dependant of the eyes, the
+non-reliant of the ear, the non-reliant of the nose, the non-reliant of the
+tongue, and the non-reliant of the body. Those who do not depend on the mind,
+the forms... the sounds... the smells... the tastes... the touches... the
 dhammas... the family... the group (the crowd)... the residence... the
-benefit... the reputation... the praise ...Les...Clothes...Food...Dwelling...The
-patient's needs and medical necessities...The Desire Realm...The Color
-Realm...The Colorless Realm...The Desire to Be...The Colorless To...Want to
-Have... ...There is no desire to exist...there is no desire to exist...the one
-aggregate has...the four aggregates have...the five aggregates have...the
-past...the future...now...is what you see, hear, feel, and can be known Those
-who do not adhere to, those who do not adhere to, those who do not fall into,
-those who do not adhere to, those who do not turn their minds toward (victory).
-Those who have left, have given up, have been freed, have been separated from
-the bondage, he is separated The heart of limitation [to live]. "Can do", can
-do, can live, can act, can turn [, can guard], can survive, can survive."
-Because it is here to be able to quietly, not rely on Ground line.
+benefit... the reputation... the praise ...clothes... food... dwelling...
+(omitted), the Desire Realm..., The Formed Realm... The Formless Realm... The
+Desire to Be...The Formless... Want to Have(??)... there is no desire to
+exist... the one aggregate has... the four aggregates have... the five
+aggregates have... the past...the future...now...is what you see, hear, feel,
+and can be known. Those who do not adhere to, those who do not fall into, those
+who do not turn their minds toward (victory), those who have left, have given
+up, have been freed, have been separated from the bondage, living with a
+restrained heart. "Can do" can live, can act, can turn, can guard, can survive"
+To walk quietly and unrestrainedly here.
 
-35. [World Zun: "Dadage!"] I will tell you the silence, in life rather than
-    hearsay,
+35. [Blessed One: "Dadage!"] I will tell you about stillness (silence),
+    known in life rather than rumor,
+Anyone who knows mindfulness can live through the love in the world.
 
-Anyone who knows the thoughtfulness can live through the love in the world.
+"I will tell you about the stillness": "The stillness of greed, the stillness of
+aversion, ...(omitted) ignorance, ... anger, resentment, evil deeds, jealousy,
+...(omitted, see previous)... stillness of all unwholesome creations; silence,
+cessation; I will tell, announce, say, explain, teach, interpret, build,
+uncover, parse, clarify." I will tell you about the stillness.
 
-"I will talk about the silence for you": "The stillness of greed, the stillness
-of aversion, the stillness of ignorance, the stillness of anger, the
-resentful... (omitted) the evil... the bossy... the jealous... the stingy...
-Fake...cunning...stubborn...passionate...slow...extremely
-slow...slow...slow...all polluting...all evil...all irritating ...All the
-anxious...all the annoyed...all the unwholesomely created silence, silence,
-silence, silence, cessation I will tell, I will announce, I will say, I will
-explain, I will teach, I Will tell, I will build, I will uncover, I will parse,
-I will clarify, I will explain." Silence will be told for you for me.
+"[Blessed One: "Du Da Ge!"] ": ""Du Da Ge", the World Venerable calls the woman by
+her name. "Blessed One", ...(omitted).
 
-"[World Zun: "Du Da Ge!"] ": ""Du Da Ge", the World Venerable calls the woman by
-her nameRoman. "World Zun", this is a synonym for respect... (abbreviated) Anri
-(pseudonym) who testified, namely World Zun. "Is [World Zun: "Du Da Ge!"]
+"In the current life and not in the hearsay": ...(omitted, see previous
+section).
 
-"In the current life and not in the hearsay": ""In the current life", "in the
-seen (in the current life); in the known; in the measured; in the made clear
-Top: "All actions are impermanent"... (abbreviated) "Any concentration of Dhamma
-is an end to Dhamma" means in the Dhamma that is seen (in the current life); in
-the Dhamma that is known; in the Dhamma that is measured; In the clarification
-of the law, this is what [I will tell] is alive. Or, I will tell you about the
-suffering of being seen; I will tell you about the collection of being seen; I
-will tell you the way of being seen; I will tell you about being The extinction
-of seeing is the extinction of [I will tell] in life. Or, [in the life as]
-"directly visible, instant, inviting you to meet, guiding, and wise men should
-experience it by themselves." This is also [I will tell] in the life. "For
-being alive. "Not anecdotal", not anecdotal, not from rumors, not from
-inheritance, not from Scripture, not from logical inference, not from reasoning,
-not because of theoretical reflection, not because of an opinion received after
-reflection, but by oneself The method of knowledge and self-evidence, I will
-talk about that. "It's alive and not rumored.
+"Anyone who knows the thought after knowing": ...(omitted, see previous
+section).
 
-"Anyone who knows the thought after knowing": "After knowing, weighing, judging,
-separating, clarifying: "All actions are impermanent" after knowing, weighing,
-judging, separating, After clarification; "All actions are suffering"... "All
-Dhamma is without self" After knowing, after weighing, after judging, after
-separating, after clarifying... (omitted) "Any collection of methods is an
-extinction "After knowing, after weighing, after judging, after separating,
-after clarifying. "Conscientious" is conscientious in four ways: when practicing
-mindfulness in the body, it is conscientious... (Omitted) He is called mindful.
-"Walker" means when walking, staying, acting, turning, guarding, sustaining, and
-sustaining." It is the practitioner who knows the mindfulness.
+"Able to live through love in the world": ...(omitted, see previous section).
 
-"Able to live through love in the world": "Love" is called craving, which is
-greed, greed (complete greed)... (abbreviated) greed, greed, unwholesome roots.
-"Being in love", what does it mean to be loving? ...... (Omitted) The enlarged
-attachment" is love. "In the world", in the world of the suffering world... (in
-the middle of the world). "Able to survive the love in the world": "The love in
-the world, or the love in the world [Ni.1], he can pass through, surpass, pass,
-pass, and overcome thoughtfully. "For the love in the world to survive.
+36. I rejoice at that, Great Immortal! The highest silence,
+Anyone who knows the mindfulness can live through the love in the world.
 
-Because of that, the Lord said:
+"I rejoice at that": ""That", your words, language, teaching, teaching,
+admonition. "I rejoice", I am happy, I beg (??), I hope, I pray." I am so happy
+for that.
 
-"[World Zun: "Dadage!"] I will tell you the silence, which is in life and not
-rumor,
-
-Anyone who knows the thoughtfulness can live through the love in the world. "
-
-36. I am so happy with that, Daxian! The highest silence,
-
-Anyone who knows the thoughtfulness can live through the love in the world.
-
-"I love that": ""That", your words, language, teaching, teaching, admonition. "I
-rejoice", I rejoice; I rejoice; I rejoice; I want, I can use [, I beg], I hope,
-I hope, I pray." I am so happy for that.
-
-"The Great Immortal! The Supreme Silence": ""The Great Immortal", why the
-Blessed One is the Great Immortal? "The seeker, pursuer, and seeker of the Great
-Ring Aggregate" is the Great Immortal; "The Great Definite Aggregate... Where?"
-is the great immortal. "The supreme silence", silence is called immortality,
-Nibbana, that is the cessation of all actions, the cessation of all attachments,
-the extinction of craving, greed, extinction, and Nibbana.的)", the first, the
-most victorious, the victorious, the first, the most, the top, the top." For
-Daxian! The highest silence.
+"The Great Immortal! The Supreme Silence": ""The Great Immortal" ...(omitted).
+""The supreme silence", silence is called immortality,
+Nibbana, that is the cessation of all actions, ...(omitted)."
+The Great Immortal! The highest silence.
 
 "Anyone who knows the thought after knowing": "After knowing... (omitted) "All
 actions are impermanent" after knowing, after weighing, after judging, after
@@ -346,12 +296,6 @@ what does it mean to be loving? "... (omitted) The enlarged attachment" is love.
 world). "Can survive the love in the world": "In the world that he loves, or in
 the world that he should love, he can spend thoughtfully, can transcend...
 (omitted) can overcome." To be able to survive the world In love.
-
-Because of that, the brahmin said:
-
-"I like that so much, Daxian! The most silent,
-
-Anyone who knows the thoughtfulness can live through the love in the world. "
 
 37. [World Zun: "Dago!"] Anything you know rightly, in the upper, lower and
     middle four directions,
