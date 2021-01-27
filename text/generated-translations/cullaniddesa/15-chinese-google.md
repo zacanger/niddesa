@@ -47,7 +47,7 @@ Blessed One points out the past of himself and others; when talking about the
 Ma'e Diva Sutra [MN.83], the Blessed One points out the past of himself and
 others.
 
-This was said by the World Zun [DN.29]: "Chunta! Regarding the past lives,
+This was said by the Blessed One [DN.29]: "Chunta! Regarding the past lives,
 Tathagata has reminiscences and entourage wisdom, he [can] recall as much as he
 hopes, Chunta! Regarding the future...(Omitted) Chunta! Regarding the present
 life, the Tathagata gave birth to Jue-Seng-zhi: "This is my last birth, and now,
@@ -148,7 +148,7 @@ inside and outside of oneself, the seer of "nothing",
 
 Sakyamuni! I asked Chi, how should people like that be guided? "
 
-83. [World Zun: "Force Salad!"] All knowing and living, the Tathagata is the
+83. [Blessed One: "Force Salad!"] All knowing and living, the Tathagata is the
     witness,
 
 knows that the survivor is the winner, the one who is interesting.
@@ -194,8 +194,8 @@ knowing]: "There is nothing", the sentient beings who reach nowhere are the
 seventh consciousness. In this way, the Blessed One knows the seven
 consciousnesses because of the rebirth. "Knowledge for everything.
 
-"[World Zun: "Force Salad!"]": ""Force Zun", the Blessed One calls the Brahman
-by his name. "World Zun", this is a synonymous with respect... ." is [World Zun:
+"[Blessed One: "Force Salad!"]": ""Force Zun", the Blessed One calls the Brahman
+by his name. "Blessed One", this is a synonymous with respect... ." is [Blessed One:
 "Force Salad!"].
 
 "The Tathagata is the one who proves the knower": ""The one who proves the
@@ -300,7 +300,7 @@ be funny. "Being the winner, the one who has fun.
 
 Because of that, the Lord said:
 
-"[World Zun: "Force Salad!"] All know and live, the Tathagata is a witness,
+"[Blessed One: "Force Salad!"] All know and live, the Tathagata is a witness,
 
 knows that the survivor is the winner, the one who is interesting. "
 

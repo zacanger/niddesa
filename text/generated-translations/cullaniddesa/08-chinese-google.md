@@ -191,7 +191,7 @@ World Lord! Are those who self-control there to survive birth and aging?
 
 Dear Sir! Lord, I ask you, please tell me this. "
 
-49. [World Zun: "Nanda!"] Any of these sandmen and brahmins, they say that
+49. [Blessed One: "Nanda!"] Any of these sandmen and brahmins, they say that
     seeing and hearing are pure,
 
 also said that there is purity in virtue of precept and prohibition, and that
@@ -206,8 +206,8 @@ over, which is "anything". "Saman", everything Anyone who walks into the parade
 from here, enters the parade. "Brahman", anyone who calls others a friend." Any
 of these sandmen and brahmins.
 
-"[World Zun: "Nanda!"]: ""Nanda", the Blessed One calls that Brahmin by his
-name. "World Zun", this is a synonymous with respect... "." is [World Zun:
+"[Blessed One: "Nanda!"]: ""Nanda", the Blessed One calls that Brahmin by his
+name. "Blessed One", this is a synonymous with respect... "." is [Blessed One:
 "Nanda!"].
 
 "They say that there is purity in seeing and what they hear": "They say, tell,
@@ -245,7 +245,7 @@ explain, I teach, I tell, I build, I uncover, I analyze, I clarify, I explain.
 
 Because of that, the Lord said:
 
-"[World Zun: "Nanda!"] Any of these sandmen and brahmins, they say that there is
+"[Blessed One: "Nanda!"] Any of these sandmen and brahmins, they say that there is
 purity in seeing and hearing,
 
 also said that there is purity in virtue of precept and prohibition, and that
@@ -330,7 +330,7 @@ world of heaven and man,
 
 Dear Sir! To survive birth and aging? Lord, I ask you, please tell me this. "
 
-51. [World Zun: "Nanda!"] I don't say "all the sandmen and brahmins are covered
+51. [Blessed One: "Nanda!"] I don't say "all the sandmen and brahmins are covered
     by birth and aging",
 
 Anything you see or hear or feel here, or even the precepts and prohibitions are
@@ -409,7 +409,7 @@ storm."
 
 Because of that, the Lord said:
 
-"[World Zun: "Nanda!"] I don't say, "All Shamen and Brahmins are covered by
+"[Blessed One: "Nanda!"] I don't say, "All Shamen and Brahmins are covered by
 birth and aging."
 
 Anything you see or hear or feel here, or even the precepts and prohibitions are

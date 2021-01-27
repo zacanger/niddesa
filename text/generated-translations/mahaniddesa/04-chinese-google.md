@@ -61,7 +61,7 @@ After        the wise man takes the Vedas legally, the wise man does not go to t
     28. He is a person who has left the legion in all laws: everything you see or hear,
        Who can classify [him] in this world who has seen and opened up like this?
 "He is the one who has left the legion in all laws: whatever he sees or hears and perceives": "The legion is called the demon army, the body and evil act the devil army; the speech and evil act the devil army; the intention and evil act the devil army; Army; hatred is the demon army; ignorance is the demon army; anger is the demon army; resentment is the demon army... (Omitted) All bad works are the demon army.
-     This is said by the World Zun: [Sn.3.2, 438-441 偈]
+     This is said by the Blessed One: [Sn.3.2, 438-441 偈]
     "Desire is your first legion, unhappy is called second,
        Hunger and thirst are your third, and thirst is called fourth.
        Deep sleep is your fifth, fear is said to be sixth,

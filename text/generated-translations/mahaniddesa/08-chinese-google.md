@@ -83,7 +83,7 @@
      68. But after leaving the Legion, they do: Don't see the opponents,
        Bosoler! What can you get in them? Those who are not mastered here as the highest.
 "But after they leave the legion, they do it": "The legion is called a demon army, which acts as a demon army with body evil; acts as a demon army with speech and evil; Anger...resentment...hiding evil... bossy... envy... stingy... fake... cunning... stubborn... passion......Slow...extremely slow...slowly...relaxed...all pollution...all evils...all afflictions...all scorching heat...all heat afflictions...everything bad works as a demon army.
-     This is said by the World Zun: [Sn.3.2, 438-441 偈]
+     This is said by the Blessed One: [Sn.3.2, 438-441 偈]
     "Desire is your first legion, dislike is called the second... (omitted)
        Those who have no courage will not defeat him, and they will get peace after victory. "
      When all the demon army and all the hostile pollution are conquered, defeated, destroyed, disintegrated, and turned away by the Four Holy Paths, because that is called after leaving the army. "They" are Arhats, those who have exhausted their troubles. "They do", they do, live, act, turn, guard, survive, and survive. "Because Dan left the army, they did.

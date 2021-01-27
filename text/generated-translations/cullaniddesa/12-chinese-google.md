@@ -89,7 +89,7 @@ eye." If you have an eye, please talk about the state of silence.
 
 "The Lord, please tell me the truthfulness": "The truthfulness is called
 immortality, Nibbana... (abbreviated) extinction, Nibbana. "World Lord",Respect
-synonymous... (abbreviated) Anri (pseudonym) who testified, namely "World Zun".
+synonymous... (abbreviated) Anri (pseudonym) who testified, namely "Blessed One".
 "Please tell me that", please tell me, please explain... (omitted) please
 explain. "For the Lord, please tell me the truth.
 
@@ -108,9 +108,9 @@ me the truth. "
 The one who is broadly wise is the less wise me, please explain the method I can
 know, here is the separation of birth and aging.
 
-"Because the Blessed One acts after the victory over desire": ""World Zun", a
+"Because the Blessed One acts after the victory over desire": ""Blessed One", a
 synonym for respect... (abbreviated) Anri (pseudonym) who testified, that is
-"World Zun". "Desire" has two desires from Shesem: The desire for things and the
+"Blessed One". "Desire" has two desires from Shesem: The desire for things and the
 desire to pollute...(slightly omitted) These are called the desires for
 things...(slightly omitted) These are called the desires for pollution. After
 the Blessed One has known the desires of things, after giving up on the desires
@@ -157,7 +157,7 @@ shines on the earth,
 The one who is broadly wise is me who is less wise. Please explain the method I
 can know. Here is the separation of birth and aging. "
 
-67. [World Zun: "If you save the mud!"] Please temper your cravings on desire,
+67. [Blessed One: "If you save the mud!"] Please temper your cravings on desire,
     and treat detachment from desire as a stable one,
 
 Picked up or rejected, don't be found anything.
@@ -171,9 +171,9 @@ greed of desire": "Please adjust to the greed of desire, please expel, please
 leave, please drive away, please make the end, please make it go to
 non-existence." To ask you to temper your cravings.
 
-"Ruodu Gengni": "The Blessed One calls the Brahman by his surname. "World Zun",
+"Ruodu Gengni": "The Blessed One calls the Brahman by his surname. "Blessed One",
 which is a synonymous with respect... (abbreviated) Anli (pseudonym) who
-testifies, that is, World Zun." mud!"].
+testifies, that is, Blessed One." mud!"].
 
 "Desire to be free as a stable post": "Desire (Leaving)", the correct way, the
 following way, the non-reverse way [, the way of non-contradiction (the way of
@@ -201,7 +201,7 @@ please make it go to non-existence ." Don't be discovered for anything.
 
 Because of that, the Lord said:
 
-"[World Zun: "Ruodu Gengni!"] Please temper your cravings and regard detachment
+"[Blessed One: "Ruodu Gengni!"] Please temper your cravings and regard detachment
 as a stable one,
 
 Picked up or rejected, don't be found anything. "

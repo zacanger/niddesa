@@ -33,7 +33,7 @@ is for him that their love will not be discovered,
 
 And whoever has passed through doubts, what does his relief look like? "
 
-58. [World Zun: "Dushangya!"] For those who are incapable of lusting for him,
+58. [Blessed One: "Dushangya!"] For those who are incapable of lusting for him,
     for him, eagerness will not be discovered,
 
 And for those who have passed through doubts, there is no further relief for
@@ -47,8 +47,8 @@ are called the desires of pollution. "Whoever has no desire for him": "Whoever
 has no desire for him, does not live together, does not live, and does not stay
 (live all over)." It is someone who has no desire for him.
 
-"[World Zun: "Dashiya!"]": ""Dashiya", the World Zun called the Brahman by his
-name. "World Zun", this is a respectful synonym... That's the World Honored
+"[Blessed One: "Dashiya!"]": ""Dashiya", the Blessed One called the Brahman by his
+name. "Blessed One", this is a respectful synonym... That's the World Honored
 One." is [World Honored One: "Dushangya!"]
 
 "For him, thirsty is not found": "thirsty", the lust of color, the lust of
@@ -71,7 +71,7 @@ liberated has done." For him Said that there is no further relief.
 
 Because of that, the Lord said:
 
-"[World Zun: "Dushangya!"] For those who are incapable of lusting for him, for
+"[Blessed One: "Dushangya!"] For those who are incapable of lusting for him, for
 him, eagerness will not be discovered,
 
 For those who have passed through doubts, there is no further relief for him. "

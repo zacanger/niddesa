@@ -143,7 +143,7 @@ questions,
 Please tell me the liberation of complete wisdom, the destruction of ignorance.
 "
 
-75. [World Zun: "Udhya!"] The severance of the desire to desire, and the sorrow
+75. [Blessed One: "Udhya!"] The severance of the desire to desire, and the sorrow
     of both,
 
 and the elimination of depression, the prevention of regret.
@@ -157,8 +157,8 @@ desire": "the renunciation, calmness, cessation, cessation, immortality, and
 Nibbana of the desire for desire." It is the renunciation of the desire for
 desire.
 
-"[World Zun: "Udhya!"]": ""Udhya", the Blessed One calls that Brahman by his
-name. "World Zun", this is a respectful synonym... (abbreviated) Anri (a
+"[Blessed One: "Udhya!"]": ""Udhya", the Blessed One calls that Brahman by his
+name. "Blessed One", this is a respectful synonym... (abbreviated) Anri (a
 pseudonym) who testifies, That is the World Honored One." is [World Honored One:
 "Udhya!"].
 
@@ -218,7 +218,7 @@ regret.
 
 Because of that, the Lord said:
 
-"[World Zun: "Udhya!"] The severance of the desire for desire, and both the
+"[Blessed One: "Udhya!"] The severance of the desire for desire, and both the
 sorrow and sorrow,
 
 and the elimination of depression, the prevention of regret. "

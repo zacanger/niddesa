@@ -1,247 +1,164 @@
-6. Explanations asked by the Brahmin of U Bosi student
+### 6. Questions asked by Ubosi student
 
-38. [Venerable U Bosi like this:] Sakyamuni! I am lonely, unrestrained, I can't
+38. [Venerable Ubosi like this:] Sakyamuni! I am lonely, unrestrained, I can't
     get through the storm,
+All those who see, please tell us about the object (fate??): Those who depend on it can
+survive the storm. (whosoever stops can survive the storm??)
 
-All those who see, please tell us about the object: Those who depend on it can
-survive the storm.
+"Sakyamuni! I am lonely... the storm": ""Lonely", "Without my person's partner,
+or without my partner of Dhamma: Anyone who is dependent on the law can survive,
+can transcend, pass, surpass, and overcome the storms of great desire, the
+storms of seeing, the storms of ignorance." "Sakyamuni", ...(omitted, see
+previous section). I am lonely... a big storm.
 
-"Sakyamuni! I am lonely...the great torrent": ""Lonely", "Without my person's
-partner, or without my partner of Dhamma: Anyone who is dependent or dependent
-on the law can survive, Can transcend, pass, overcome, and overcome the storms
-of great desire, some storms, the storms of seeing, the storms of ignorance."
-"Sakyamuni", "Sakyamuni is a monk from the Shakya family." . Or, "the rich, the
-rich, the rich." It is also Sakyamuni. For him, there are these wealth, namely:
-faith in wealth, abstaining from wealth, shame in wealth, ashamed of wealth,
-hearing wealth, giving wealth, wisdom wealth, thoughts Sustaining wealth...
-(Omitted) Nibbana wealth, using these multiple treasures as the rich, the rich,
-the rich. Or, "the possible, the able, the sufficiency, the hero, the brave, the
-brave, and not the cowardly Those who do not frighten, those who do not
-frighten, those who do not run away, those who have given up on the fear of
-terror, those who have left their bodies and erected hair." It is also
-Sakyamuni." It is Sakyamuni! I am lonely... a big storm.
+"[Like this Venerable Ubosi]": ...(omitted, see previous section).
 
-"[Like this Venerable Wu Bosi]": ""Like this", the continuation of the
-sentence... (abbreviated) "Venerable", [this is] love language... (abbreviated)
-"Wu Bosi", who The name of the Brahmin... (abbreviated) is called." It is
-[Venerable U Bosi like this].
+"Unrestrained, I can't get through": "The "undependable (??)", the unrestrained
+of man or the unrestrained of the Dhamma (??), I can't can't afford to get over
+it, transcend, pass, surpass, overcome the violent currents of great desire, the
+violent currents of seeing, the violent currents of ignorance. "Being
+unrestrained, I cannot get through."
 
-"I can't get over the unrestrained": "The'undependable', the unrestrained of man
-or the unrestrained of the law, I can't, I can't, I can't, can't afford to get
-over it , Transcend, pass, surpass, overcome the violent currents of great
-desire, some violent currents, the violent currents of seeing, the violent
-currents of ignorance. "Being unrestrained, I cannot get through.
-
-"All eyes, please tell you about the object": "The object, the dependence of the
-condition, the close dependence, please tell, please explain, please teach,
-please inform, please establish, please uncover, please You parse, please
-clarify, please explain. "All eyes are", all eyes are called the state of all
-knowing wisdom. Therefore, the Blessed One reaches (has), reaches (has), enters,
-enters completely, has enough, has enough , State intelligence with all
-knowledge.
+"All eyes (all-seeing??), please tell about the object": "The object, the
+dependence of the condition, the close dependence, please tell, please explain,
+teach, inform, establish, uncover, parse, clarify, please explain. "All eyes",
+all eyes are called the state of all knowing wisdom. Therefore, the Blessed One
+reaches (has), enters, enters completely, has enough, knowledge of the state
+wisdom(??).
 
 "For him, there is nothing unseen here (in this world), there are still
 unknowable, unknowable things,
-
 He proves that everything that exists should be led to infer, because the
 Tathagata is like that for all eyes. "" [Ps.1, paragraph 121]
 
-For all those who see, please tell me what you are.
+For all those who see, please tell me.
 
-"Anyone who is dependent can ride through the storm": "Anyone who is dependent",
-a mortal or law-based person can overcome, transcend, pass, pass, and overcome
-the storm of great desire , Some storms, see storms, ignorant storms. "For those
-who depend on it can survive the storm.
+"Anyone who is dependent (anyone who stops??) can ride through the storm":
+"Anyone who is dependent", a mortal or law-based person can overcome, transcend,
+pass, surpass, and overcome the storm of great desire, some storms, seeing
+storms, ignorance storms. "Those who depend on it (those who stop??) can survive
+the storm."
 
-Because of that, the brahmin said:
+39. [Blessed One: "Ubosi!"] Watching those who have nothing, the mindful,
+    relying on "nothing" to make you ride through the storm,
+After giving up on desire, day and night increased the demise of craving.
 
-"[Venerable U Bosi like this:] Sakyamuni! I am lonely, unrestrained, and I
-cannot survive the great storm,
+"Watching the non-owner, the mindful": "The Brahman was originally the attainer
+and the dependent who has no possessions. He doesn't know "This is my
+dependence." The Blessed One explained to him the dependence and the higher way
+out: enter into the state of non-ownership with mindfulness and wait, and then
+after coming out from there, seeing [it] is impermanent, suffering, and sick in
+the mind and mental states that arise, tumor, arrow, ...(omitted, see previous
+sections)..., trouble, renunciation, he is watching, seeing, and observing.
 
-All those who see, please tell us about the object: Those who depend on it can
-survive the storm. "
-
-39. [World Zun: "Wu Bosi!"] Watching the nothing, the thoughtful, and relying on
-    "nothing" to make you ride through the storm,
-
-has been freed from doubts after she gave up on her desire, and she has
-increased day and night watching the demise of her craving.
-
-"Watching the non-owner, the thoughtful": "The Brahman was originally the
-attainer and the dependent who has no possessions. He doesn't know "This is my
-dependence." The Blessed One explained to him the dependence And the higher way
-out: enter into the no-owner place with thoughtfulness and wait until, and then
-after coming out from there, there, watching [it] is impermanent, suffering, and
-sick in the mind and mental states that arise , Tumor, arrow, curse, disease,
-other side, corrupt, catastrophic, scourge, terror, disaster, mobile,
-perishable, unstable, no shelter, no refuge, no Refuge, non-refuge, surrendered,
-hypocritical, empty, selfless, fault, change law, false, unfortunate root,
-{some}[killer?], nothing, there Worrying, promising, magic food (bait), birth,
-old age, sickness, death, sorrow and despair, concentration, extinction,
-pleasure, trouble, renunciation, he is watching, seeing, watching Watching,
-watching and observing.
-
-"Those with thoughts": all thoughts, random thoughts, remembrance... (omitted)
+"Those with thoughts": all thoughts, perceptions, memories... (omitted)
 This is called thought. Having... (Omitted) Having this thought, he is called a
-thoughtful person. "In order to look at the nothing, the mindful.
+thoughtful person. "Watching the non-owner, the mindful.
 
-"[World Zun: "Wu Bosi!"]": ""Wu Bosi", the Blessed One called the Brahman by his
-name. "World Zun", this is a respectful synonym... That is the Lord."For [World
-Zun: "U Bosi!"].
+"[Blessed One: "Ubosi!"]": ...(omitted).
 
 "Relying on "Nothing" makes you ride through the storm": ""Nothing" means
 waiting for nothing. For what reason is "nothing" waiting for nothingness? Enter
-into the boundless place of knowledge mindfully After waiting, and then coming
-out from there, there, that consciousness does not make it exist, make it exist,
-make it disappear, he sees "nothing", and for this reason "nothing" is nothing.
-To. After relying on, relying on, and after doing what you want, you can get
-through, surpass, pass, go over, overcome the storms of desire, some storms, the
-storms of seeing, the storms of seeing." "After that, you get through the storm.
+into the boundless place of knowledge mindfully (jhana of infinite
+consciousness??). After waiting, and then coming out from there, that
+consciousness does not make it exist, make it disappear, he sees "nothing", and
+for this reason "nothing" is nothing. After relying on, and after doing what you
+want, you can get through, surpass, pass, go over, overcome the storms of
+desire, some storms, the storms of seeing, the storms of seeing (should be
+"ignorance"??)." "After that, you get through the storm.
 
 "After giving up on desire, I have been freed from doubts": ""Desire", there are
 two kinds of desires from praising: the desire of things and the desire of
-pollution... (abbreviated) these are called the desires of things...
-(abbreviated) ) These are called the desires of pollution. "After giving up on
-the desires", "after knowing the desires for things, after giving up on the
-desires for pollution, after giving up, after being driven away, after
-finishing, and making it come to After non-existence." After giving up on
-desire. "I have been separated from doubts", doubts are called doubts: doubts on
-suffering...(slightly omitted) the mind's confusion. "I have been separated from
-doubts and abstained. , Has been abstained, has been separated, has left, has
-been freed, has been separated from the bondage, he lives with the heart of
-separation and limitation." This is to have been separated from all doubts. Or,
-"from thirty-two kinds of beasts Separation, abstinence, abstinence,
-renunciation, renunciation, liberation, and renunciation, he lives with the
-heart of separation and limitation." This is also the separation from doubts."
-After the break, he was free from all doubts.
+pollution... (omitted, see previous sections). "After giving up on the desires",
+"after knowing the desires for things, after giving up on the desires for
+pollution, after giving up, after being driven away, after finishing, and making
+it come to non-existence." After giving up on desire. "I have been separated
+from doubts", doubts are called doubts: doubts on suffering...(omitted).. "I
+have been separated from doubts and abstained, has been abstained, has been
+separated, has left, has been freed, has been separated from the bondage, he
+lives with the heart of separation and limitation." This is to have been
+separated from all doubts. Or, "Separated from thirty-two kinds of beasts,
+abstinence, quashed, renunciation, and liberation, he lives with the heart of
+separation and limitation." This is also the separation from doubts." After the
+break, he was free from all doubts.
 
 "Day and night increase to see the extinguishment of craving": "The craving of
-"Thirst" is the color of craving... (in Chinese) Dhamma craving. Night is called
-night, day is day, day and night watch and increase Looking up, seeing,
-watching, watching, watching, observing the extinction of craving, the
-extinction of greed, the extinction of hatred, the extinction of ignorance, the
-extinction of interest, the extinction of past life, the end of life Extinction,
-the extinction of some, the extinction of reincarnation, the extinction of
-reincarnation." The day and night increase to see the end of craving.
+"thirst"... (omitted). Night is called
+night, day is day, day and night, watch and increase, looking up, seeing,
+watching, observing the extinction of craving, the
+extinction of greed, ...of hatred, ...of ignorance,
+of interest, of past life, of the end of life,
+of reincarnation, of rotation." Day and night, increase to see the end of craving.
 
-Because of that, the Lord said:
-
-"[World Zun: "Wu Bosi!"] Watching the non-have, the thoughtful, relying on "No"
-and let you ride through the storm,
-
-has been freed from doubts after she gave up on her desire, and she has
-increased day and night watching the demise of her craving. "
-
-40. [Venerable U Bosi like this:] Anyone who has become greedy in all desires,
+40. [Venerable Ubosi like this:] Anyone who has left greed in all desires,
     relies on no owner to abandon others,
-
 There is a victor who wants to be liberated and the highest, can he live there
 and become a non-traveler?
 
 "Anyone who has departed from greed in all desires": "In everything", all
 completely, completely in every aspect, without residue, and the whole earth.
-This is the language of pervasiveness, which is "in everything." "On the
-desire", there are two kinds of desires in Cong Song: the desire for things and
-the desire for pollution... (slightly omitted) these are called the desires for
-things... (abbreviated) these are called the desire for pollution. "Anyone who
-has departed from greed in all desires": "Anyone who has departed from greed in
-all desires, has no greed, has abandoned greed, has eliminated greed, has freed
-from greed, has renounced greed, has Those who break greed, those who have been
-suppressed." For those who have departed from greed in all their desires.
+This is the language of pervasiveness, which is "in everything." "Desire",
+...(omitted). "Anyone who has departed from greed in all desires": "Anyone who
+has gone away from greed in all desires, has no greed, has abandoned greed, has
+eliminated greed, has freed from greed, has renounced greed, has broken greed,
+those who have suppressed greed." Those who have departed from greed in all
+their desires.
 
-"[Like this Venerable Wu Bosi]": ""Like this", the continuation of the
-sentence... (abbreviated) "Venerable", [this is] love language... (abbreviated)
-"Wu Bosi", who The name of the Brahmin... (abbreviated) is called." It is
-[Venerable U Bosi like this].
+"[Like this Venerable Ubosi]": ...(omitted).
 
 "Rely on no owner and abandon the others": "The lower six wait until he
-abandons, abandons, after giving up forever, surpasses, crosses, overcomes, and
-becomes a dependent, sticky person who has no place to wait. Those who enter,
-those who fully enter, those who are dyed, those who turn their minds toward
-them." After abandoning others for reliance on no owner.
+abandons, renounces, after giving up forever, surpasses, crosses, overcomes, and
+becomes a dependent (becomes nothing??), sticky person who has no place to wait.
+Those who enter, those who fully enter, those who are dyed, those who turn their
+minds toward them." After abandoning others for reliance on no owner.
 
 "The victors who want to liberate and are at the highest level": "Those who want
-to liberate are called the seven kinds of wanting to wait, and there is nowhere
-to wait for liberation for those who want to wait to be the first and the most
-victorious , The best, the first, the highest, the top, the best, the best, the
-best, the top, the top, the top, the winner of liberation, There is the
-overcomer, the overcomer, the character, the more, the heavy, the one who is the
-object, the harder, the lean, the overwhelming, and the more The winner." It is
-the one who has the highest level of success in liberation.
+to liberate are called the seven kinds of wanting to wait (??), and there is
+nowhere to wait for liberation for those who want to wait to be the first and
+the most victorious, the best, the foremost, the highest, the top, the winner of
+liberation, There is the overcomer, the character, the more, the heavy (??), the
+one who is the object, the harder, the lean, the overwhelming, and the winner."
+It is the one who has the highest level of success in liberation.
 
-"Can he live and stand there and become a non-traveler": ""Can he live and
-stand", questioning of doubt, questioning of perplexity, questioning of doubt,
-questioning of more than one question: "Is that so? Isn't that true? Yes. What
-is it? How is it?" "Can he live and stand". "There", in nowhere."Non-travelers",
-those who do not follow, those who do not shake (Thailand version), those who do
+"Can he dwell there and become a non-traveler": ""Can he dwell",
+questioning of doubt, questioning of perplexity, questioning of confusion,
+more than one question: "Is that so? Isn't that true? What
+is it? How is it?" "Can he dwell". "There", in nowhere. "Non-travelers",
+those who do not follow, those who do not shake (shake??), those who do
 not leave, those who do not disappear, and those who do not return. Or, the one
 who is not infected, the one who does not fall, the one who does not change to
-be foolish, the one who is not defiled. "Because he can live there and become a
+be foolish, the one who is not defiled. "Can he dwell there and become a
 non-traveler?"
 
-Because of that, the brahmin said:
-
-"[Venerable U Bosi like this:] Anyone who has become greedy in all desires,
-relies on no owner to abandon others,
-
-There is a victor who wants to be liberated and the highest, can he live there
-and become a non-traveler? "
-
-41. [World Zun: "Wu Bosi!"] After all those who are greedy in all their desires,
-    rely on no owner to abandon other things,
-
-There is a victor who wants to be liberated and the highest, he can live there
+41. [Blessed One: "Ubosi!"] After going away from greed in all their desires,
+    relying on no owner to abandon other things,
+The victor who wants to be liberated and the highest, he can live there
 and become a non-traveler.
 
-"Anyone who has departed from greed in all desires": "In everything", all
-completely, completely in every aspect, without residue, and the whole earth.
-This is the language of pervasiveness, which is "in everything." "On the
-desire", there are two kinds of desires in Cong Song: the desire for things and
-the desire for pollution... (slightly omitted) these are called the desires for
-things... (abbreviated) these are called the desire for pollution. "Anyone who
-has departed from greed in all desires": "Anyone who has departed from greed in
-all desires, ... (omitted) those who have renounced greed, have suppressed." For
-those who have departed from greed in all desires .
+"Anyone who has departed from greed in all desires":  ...(omitted).
 
-"[World Zun: "Wu Bosi!"]": ""Wu Bosi", the Blessed One called the Brahman by his
-name. "World Zun", this is a respected synonym... That is the World Honored
-One." is [World Honored One: "U Bosi!"]
+"[Blessed One: "Ubosi!"]": ...(omitted).
 
-"Rely on no owner and abandon the others": "The lower six wait until he
-abandons, abandons, after giving up forever, surpasses, crosses, overcomes, and
-becomes a dependent, sticky person who has no place to wait. Those who enter,
-those who fully enter, those who are dyed, those who turn their minds toward
-them." After abandoning others for reliance on no owner.
+"Rely on no owner and abandon the others": ...(omitted).
 
-"The victors who want to liberate and are at the highest level": "Those who want
-to liberate are called the seven kinds of wanting to wait, and there is nowhere
-to wait for liberation for those who want to wait to be the first and the most
-victorious , The best, the first, the highest, the top, the best, the best, the
-best, the top, the top, the top, the winner of liberation, The victor there, the
-victor... (omitted), the victor." It is the victor who wants to liberate and is
-the highest.
+"The victors who want to liberate and are at the highest level": ...(omitted).
 
-"He can live and stand there and become a non-follow": ""He can live and stand",
-he can live and stand for sixty thousand kalpas. "There", in nowhere. "The
-non-follow", the non-follow, The one who does not shake (Thailand version), the
+"He can dwell there and become a non-traveler": ""He can dwell",
+he can live and stand for sixty thousand kalpas. "There", in nowhere. "Non-traveler",
+the non-follower, the one who does not shake (waver??), the
 one who does not leave, the one who does not disappear, the one who does not
 retreat. Or, the one who is not infected, the one who does not fall, the one who
-does not remain ignorant, the one who does not defile." For he can live there.
-Become a non-traveler.
+does not remain ignorant, the one who does not defile." He can dwell there and
+become a non-traveler.
 
-Because of that, the Lord said:
-
-"[World Zun: "Wu Bosi!"] Anyone who has become greedy in all their desires,
-relies on no owner and abandons others,
-
-There is a victor who wants to be liberated and the highest, he can live there
-and become a non-traveler. "
-
-42. [Venerable U Bosi like this:] If he can live there and become a
+42. [Venerable Ubosi like this:] If he can live there and become a
     non-traveler, even for many years, all eyes!
-
-is there he will get cold and become a liberator? Will the consciousness of
+Would he become a liberator (become liberated??)? Will the consciousness of
 people like that die?
+
+---
+checkpoint
+---
 
 "If he can live there and become a non-follow": "If he can live and stand sixty
 thousand kalpas. "There", in nowhere. "The non-follow", the non-follow, the one
@@ -271,17 +188,8 @@ person,"Like that, the setter, the kind, the similar, the rebirth with nowhere.
 "Why would he become cold and liberated just there?" Will the consciousness of
 people like that die?
 
-Because of that, the brahmin said:
-
-"[Venerable U Bosi like this:] If he can live there and become a non-traveler,
-even for many years, all eyes!
-
-is there he will get cold and become a liberator? Will the consciousness of
-people like that die? "
-
-43. [World Zun: "Wu Bosi!"] Like the flame being thrown by the wind, it does not
+43. [Blessed One: "Ubosi!"] Like the flame being thrown by the wind, it does not
     come to the name when it goes to extinction,
-
 Like this, Muni has been freed from the name and body, and he will not come to
 the name when he goes to extinction.
 
@@ -292,9 +200,9 @@ wind, the wind of the golden-winged bird, the wind of the dormitory leaves, the
 wind of the fan. "Tossed by the wind", tossed, tossed, dispersed, and strongly
 dispersed , Hit, eliminate." It is like a flame thrown by the wind.
 
-"[World Zun: "Wu Bosi!"]": ""Wu Bosi", the Blessed One called the Brahman by his
-name. "World Zun", this is a respected synonym... That is the World Honored
-One." is [World Honored One: "U Bosi!"]
+"[Blessed One: "Ubosi!"]": ""Ubosi", the Blessed One called the Brahman by his
+name. "Blessed One", this is a respected synonym... That is the World Honored
+One." is [World Honored One: "Ubosi!"]
 
 "Walk to extinction, it does not come to the name": ""Walk to extinction", to go
 to extinction, make it go to extinction, go to extinction, be extinct, be calmed
@@ -331,7 +239,7 @@ he goes to extinction.
 
 Because of that, the Lord said:
 
-"[World Zun: "Wu Bosi!"] Like a flame thrown by the wind, it does not come to
+"[Blessed One: "Ubosi!"] Like a flame thrown by the wind, it does not come to
 the name when it goes to extinction,
 
 Like this, Muni has been free from the name and body, and he will not come to
@@ -369,7 +277,7 @@ person?
 Ask Muni to explain this thoroughly for me, because like this you are the knower
 of these laws. "
 
-45. [World Zun: "U Bosi!"] It does not exist for the one who has reached
+45. [Blessed One: "Ubosi!"] It does not exist for the one who has reached
     extinction, and what can be said that he does not exist for him,
 
 When all dhamma has been eradicated, all language paths are also eradicated.
@@ -383,9 +291,9 @@ is not known, is not discovered, has been cut off, cut off, calmed down,
 stopped, unable to arise, and fired by wisdom Burning." To measure non-existence
 for those who have reached extinction.
 
-"[World Zun: "Wu Bosi!"]": ""Wu Bosi", the Blessed One called the Brahman by his
-name. "World Zun", this is a respected synonym... That is the World Honored
-One." is [World Honored One: "U Bosi!"]
+"[Blessed One: "Ubosi!"]": ""Ubosi", the Blessed One called the Brahman by his
+name. "Blessed One", this is a respected synonym... That is the World Honored
+One." is [World Honored One: "Ubosi!"]
 
 "What can be said about him does not exist for him": "What can be said about him
 by what greed; what can be said about him by what kind of hatred; what can be
@@ -423,7 +331,7 @@ eradicated.
 
 Because of that, the Lord said:
 
-"[World Zun: "Wu Bosi!"] It does not exist for the one who has reached
+"[Blessed One: "Ubosi!"] It does not exist for the one who has reached
 extinction, and what can be said of him does not exist for him,
 
 When all dhamma has been eradicated, all language paths are also eradicated. "
@@ -432,7 +340,7 @@ At the same time as the verse is over, all those who and Brahmin... (omitted)
 put their palms together to pay respect to the Blessed One, and sit down: "Great
 Virtue! The Blessed One is my teacher, and I am a disciple."
 
-The sixth explanation asked by the Brahmin of U Bosi student [Completed].
+The sixth explanation asked by the Brahmin of Ubosi student [Completed].
 
 
 

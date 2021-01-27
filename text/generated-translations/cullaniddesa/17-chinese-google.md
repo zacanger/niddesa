@@ -53,7 +53,7 @@ impure, my ears are uneasy,
 Don't let me perish dullly on the way, please explain the method I can know,
 here is the separation of birth and aging. "
 
-90. [World Zun: "Pinchia!"] After seeing the annoyed by sex: the unrestrained
+90. [Blessed One: "Pinchia!"] After seeing the annoyed by sex: the unrestrained
     people are "annoyed" by sex,
 
 Binchia! So you become a perpetrator: you should abandon color in order to no
@@ -73,8 +73,8 @@ cause, physical condition, and physical cause. In this way, the person who was
 beaten, killed, injured, and annoyed saw, saw, weighed, judged, separated, and
 clarified. "For after seeing it on the person who was annoyed by sex.
 
-"[World Zun: "Binqiya!"]": ""Binqiya", the Blessed One calls the Brahman by his
-name. "World Zun", this is a respectful synonym... (abbreviated) Anri
+"[Blessed One: "Binqiya!"]": ""Binqiya", the Blessed One calls the Brahman by his
+name. "Blessed One", this is a respectful synonym... (abbreviated) Anri
 (pseudonym) who testifies, That is the World Honored." is [World Honored:
 "Binqiya!"].
 
@@ -132,7 +132,7 @@ sake of no more.
 
 Because of that, the Lord said:
 
-"[World Zun: "Pinchia!"] After seeing those who were annoyed by sex: People who
+"[Blessed One: "Pinchia!"] After seeing those who were annoyed by sex: People who
 are free are "annoyed" by sex,
 
 Binchia! So you become a perpetrator: you should abandon color in order to no
@@ -180,7 +180,7 @@ There is nothing in the world, you have not seen, heard or knew,
 Please explain the method that I can know, where there is a break between birth
 and aging. "
 
-92. [World Zun: "Penchia!"] Watching people who fall into thirsty, being
+92. [Blessed One: "Penchia!"] Watching people who fall into thirsty, being
     tortured and annoyed by aging,
 
 Binchia! Therefore you become the one who does not let go: you should give up
@@ -194,8 +194,8 @@ conquered, and whose hearts are plundered by craving. "People" are synonymous
 with beings. "Watching", watching, seeing Watching, watching, watching, and
 observing." To watch people who are falling into love.
 
-"[World Zun: "Binqiya!"]": ""Binqiya", the Blessed One calls the Brahman by his
-name. "World Zun", this is a respectful synonym... (abbreviated) Anri
+"[Blessed One: "Binqiya!"]": ""Binqiya", the Blessed One calls the Brahman by his
+name. "Blessed One", this is a respectful synonym... (abbreviated) Anri
 (pseudonym) who testifies, That is the World Honored." is [World Honored:
 "Binqiya!"].
 
@@ -233,7 +233,7 @@ non-existence, will cease "Because we should give up thirst for love no longer.
 
 Because of that, the Lord said:
 
-"[World Zun: "Pinchia!"] Watching people who fall in love, being tortured and
+"[Blessed One: "Pinchia!"] Watching people who fall in love, being tortured and
 annoyed by aging,
 
 Binchia! Therefore you become the one who does not let go: you should give up

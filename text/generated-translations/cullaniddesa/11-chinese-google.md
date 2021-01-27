@@ -152,7 +152,7 @@ To those tortured by aging and death, dear sir! Please tell me about the island,
 Please tell me about Zhoudao, according to which there will be no more
 follow-ups. "
 
-62. [World Zun: "Ge Bo!"] To those standing in the flow, when the great terror
+62. [Blessed One: "Ge Bo!"] To those standing in the flow, when the great terror
     exposure flow was raised,
 
 To those tortured by aging and death, Ge Bo! I will tell you about the island.
@@ -170,7 +170,7 @@ unknown? ...... (Omitted) This is the end of reincarnation. Just in the middle
 of samsara, sentient beings are abided, stopped, stuck, entered, stained, and
 turned their hearts toward them. "For those who are standing in the flow.
 
-"[World Zun: "Ge Bo!"]": """Ge Bo", the world-zun called the Brahman by his
+"[Blessed One: "Ge Bo!"]": """Ge Bo", the world-zun called the Brahman by his
 name. "World-zun", this is a respectful synonym... (abbreviated) Anli
 (pseudonym) who testified, that is, the world-zun." is [世尊: "Ge wave!"]
 
@@ -194,7 +194,7 @@ refuge, Where to go, where to go." For Ge Bo! I will tell you about the island.
 
 Because of that, the Lord said:
 
-"[World Zun: "Ge Bo!"] To those standing in the flow, when the great terror
+"[Blessed One: "Ge Bo!"] To those standing in the flow, when the great terror
 exposure is raised,
 
 To those tortured by aging and death, Ge Bo! I will tell you about the island. "

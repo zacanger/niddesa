@@ -28,7 +28,7 @@
        The former and the latter have never seen each other. "
      This is because natural (self-taste) limited life is less.
 In addition, comparing the lives of the four kings, Tiantianshen, life is less for humans, life is insignificant, life is only a few, life is instant, life is rapid, life is short, life is not a long time Yes, the fate is to live soon, the thirty-three heavenly gods...(omitted) Yematian gods...dust-day gods...transformed into the happy heaven gods...he transformed into the heavenly gods...compared to the life of the Brahma gods, to people Life is small, life is insignificant, life is only a few, life is instant, life is fast, life is short, life is long, and life is short-lived.
-     This was said by the World Zun:
+     This was said by the Blessed One:
     "Monks! The life span of human beings is short, and they will come to life. Smart people should be awakened, they should be good, and they should practice Brahman. All living are dead, monks! Anyone who lives elder, he has a hundred years or more. "
     "People's life span is short, and good people should contempt it,
        should be alive and burned, [because] there is no death to come. [SN.4.9]
