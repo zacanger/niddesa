@@ -1,4 +1,4 @@
-8. Explanation of Bosol Sutra
+8. Explanation of Bosol Sutta
     Secondly, Bosol's explanation will say:
     59. They told: "Here is purity." They said that there is no purity in other methods.
        When it is declared that everything that rests there is pure, all are fixed in their respective truths.
@@ -107,7 +107,7 @@ Those wise Kshatriya, wise Brahmins, wise homeowners, wise Shamen, wise dissiden
      Because of that, the Lord said:
      "You are coming again in meditation, you only see evil with your heart,
       When you meet the Washer, you will definitely not be able to move forward. "
-     The eighth explanation of Bosol Sutra [completed].
+     The eighth explanation of Bosol Sutta [completed].
 
 
 Summary:

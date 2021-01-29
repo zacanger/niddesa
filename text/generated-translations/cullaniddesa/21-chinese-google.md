@@ -565,7 +565,7 @@ Summary:
    heart with variety: desire = terror, bitterness (MA.99 Kuyin meridian),
    disease, tumor, piercing arrow, dyeing, quagmire, maternal fetus.
 
-3. Don't be happy to party (MA.191 Great Sky Sutra).
+3. Don't be happy to party (MA.191 Great Sky Sutta).
 
 4. Those who walk alone like rhinoceros horns must be able to tolerate cold, heat,
    thirst, and wind-sun-fly snakes.

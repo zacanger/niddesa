@@ -2,7 +2,7 @@
 - Great Direction
 - Attakawaggo
 
-# 1. Kama Sutra Recommendation
+# 1. Kama Sutta Recommendation
 
 Namo Tassa Bhagavatho Arahatho Sammasambuddhassa
 

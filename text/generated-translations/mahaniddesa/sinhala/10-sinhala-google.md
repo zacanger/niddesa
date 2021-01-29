@@ -500,7 +500,7 @@ The softening of the powers, the softening of the Bodhisattvas, the softening of
 If the fit is sharp. "Understanding" means three geniuses.
 Peripheral genius, Paripucca genius, supreme genius
 That is. Who has the peripheral genius, to some person here
-(ii) Sutra, Geyya, Grammar, Stanza, Udanaya, Ithivuttaka, Jathaka;
+(ii) Sutta, Geyya, Grammar, Stanza, Udanaya, Ithivuttaka, Jathaka;
 The knowledge of the Dhammas of Abhuta Dhamma and Wedallaya is innate. to him
 Understands from the association of sufficiency. This is the understanding of sufficiency. Paripuchcha Pratibhana
 What, some person here, in selfishness, in cognition, in character,

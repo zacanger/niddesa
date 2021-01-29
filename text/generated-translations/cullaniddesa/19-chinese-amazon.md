@@ -214,7 +214,7 @@ suffering.
 name, equivalent to the name, the real equivalent of the name of the person, the
 incarnation, the death of the worldly, Bishop worldman, Jieu Lou Sun Zun, Ju
 Na-han Worldom, Kaye Worldom, those Buddha, Worldom is the same name, equal to
-the name, Shakyamuni Worldworld also belongs to those Buddha, Worldest is the
+the name, Sakyamuni Worldworld also belongs to those Buddha, Worldest is the
 same name, equal to the name. So Buddha is the real name.
 
 "Brahmen! "I serve": "The Worldman was relied upon by me, served, worshipped,
@@ -1026,26 +1026,3 @@ matter where they may be,
 
 Indeed, I will go, and there is no doubt here for me, so please remember me as a
 winner."
-
-Explanation of Eighteenth [Completed] on the Eighteenth of the Coast Road.
-
-Completed on the other side road products.
-
-
-
-Excerpt:
-
-1. the law taught by Worldmaster is directly visible, instant, and other
-   teachers teach law are rumors, theories increase.
-
-2. Believe in the love of the pedestrian: I saw him like my eyes, day and night,
-   and I spend the night in the salute. Whosoever walks in the direction of the
-   wide-wise, I salute him in that direction, and my will be united with him.
-
-3. Nibbana: thirsty love extinction, no disaster, can not be moved, can not be
-   shaken, that is all line, all according to the judgment, away from greed,
-   extinction, for that no matter where there is no metaphor vs. Nibbana is
-   constant, sturdy, eternal, immutable ⇒ Take the first step towards my net.
-
-11/12/2020 06:05
-

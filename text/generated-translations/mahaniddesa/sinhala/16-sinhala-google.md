@@ -2,7 +2,7 @@
 - Great Direction
 - Attakawaggo
 
-# 16. Shariputra Sutra Recommendation
+# 16. Shariputra Sutta Recommendation
 
 [Msdiv 190] (# msdiv190) # msdiv190 .ref .msdiv} (16 - 1)
 

@@ -70,7 +70,7 @@ It does not shine, it does not feel, it does not appear.
 That is lust. (ii) whether there is any lust, affection or application accordingly;
 If there is lust like a rope, if there is a strong desire in the heart, lust, lust,
 Incontinence, Fertility, Infertility, Infertility, Infertility, Infertility, Infertility, Infertility
-Jaliniya, Pattika, Sutra, Visata, Ayuhaniya, Dutiya Panidhiya, Bhavanettiya,
+Jaliniya, Pattika, Sutta, Visata, Ayuhaniya, Dutiya Panidhiya, Bhavanettiya,
 The forest, the forest, the panda, the laughter, the bonded desire, the hope, the hope,
 Rupasava Phonology, Gandhasava, Rasasava SpGreed, profit, wealth,
 Soul, Life, Jappa, Pajappa, Abhijappa, Japna, Jappitabava, Loluppaya

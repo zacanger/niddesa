@@ -183,7 +183,7 @@ Hypnosis "means lust, attachment, greed,
 That's the decent thing to do, and it should end there. "Loyalty" means that some person here is looking for an image
 Receives image. This is where the image ends. Sound-smell-taste touches caste, genus,
 Accommodation, Profit, Fame, Praise, Satyagraha Chivara, Pindapathaya, Senasana,
-Ambulance Medicine, Sutra, Discipline, Abhidharma, Arangikanga,
+Ambulance Medicine, Sutta, Discipline, Abhidharma, Arangikanga,
 Pindapathikanga, Panshukulikanga, Thechivarikanga, Sapadanacharikanga,
 Khalupachchabhattikangaya, Nesajjikangaya, Yathasanthatikangaya, Prathamadhyana,
 Secondary Meditation, Tertiary Meditation, Fourth Meditation, End of Akashananchayatana,
