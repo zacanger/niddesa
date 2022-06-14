@@ -109,7 +109,7 @@ initially using [this project](https://github.com/wikiti/pandoc-book-template)
 (MIT licensed) as a template. The typeface is
 [Cardo](https://www.fontsquirrel.com/fonts/cardo) (SIL v1.10 licensed). The
 project itself is managed using [Git](https://git-scm.com). Original code used
-in this project is licensed LGPL-3.0.
+in this project is licensed MIT.
 
 ### License
 
