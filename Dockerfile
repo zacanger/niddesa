@@ -1,4 +1,4 @@
-FROM pandoc/ubuntu-latex:2.11.1
+FROM pandoc/latex:2.18-ubuntu
 RUN apt-get update \
     && apt-get install -y fonts-cardo \
         make

@@ -14,28 +14,58 @@
     </head>
     <body>
         <h1 id="niddesa">Niddesa</h1>
-        <p><a href="https://zacanger.com/niddesa/assets/niddesa.html">Read Online</a> · <a href="https://zacanger.com/niddesa/assets/niddesa.pdf">PDF</a> · <a href="https://zacanger.com/niddesa/assets/niddesa.epub">EPUB</a> · <a href="https://github.com/zacanger/niddesa">Repository</a></p>
-        <p><a href="https://paypal.me/zacanger"><img src="https://img.shields.io/badge/paypal-donate-yellow.png" alt="Support with PayPal" /></a> <a href="https://www.patreon.com/zacanger"><img src="https://img.shields.io/badge/patreon-donate-yellow.svg" alt="Patreon" /></a> <a href="https://ko-fi.com/U7U2110VB"><img src="https://img.shields.io/badge/donate-KoFi-yellow.svg" alt="ko-fi" /></a></p>
-        <p>I recommend downloading the PDF or EPUB files, as the HTML is quite large and may bog down your browser.</p>
+        <p><a
+        href="https://zacanger.com/niddesa/assets/niddesa.html">Read
+        Online</a> · <a
+        href="https://zacanger.com/niddesa/assets/niddesa.pdf">PDF</a> ·
+        <a
+        href="https://zacanger.com/niddesa/assets/niddesa.epub">EPUB</a>
+        · <a
+        href="https://github.com/zacanger/niddesa">Repository</a></p>
+        <p><a href="https://paypal.me/zacanger"><img
+        src="https://img.shields.io/badge/paypal-donate-yellow.png"
+        alt="Support with PayPal" /></a> <a
+        href="https://www.patreon.com/zacanger"><img
+        src="https://img.shields.io/badge/patreon-donate-yellow.svg"
+        alt="Patreon" /></a> <a href="https://ko-fi.com/U7U2110VB"><img
+        src="https://img.shields.io/badge/donate-KoFi-yellow.svg"
+        alt="ko-fi" /></a></p>
+        <p>I recommend downloading the PDF or EPUB files, as the HTML is
+        quite large and may bog down your browser.</p>
         <h2 id="about">About</h2>
         <p>See ./book/00-introduction.md in the repo.</p>
         <h3 id="the-text">The Text</h3>
-        <p>The auto-generated translations were done using Google and Amazon's translation services. The Yandex and IBM Watson translations were terrible, not worth trying to use.</p>
-        <p>The ./book directory in the repo contains the contents. If you find a problem or want to help, please feel free to <a href="https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc">submit an issue</a>.</p>
+        <p>The auto-generated translations were done using Google and
+        Amazon's translation services. The Yandex and IBM Watson
+        translations were terrible, not worth trying to use.</p>
+        <p>The ./book directory in the repo contains the contents. If
+        you find a problem or want to help, please feel free to <a
+        href="https://github.com/zacanger/niddesa/issues?q=is%3Aissue+is%3Aopen+sort%3Aupdated-desc">submit
+        an issue</a>.</p>
         <h3 id="the-code">The Code</h3>
-        <p>The initial translation code is in <a href="https://github.com/zacanger/translate-batches">this repo</a>. To build the book, run <code>./build.sh</code>. You will need Docker.</p>
-        <p>To release a new edition, update the introduction and create a tag along with a versioning commit. Example:</p>
+        <p>The initial translation code is in <a
+        href="https://github.com/zacanger/translate-batches">this
+        repo</a>. To build the book, run <code>./build.sh</code>. You
+        will need Docker.</p>
+        <p>To release a new edition, update the introduction and create
+        a tag along with a versioning commit. Example:</p>
         <pre><code>git commit --allow-empty -am v2 &amp;&amp; \
-          git tag -m v2 -a v2 &amp;&amp; \
-          git push origin master --follow-tags</code></pre>
+  git tag -m v2 -a v2 &amp;&amp; \
+  git push origin master --follow-tags</code></pre>
         <h2 id="todo">TODO</h2>
         <p>Possible v2 work:</p>
         <ul>
-        <li>Go back and compare section by section with the Pali (See tipitaka.org and sutta-central) and with the Paramatthajotikā</li>
-        <li>Get someone else to proofread/edit to pick up anything I missed</li>
-        <li>Fill in <code>omitted, see previous sections</code> bits</li>
+        <li>Go back and compare section by section with the Pali (See
+        tipitaka.org and sutta-central) and with the
+        Paramatthajotikā</li>
+        <li>Get someone else to proofread/edit to pick up anything I
+        missed</li>
+        <li>Fill in <code>omitted, see previous sections</code>
+        bits</li>
         </ul>
         <h2 id="licensing">Licensing</h2>
-        <p>For code in this repo, see LICENSE.md. For the output text, credits and other licenses on the source material, see the notes in the introduction file.</p>
+        <p>For code in this repo, see LICENSE.md. For the output text,
+        credits and other licenses on the source material, see the notes
+        in the introduction file.</p>
     </body>
 </html>
