@@ -33,8 +33,11 @@ HTML_DEPENDENCIES = $(BASE_DEPENDENCIES)
 PDF_DEPENDENCIES = $(BASE_DEPENDENCIES)
 
 # Basic targets
+.PHONY: all
 all:	book site
+.PHONY: book
 book:	epub html pdf
+.PHONY: clean
 clean:
 	rm -rf $(BUILD)
 	rm -f index.html
@@ -43,8 +46,11 @@ site:
 	pandoc -f gfm README.md -s -t html5 --template=templates/index.html -o index.html
 
 # Builders
+.PHONY: epub
 epub:	$(BUILD)/$(OUTPUT_FILENAME).epub
+.PHONY: html
 html:	$(BUILD)/$(OUTPUT_FILENAME).html
+.PHONY: pdf
 pdf:	$(BUILD)/$(OUTPUT_FILENAME).pdf
 
 $(BUILD)/$(OUTPUT_FILENAME).epub:	$(EPUB_DEPENDENCIES)
