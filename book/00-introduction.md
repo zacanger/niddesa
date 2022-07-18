@@ -113,16 +113,14 @@ in this project is licensed MIT.
 
 ### License
 
-This translation is licensed under the [Creative Commons
-Attribution-NonCommercial-ShareAlike 4.0
-International](https://creativecommons.org/licenses/by-nc-sa/4.0/) license. This
-means you are free to copy and redistribute this work, as well as make changes,
-as long as you provide attribution (give credit back to this work) and share
-your changes under the same license. It would be preferable to always link back
-to [the source](https://github.com/zacanger/niddesa) rather than distributing
-your own copies which may get out of date, as this translation is a living work
-which will see regular updates and corrections. Under this license you may not
-use this translation for commercial purposes (you can't sell it). See the link
-for the full version of the license.
+This translation is licensed under the [Attribution-NonCommercial 4.0
+International (CC BY-NC 4.0)](https://creativecommons.org/licenses/by-nc/4.0/)
+license. This means you are free to copy and redistribute this work, as well as
+make changes, as long as you provide attribution for this translation. Under
+this license you _may not_ use this translation for commercial purposes (you
+can't sell it). See the link for the full version of the license. I recommend
+linking to [the source](https://github.com/zacanger/niddesa) here rather than
+distributing your own copies, or at least keeping an eye on this version,
+because I do plan to publish updates and corrections.
 
 \newpage
