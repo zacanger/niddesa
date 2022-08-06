@@ -35,6 +35,10 @@ Pāli, with some occasional help from the translation from the Sinhala. There
 will likely be many errors, inaccuracies, and inconsistencies in this early
 version, but it will improve with time.
 
+**Important note**: To be very clear, I do not know Pāli or Sinhala _at all_,
+and only know a few words in Mandarin. At least 80% of v1 of this translation
+was done by computers.
+
 This translation prefers Pāli over Sanskrit terms (dhamma vs. dharma, kamma vs.
 karma, etc.). If you're used to the Sanskrit terms — to paraphrase Engels,
 changing the words we use a bit won't change the things themselves. The Chinese
