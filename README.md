@@ -41,6 +41,15 @@ git commit --allow-empty -am v2 && \
   git push origin master --follow-tags
 ```
 
+### TODO
+
+Possible future work
+
+* Actually learn Pāli? Or get someone who knows it to check against the sources.
+* Compare with the Paramatthajotikā to find possible errors in translation.
+* Distribute to relevant websites.
+* Set up some system so people can order print versions if they want.
+
 ## Licensing
 
 For code in this repo, see LICENSE.md.
