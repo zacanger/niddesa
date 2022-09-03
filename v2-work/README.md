@@ -10,3 +10,4 @@ itself, and incorporating corrections from the auto-translated stuff from Thai.
 * Go back through, line by line, comparing against each of these new versions
 * Add line/verse numbers back in, maybe? (See note in introduction)
 * Fill in `omitted, see previous` bits
+* Update zacanger.github.io/sitemap.sh when done
