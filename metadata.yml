@@ -1,7 +1,10 @@
 ---
 title: Niddesa
-rights: CC BY-NC 4.0
+rights: CC0 1.0
 lang: en-US
 tags: [buddhism, niddesa, tipitaka, pali, canon, theravada]
 mainfont: Cardo
+author:
+    - Sāriputta
+    - Zac Anger # TODO: is there a way to make this a 'translator' field?
 ---

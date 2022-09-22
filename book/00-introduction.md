@@ -23,20 +23,19 @@ casual reader.
 
 ## About This Translation
 
-There has never been a complete English language translation before. After
-asking around online, I got [an
-answer](https://buddhism.stackexchange.com/a/43712/19522) that pointed me to a
-Sinhala translation; I also later found a Chinese translation. Not knowing
-Sinhala or Chinese, I automated translations using a bit of code, and took these
-translations and wrangled them into this edition. As the work progressed I
-referenced Pāli Romanizations more and more, with the help of some dictionaries,
-so this translation is a combination of the translation from the Chinese and
-Pāli, with some occasional help from the translation from the Sinhala. In the
-second major version I repeated the process with translations from Thai.
+This is the first complete English language translation. After asking around
+online, I got [an answer](https://buddhism.stackexchange.com/a/43712/19522) that
+pointed me to a Sinhala translation; I also later found a Chinese translation.
+Not knowing Sinhala or Chinese, I automated translations using a bit of code,
+and took these translations and wrangled them into the first edition. As the
+work progressed I referenced Pāli Romanizations more and more, with the help of
+some dictionaries. For the second edition I re-translated from the Chinese and
+two Thai translations.
 
-**Important note**: To be very clear, I do not know Pāli or Sinhala _at all_,
-and only know a few words in Mandarin. At least 70% of this translation was done
-by computers.
+**Important note**: To be very clear, I do not know Pāli _at all_, nor do I know
+Sinhala or Thai, and I know a few words in Mandarin. At least 70% of this
+translation was done by computers. The bulk of my work has been rectifying these
+various machine translations with the help of dictionaries.
 
 This translation prefers Pāli over Sanskrit terms (dhamma vs. dharma, kamma vs.
 karma, etc.). If you're used to the Sanskrit terms — to paraphrase Engels,
@@ -52,14 +51,10 @@ since _dhamma_ could refer to a method, the Method, a fact, anything that
 exists, the Truth, a law, the Law, etc.; hopefully I haven't made too many
 mistakes here.
 
-The Niddesa uses the same lists of synonyms and similes to explain similar or
-identical phrases and passages, sometimes several times within the same chapter.
-For readability, I have omitted some stock passages which are repeated verbatim,
-as well as concluding sentences of each paragraph when they simply repeat the
-first sentence, and concluding repetitions after the explanation of each verse.
-Without these omissions, the book would be at least twice as long as it is now.
-Because of this, it makes more sense to read the translation from start to
-finish rather than referencing specific suttas out of order.
+For readability, I have omitted concluding sentences of each paragraph when they
+simply repeat the first sentence, and concluding repetitions after the
+explanation of each verse. I have also omitted some repetitions of lists within
+the same chapter, indicated by ellipses or an "(omitted)" in the text.
 
 Included verse numbers are numbers of the verses as presented in the two parts
 of the Niddesa itself. Including separate verse numbers for each sutta, their
@@ -75,8 +70,8 @@ clarifications, and marks of unclear passages in parentheses.
 
 ### Publication History
 
-* Version 2, October 2022: Major revision based on computer translation from
-    Thai.
+* Version 2, October 2022: Major revision based on new computer translations.
+    License change to CC0/Public Domain. Expanded previously omitted sections.
 * Version 1, January 2021: Initial version based primarily on computer
     translation from Chinese.
 
@@ -120,14 +115,9 @@ in this project is licensed MIT.
 
 ### License
 
-This translation is licensed under the [Attribution-NonCommercial 4.0
-International (CC BY-NC 4.0)](https://creativecommons.org/licenses/by-nc/4.0/)
-license. This means you are free to copy and redistribute this work, as well as
-make changes, as long as you provide attribution for this translation. Under
-this license you _may not_ use this translation for commercial purposes (you
-can't sell it). See the link for the full version of the license. I recommend
-linking to [the source](https://github.com/zacanger/niddesa) here rather than
-distributing your own copies, or at least keeping an eye on this version,
-because I do plan to publish updates and corrections.
+To the extent possible under law, I have waived all copyright and related or
+neighboring rights to this translation. This work is published from the United
+States. See [this link](https://creativecommons.org/publicdomain/zero/1.0/) for
+details.
 
 \newpage
