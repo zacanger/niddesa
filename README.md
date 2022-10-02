@@ -43,12 +43,10 @@ git commit --allow-empty -am v2 && \
 
 ### TODO
 
-Possible future work
+Possible V3 work
 
-* Actually learn Pāli? Or get someone who knows it to check against the sources.
-* Compare with the Paramatthajotikā to find possible errors in translation.
-* Distribute to relevant websites.
-* Set up some system so people can order print versions if they want.
+* Compare with the Paramatthajotikā
+* Compare with Thai editions
 
 ## Licensing
 
