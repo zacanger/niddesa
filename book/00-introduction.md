@@ -119,7 +119,8 @@ in this project is licensed MIT.
 
 To the extent possible under law, I have waived all copyright and related or
 neighboring rights to this translation. This work is published from the United
-States. See [this link](https://creativecommons.org/publicdomain/zero/1.0/) for
-details.
+States. You are free to copy and redistribute this translation. The canonical
+version is in [this Git repository](https://github.com/zacanger). See [this
+link](https://creativecommons.org/publicdomain/zero/1.0/) for details.
 
 \newpage
