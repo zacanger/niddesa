@@ -32,12 +32,12 @@ Not knowing Sinhala or Chinese, I automated translations using a bit of code,
 and took these translations and wrangled them into the first edition. As the
 work progressed I referenced Pāli Romanizations more and more, with the help of
 some dictionaries. For the second edition I re-translated from the Chinese and
-two Thai translations.
+fixed and expanded many passages.
 
 **Important note**: To be very clear, I do not know Pāli _at all_, nor do I know
-Sinhala or Thai, and I know a few words in Mandarin. At least 70% of this
-translation was done by computers. The bulk of my work has been rectifying these
-various machine translations with the help of dictionaries.
+Sinhala, and I know a few words in Mandarin. At least 70% of this translation
+was done by computers. The bulk of my work has been rectifying these various
+machine translations with the help of dictionaries.
 
 This translation prefers Pāli over Sanskrit terms (dhamma vs. dharma, kamma vs.
 karma, etc.). If you're used to the Sanskrit terms — to paraphrase Engels,
@@ -93,10 +93,7 @@ by A. P. de Zoyza and hosted by [Sutta
 Central](https://github.com/suttacentral/sc-data/tree/5c060c479f4cb17a0891011d57d4933c81918ead/html_text/si/pli/sutta/kn).
 Two Romanizations of the Pāli were used, one from [Sutta
 Central](https://github.com/suttacentral/legacy-suttacentral-data/tree/384ab0b63a521946cddb343319ac6c325dd2fb27/text/pi/su/kn)
-and one from [Tipitaka.org](https://tipitaka.org/). The Thai text was made
-available by [Yanyong
-Kunok](https://github.com/noomdatayoung/tipitakathaiunicode) and
-[Sariputta.com](https://www.sariputta.com/tipitaka/thai).
+and one from [Tipitaka.org](https://tipitaka.org/).
 
 In addition, the translations of the Sutta Nipāta by Viggo Fausböll and Bhikkhu
 Bodhi have been valuable references (if I had known about Bhikkhu Bodhi's
