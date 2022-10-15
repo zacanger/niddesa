@@ -53,6 +53,11 @@ since _dhamma_ could refer to a method, the Method, a fact, anything that
 exists, the Truth, a law, the Law, etc.; hopefully I haven't made too many
 mistakes here.
 
+The translator also chose to use gender-neutral language in version two. All
+genders are capable of reaching Nibbāna, and while the original text used almost
+exclusively masculine pronouns, this minor change does not affect the meaning of
+any passages and may make the text slightly more inclusive.
+
 For readability, I have omitted concluding sentences of each paragraph when they
 simply repeat the first sentence, and concluding repetitions after the
 explanation of each verse. I have also omitted some repetitions of lists within

@@ -36,7 +36,7 @@ of Buddhism_.
 * **kappa**: Kalpa; an aeon or world-cycle
 * **khattiya**: The warrior caste
 * **mahā**: Great, greater
-* **manu**: Vedic (Hindu) concept of the first man
+* **manu**: Vedic (Hindu) concept of the first person
 * **muni**: A monk or sage
 * **indā**: The Vedic god Indra, king of devas
 * **māra**: The personification of temptation and death; the devil
