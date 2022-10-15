@@ -1,8 +1,6 @@
 # V2 TODO
 
-* Update zacanger.github.io/sitemap.sh when done
+* Finish section expansion (see ./find-sections.sh)
 * Get into format for sutta central/bilara
-* he -> they
-* his -> their
-* man -> person
-* him -> them
+* Finish de-gendering (see ./find-words.sh)
+* Update zacanger.github.io/sitemap.sh when done
