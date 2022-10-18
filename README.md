@@ -41,13 +41,12 @@ git commit --allow-empty -am v2 && \
   git push origin master --follow-tags
 ```
 
-## TODO
+### TODO
 
-Possible v2 work:
-* Go back and compare section by section with the Pali (See tipitaka.org and
-    sutta-central) and with the Paramatthajotikā
-* Get someone else to proofread/edit to pick up anything I missed
-* Fill in `omitted, see previous sections` bits
+Possible V3 work
+
+* Compare with the Paramatthajotikā
+* Compare with Thai editions
 
 ## Licensing
 
