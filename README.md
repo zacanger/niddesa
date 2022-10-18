@@ -41,10 +41,9 @@ git commit --allow-empty -am v2 && \
   git push origin master --follow-tags
 ```
 
-### TODO
+### TODO (v3?)
 
-Possible V3 work
-
+* Redistribute to tipitika wikia
 * Compare with the Paramatthajotikā
 * Compare with Thai editions
 
