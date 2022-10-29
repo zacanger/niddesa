@@ -1,0 +1,14 @@
+This branch (feat/pub) is specifically for prepping for publication on
+suttacentral.net's Bilara system. I'm 90% sure I can automate building files in
+the correct format rather than doing it manually, which is definitely desirable
+considering I also plan on doing an in-depth revision sometime in 2023 based on
+the Thai versions.
+
+The repo to submit the data is at https://github.com/suttacentral/bilara-data
+
+Note: as part of this revision I'll need to get rid of inline comments, expand
+all remaining omitted sections, and most importantly, organize things to align
+with the root texts in that repo. When it's ready, also see the _*.json files in
+the repo, I think I'll need to get some data into one or more of those.
+
+Reference for line organzation: https://github.com/suttacentral/bilara-data/tree/published/root/pli/ms/sutta/kn
