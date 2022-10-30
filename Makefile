@@ -34,7 +34,7 @@ PDF_DEPENDENCIES = $(BASE_DEPENDENCIES)
 
 # Basic targets
 .PHONY: all
-all:	book site
+all:	book site bilara
 .PHONY: book
 book:	epub html pdf
 .PHONY: clean
@@ -44,6 +44,9 @@ clean:
 
 site:
 	pandoc -f gfm README.md -s -t html5 --template=templates/index.html -o index.html
+
+bilara:
+	node bilara-scripts/convert.js
 
 # Builders
 .PHONY: epub

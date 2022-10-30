@@ -10,23 +10,64 @@ const mndPath = path.resolve(bookPath, 'mnd')
 const filesPer = (where) =>
   fs.readdirSync(where).map((p) => path.resolve(where, p))
 
-const pathToKey = (fullPath) => {
+const pathToBookAndChapter = (fullPath) => {
   const parts = fullPath.split('/')
   const relevant = parts.slice(-2)
-  const book = relevant[0]
-  const chapter = parseInt(relevant[1].replace('.md', ''), 10)
+  return {
+    book: relevant[0],
+    chapter: parseInt(relevant[1].replace('.md', ''), 10)
+  }
+}
+
+const pathToKey = (fullPath) => {
+  const { book, chapter } = pathToBookAndChapter(fullPath)
   return `${book}${chapter}_translation-en-anger.json`
 }
 
-// TODO here is where things need to get converted to the right format
-// need map each line correctly in the source
-// then number the keys (see readme.txt in this directory
-// also strip markdown formatting
-// then stringify each line)
+const contentsToJson = (textContent, pathInfo) => {
+  let verseCounter = 0
+  const { book, chapter } = pathToBookAndChapter(pathInfo)
+  const verses = textContent.split('\n\n')
+
+  return verses.reduce((prev, c) => {
+    let curr = c.trim()
+    let lineCounter = 1
+
+    if (curr.startsWith('>')) {
+      curr = curr.split('\n').map((x) => {
+        const cleaned = curr.replace(/^>/, '').trim()
+        return `<em>${cleaned}</em>`
+      }).join('\n')
+    }
+
+    const lines = curr.split('\n')
+
+    lines.forEach((l) => {
+      if (l === '\\newpage' || l === '---' || l.trim() === '') {
+        return
+      }
+
+      const key = `${book}${chapter}:${verseCounter}.${lineCounter}`
+      const line = l
+        .replace(/^#+/, '')
+        .replace('&middot;', ':')
+        .replace('  ', ' ')
+        .trim()
+
+      prev[key] = line
+      lineCounter++
+    })
+
+    // TODO: bug here because of sorting out <hr> tags
+    verseCounter++
+    return prev
+  }, {})
+}
+
 const chaptersPer = (files) =>
   files.reduce((p, c) => {
     const contents = fs.readFileSync(c, 'utf8')
-    p[pathToKey(c)] = contents
+    p[pathToKey(c)] = contentsToJson(contents, c)
     return p
   }, {})
 
@@ -45,7 +86,7 @@ fs.mkdirSync(cndDest)
 
 const createFiles = (which, dir) => {
   Object.keys(which).forEach((k) => {
-    fs.writeFileSync(path.resolve(dir, k), which[k])
+    fs.writeFileSync(path.resolve(dir, k), JSON.stringify(which[k], null, 2))
   })
 }
 
