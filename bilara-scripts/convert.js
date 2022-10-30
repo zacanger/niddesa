@@ -44,6 +44,7 @@ const contentsToJson = (textContent, pathInfo) => {
 
     lines.forEach((l) => {
       if (l === '\\newpage' || l === '---' || l.trim() === '') {
+        verseCounter--
         return
       }
 
@@ -58,7 +59,6 @@ const contentsToJson = (textContent, pathInfo) => {
       lineCounter++
     })
 
-    // TODO: bug here because of sorting out <hr> tags
     verseCounter++
     return prev
   }, {})
