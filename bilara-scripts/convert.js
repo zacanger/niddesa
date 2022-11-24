@@ -86,7 +86,9 @@ fs.mkdirSync(cndDest)
 
 const createFiles = (which, dir) => {
   Object.keys(which).forEach((k) => {
-    fs.writeFileSync(path.resolve(dir, k), JSON.stringify(which[k], null, 2))
+    const destFile = path.resolve(dir, k)
+    const destData = JSON.stringify(which[k], null, 2) + '\n'
+    fs.writeFileSync(destFile, destData)
   })
 }
 
