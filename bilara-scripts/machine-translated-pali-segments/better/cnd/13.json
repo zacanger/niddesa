@@ -1,0 +1,827 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd13:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavagganiddesa",
+        "translation": "Pārāyanavagganiddesa",
+        "source": "cnd13:0.2_0"
+    },
+    {
+        "source_sentence": "Pucchāniddesa",
+        "translation": "Pucchāniddesa",
+        "source": "cnd13:0.3_0"
+    },
+    {
+        "source_sentence": "9. Todeyyamāṇavapucchāniddesa",
+        "translation": "9. Todeyyamāṇavapucchāniddesa",
+        "source": "cnd13:0.4_0"
+    },
+    {
+        "source_sentence": "**Yasmiṁ kāmā na vasanti,**",
+        "translation": "Sensual pleasures are no more",
+        "source": "cnd13:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā todeyyo)",
+        "translation": "venerable Todeyya",
+        "source": "cnd13:1.2_0"
+    },
+    {
+        "source_sentence": "**Taṇhā yassa na vijjati;**",
+        "translation": "craving is not found in them.",
+        "source": "cnd13:1.3_0"
+    },
+    {
+        "source_sentence": "**Kathaṅkathā ca yo tiṇṇo,**",
+        "translation": "he who crossed beyond doubts,",
+        "source": "cnd13:1.4_0"
+    },
+    {
+        "source_sentence": "**Vimokkho tassa kīdiso. **",
+        "translation": "What kind of liberation is theirs?",
+        "source": "cnd13:1.5_0"
+    },
+    {
+        "source_sentence": "**Yasmiṁ kāmā na vasantī**ti yasmiṁ kāmā na vasanti na saṁvasanti na āvasanti na parivasantīti—",
+        "translation": "Wherever sensual pleasures don’t lead to power, or hope for a new state, they don’t decline,",
+        "source": "cnd13:2.1_0"
+    },
+    {
+        "source_sentence": "yasmiṁ kāmā na vasanti.",
+        "translation": "Sensual pleasures are no more",
+        "source": "cnd13:2.2_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā todeyyo**ti.",
+        "translation": "venerable Todeyya, and others too,",
+        "source": "cnd13:2.3_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi …pe… padānupubbatāpetaṁ—",
+        "translation": "Mindfulness observestigation of principles,",
+        "source": "cnd13:2.4_0"
+    },
+    {
+        "source_sentence": "iccāti.",
+        "translation": "With the intention of making:",
+        "source": "cnd13:2.5_0"
+    },
+    {
+        "source_sentence": "**Āyasmā**ti piyavacanaṁ …pe….",
+        "translation": "Piyaka ...",
+        "source": "cnd13:2.6_0"
+    },
+    {
+        "source_sentence": "**Todeyyo**ti tassa brāhmaṇassa nāmaṁ …pe… abhilāpoti—",
+        "translation": "His name is the same thing,",
+        "source": "cnd13:2.7_0"
+    },
+    {
+        "source_sentence": "iccāyasmā todeyyo.",
+        "translation": "venerable Todeyya",
+        "source": "cnd13:2.8_0"
+    },
+    {
+        "source_sentence": "**Taṇhā yassa na vijjatī**ti taṇhā yassa natthi na atthi na saṁvijjati nupalabbhati ñāṇagginā daḍḍhāti—",
+        "translation": "They’re not found in them, and there is no craving for them.",
+        "source": "cnd13:3.1_0"
+    },
+    {
+        "source_sentence": "taṇhā yassa na vijjati.",
+        "translation": "craving is not found in them.",
+        "source": "cnd13:3.2_0"
+    },
+    {
+        "source_sentence": "**Kathaṅkathā ca yo tiṇṇo**ti kathaṅkathā ca yo tiṇṇo uttiṇṇo nitthiṇṇo atikkanto samatikkanto vītivattoti—",
+        "translation": "He who has crossed over the crossroad, and who has crossed over the threshed over, gone beyond doubt, and uncovered.",
+        "source": "cnd13:4.1_0"
+    },
+    {
+        "source_sentence": "kathaṅkathā ca yo tiṇṇo.",
+        "translation": "he who crossed beyond doubts,",
+        "source": "cnd13:4.2_0"
+    },
+    {
+        "source_sentence": "**Vimokkho tassa kīdiso**ti vimokkho tassa kīdiso kiṁsaṇṭhito kiṁpakāro kiṁpaṭibhāgo icchitabboti vimokkhaṁ pucchatīti—",
+        "translation": "What kind of liberation is your embracing like? What is his liberation? What is his liberation? And what is his emptiness liberation?",
+        "source": "cnd13:5.1_0"
+    },
+    {
+        "source_sentence": "vimokkho tassa kīdiso.",
+        "translation": "What kind of liberation is theirs?",
+        "source": "cnd13:5.2_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "Hence that brahmin thought,",
+        "source": "cnd13:5.3_0"
+    },
+    {
+        "source_sentence": "“Yasmiṁ kāmā na vasanti,",
+        "translation": "“In whom there is no sensual pleasures",
+        "source": "cnd13:6.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā todeyyo)",
+        "translation": "venerable Todeyya",
+        "source": "cnd13:6.2_0"
+    },
+    {
+        "source_sentence": "Taṇhā yassa na vijjati;",
+        "translation": "craving is not found in them.",
+        "source": "cnd13:6.3_0"
+    },
+    {
+        "source_sentence": "Kathaṅkathā ca yo tiṇṇo,",
+        "translation": "he who crossed beyond doubts,",
+        "source": "cnd13:6.4_0"
+    },
+    {
+        "source_sentence": "Vimokkho tassa kīdiso”ti.",
+        "translation": "What kind of liberation is it?”",
+        "source": "cnd13:6.5_0"
+    },
+    {
+        "source_sentence": "**Yasmiṁ kāmā na vasanti,**",
+        "translation": "Sensual pleasures are no more",
+        "source": "cnd13:7.1_0"
+    },
+    {
+        "source_sentence": "(todeyyāti bhagavā)",
+        "translation": "Toraṇavatthu:",
+        "source": "cnd13:7.2_0"
+    },
+    {
+        "source_sentence": "**Taṇhā yassa na vijjati;**",
+        "translation": "craving is not found in them.",
+        "source": "cnd13:7.3_0"
+    },
+    {
+        "source_sentence": "**Kathaṅkathā ca yo tiṇṇo,**",
+        "translation": "he who crossed beyond doubts,",
+        "source": "cnd13:7.4_0"
+    },
+    {
+        "source_sentence": "**Vimokkho tassa nāparo. **",
+        "translation": "there is no liberation.",
+        "source": "cnd13:7.5_0"
+    },
+    {
+        "source_sentence": "**Yasmiṁ kāmā na vasantī**ti.",
+        "translation": "Sensual pleasures aren’t stay",
+        "source": "cnd13:8.1_0"
+    },
+    {
+        "source_sentence": "**Yasmin**ti yasmiṁ puggale arahante khīṇāsave.",
+        "translation": "In whom there is a person whose defilements are ended,",
+        "source": "cnd13:8.2_0"
+    },
+    {
+        "source_sentence": "**Kāmā**ti uddānato dve kāmā—",
+        "translation": "sensual pleasures:",
+        "source": "cnd13:8.3_0"
+    },
+    {
+        "source_sentence": "vatthukāmā ca kilesakāmā ca …pe…",
+        "translation": "They want to site for objects and objects for objects.",
+        "source": "cnd13:8.4_0"
+    },
+    {
+        "source_sentence": "ime vuccanti vatthukāmā …pe…",
+        "translation": "These are said to be the basis for objects.",
+        "source": "cnd13:8.5_0"
+    },
+    {
+        "source_sentence": "ime vuccanti kilesakāmā.",
+        "translation": "These are called the defilements that defilement.",
+        "source": "cnd13:8.6_0"
+    },
+    {
+        "source_sentence": "**Yasmiṁ kāmā na vasantī**ti yasmiṁ kāmā na vasanti na saṁvasanti na āvasanti na parivasantīti—",
+        "translation": "Wherever sensual pleasures don’t lead to power, or hope for a new state, they don’t decline,",
+        "source": "cnd13:8.7_0"
+    },
+    {
+        "source_sentence": "yasmiṁ kāmā na vasanti.",
+        "translation": "Sensual pleasures are no more",
+        "source": "cnd13:8.8_0"
+    },
+    {
+        "source_sentence": "**Todeyyāti bhagavā**ti.",
+        "translation": "Toraṇavatthu:",
+        "source": "cnd13:9.1_0"
+    },
+    {
+        "source_sentence": "**Todeyyā**ti bhagavā taṁ brāhmaṇaṁ nāmena ālapati.",
+        "translation": "and the Fortunate One Todeyya with the brahmin Todeyyaka,",
+        "source": "cnd13:9.2_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti—",
+        "translation": "The Buddha has designated Māra’s statements, that is,",
+        "source": "cnd13:9.3_0"
+    },
+    {
+        "source_sentence": "todeyyāti bhagavā.",
+        "translation": "Toraṇavatthu:",
+        "source": "cnd13:9.4_0"
+    },
+    {
+        "source_sentence": "**Taṇhā yassa na vijjatī**ti.",
+        "translation": "their craving isn’t found.",
+        "source": "cnd13:10.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti rūpataṇhā saddataṇhā gandhataṇhā rasataṇhā phoṭṭhabbataṇhā dhammataṇhā.",
+        "translation": "craving for sights, sounds, smells, tastes, touches, and thoughts.",
+        "source": "cnd13:10.2_0"
+    },
+    {
+        "source_sentence": "**Yassā**ti arahato khīṇāsavassa.",
+        "translation": "For the one who has ended the defilements,",
+        "source": "cnd13:10.3_0"
+    },
+    {
+        "source_sentence": "**Taṇhā yassa na vijjatī**ti taṇhā yassa natthi na atthi na saṁvijjati nupalabbhati, pahīnā samucchinnā vūpasantā paṭippassaddhā abhabbuppattikā ñāṇagginā daḍḍhāti—",
+        "translation": "They’re not rid of craving. They have no fear and dregs, and they are cut off at the root. They’ve gone beyond doubt, discomfort, and contemplating them.",
+        "source": "cnd13:10.4_0"
+    },
+    {
+        "source_sentence": "taṇhā yassa na vijjati.",
+        "translation": "craving is not found in them.",
+        "source": "cnd13:10.5_0"
+    },
+    {
+        "source_sentence": "**Kathaṅkathā ca yo tiṇṇo**ti kathaṅkathā vuccati vicikicchā.",
+        "translation": "he who crosses doubts about the crosswise is what is meant.",
+        "source": "cnd13:11.1_0"
+    },
+    {
+        "source_sentence": "Dukkhe kaṅkhā …pe… chambhitattaṁ cittassa manovilekho.",
+        "translation": "doubt about suffering, its origin, its cessation, and the path.",
+        "source": "cnd13:11.2_0"
+    },
+    {
+        "source_sentence": "**Yo**ti yo so arahaṁ khīṇāsavo.",
+        "translation": "A perfected one who is perfected,",
+        "source": "cnd13:11.3_0"
+    },
+    {
+        "source_sentence": "**Kathaṅkathā ca yo tiṇṇo**ti kathaṅkathā ca yo tiṇṇo uttiṇṇo nitthiṇṇo atikkanto samatikkanto vītivattoti—",
+        "translation": "He who has crossed over the crossroad, and who has crossed over the threshed over, gone beyond doubt, and uncovered.",
+        "source": "cnd13:11.4_0"
+    },
+    {
+        "source_sentence": "kathaṅkathā ca yo tiṇṇo.",
+        "translation": "he who crossed beyond doubts,",
+        "source": "cnd13:11.5_0"
+    },
+    {
+        "source_sentence": "**Vimokkho tassa nāparo**ti natthi tassa aparo vimokkho.",
+        "translation": "there is no liberation, there is no liberation.",
+        "source": "cnd13:12.1_0"
+    },
+    {
+        "source_sentence": "Yena vimokkhena vimucceyya vimutto so.",
+        "translation": "through whomever the liberation of the beautiful,",
+        "source": "cnd13:12.2_0"
+    },
+    {
+        "source_sentence": "Kataṁ tassa vimokkhena karaṇīyanti—",
+        "translation": "And they have work to do with the liberation.",
+        "source": "cnd13:12.3_0"
+    },
+    {
+        "source_sentence": "vimokkho tassa nāparo.",
+        "translation": "there is no liberation.",
+        "source": "cnd13:12.4_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd13:12.5_0"
+    },
+    {
+        "source_sentence": "“Yasmiṁ kāmā na vasanti,",
+        "translation": "“In whom there is no sensual pleasures",
+        "source": "cnd13:13.1_0"
+    },
+    {
+        "source_sentence": "(todeyyāti bhagavā)",
+        "translation": "Toraṇavatthu:",
+        "source": "cnd13:13.2_0"
+    },
+    {
+        "source_sentence": "Taṇhā yassa na vijjati;",
+        "translation": "craving is not found in them.",
+        "source": "cnd13:13.3_0"
+    },
+    {
+        "source_sentence": "Kathaṅkathā ca yo tiṇṇo,",
+        "translation": "he who crossed beyond doubts,",
+        "source": "cnd13:13.4_0"
+    },
+    {
+        "source_sentence": "Vimokkho tassa nāparo”ti.",
+        "translation": "there’s no release for him.”",
+        "source": "cnd13:13.5_0"
+    },
+    {
+        "source_sentence": "**Nirāsaso so uda āsasāno,**",
+        "translation": "free of sorrow, heat, and depression.",
+        "source": "cnd13:14.1_0"
+    },
+    {
+        "source_sentence": "**Paññāṇavā so uda paññakappī;**",
+        "translation": "Is he wise, or is he still acquiring wisdom?",
+        "source": "cnd13:14.2_0"
+    },
+    {
+        "source_sentence": "**Muniṁ ahaṁ sakka yathā vijaññaṁ,**",
+        "translation": "I would know just what the sage is like, Sakyan:",
+        "source": "cnd13:14.3_0"
+    },
+    {
+        "source_sentence": "**Taṁ me viyācikkha samantacakkhu. **",
+        "translation": "all that was my Visionary,",
+        "source": "cnd13:14.4_0"
+    },
+    {
+        "source_sentence": "**Nirāsaso so uda āsasāno**ti nittaṇho so, udāhu sataṇho rūpe āsīsati, sadde …pe…",
+        "translation": "They enjoy sights, sounds, smells, tastes, touches, and thoughts. ...”",
+        "source": "cnd13:15.1_0"
+    },
+    {
+        "source_sentence": "gandhe …",
+        "translation": "smells ...",
+        "source": "cnd13:15.2_0"
+    },
+    {
+        "source_sentence": "rase …",
+        "translation": "tastes ...",
+        "source": "cnd13:15.3_0"
+    },
+    {
+        "source_sentence": "phoṭṭhabbe …",
+        "translation": "touches ...",
+        "source": "cnd13:15.4_0"
+    },
+    {
+        "source_sentence": "kulaṁ …",
+        "translation": "a family member,",
+        "source": "cnd13:15.5_0"
+    },
+    {
+        "source_sentence": "gaṇaṁ …",
+        "translation": "grabbing a group ...",
+        "source": "cnd13:15.6_0"
+    },
+    {
+        "source_sentence": "āvāsaṁ …",
+        "translation": "Monk ...",
+        "source": "cnd13:15.7_0"
+    },
+    {
+        "source_sentence": "lābhaṁ …",
+        "translation": "... “I obtain ...",
+        "source": "cnd13:15.8_0"
+    },
+    {
+        "source_sentence": "yasaṁ …",
+        "translation": "fame ...",
+        "source": "cnd13:15.9_0"
+    },
+    {
+        "source_sentence": "pasaṁsaṁ …",
+        "translation": "praise ...",
+        "source": "cnd13:15.10_0"
+    },
+    {
+        "source_sentence": "sukhaṁ …",
+        "translation": "happiness ...",
+        "source": "cnd13:15.11_0"
+    },
+    {
+        "source_sentence": "cīvaraṁ …",
+        "translation": "a robe ...",
+        "source": "cnd13:15.12_0"
+    },
+    {
+        "source_sentence": "piṇḍapātaṁ …",
+        "translation": "almsfood ...",
+        "source": "cnd13:15.13_0"
+    },
+    {
+        "source_sentence": "senāsanaṁ …",
+        "translation": "... furniture ...",
+        "source": "cnd13:15.14_0"
+    },
+    {
+        "source_sentence": "gilānapaccayabhesajjaparikkhāraṁ …",
+        "translation": "...",
+        "source": "cnd13:15.15_0"
+    },
+    {
+        "source_sentence": "kāmadhātuṁ …",
+        "translation": "sensuality ...",
+        "source": "cnd13:15.16_0"
+    },
+    {
+        "source_sentence": "rūpadhātuṁ …",
+        "translation": "The sight element,",
+        "source": "cnd13:15.17_0"
+    },
+    {
+        "source_sentence": "arūpadhātuṁ …",
+        "translation": "the formless realm ...",
+        "source": "cnd13:15.18_0"
+    },
+    {
+        "source_sentence": "kāmabhavaṁ …",
+        "translation": "continued existence ...",
+        "source": "cnd13:15.19_0"
+    },
+    {
+        "source_sentence": "rūpabhavaṁ …",
+        "translation": "continued existence ...",
+        "source": "cnd13:15.20_0"
+    },
+    {
+        "source_sentence": "arūpabhavaṁ …",
+        "translation": "They truly understand form ...",
+        "source": "cnd13:15.21_0"
+    },
+    {
+        "source_sentence": "saññābhavaṁ …",
+        "translation": "perception ...",
+        "source": "cnd13:15.22_0"
+    },
+    {
+        "source_sentence": "asaññābhavaṁ …",
+        "translation": "perception of continued existence ...",
+        "source": "cnd13:15.23_0"
+    },
+    {
+        "source_sentence": "nevasaññānāsaññābhavaṁ …",
+        "translation": "continued existence ...",
+        "source": "cnd13:15.24_0"
+    },
+    {
+        "source_sentence": "ekavokārabhavaṁ …",
+        "translation": "...",
+        "source": "cnd13:15.25_0"
+    },
+    {
+        "source_sentence": "catuvokārabhavaṁ …",
+        "translation": "... the four lower realms,” ...",
+        "source": "cnd13:15.26_0"
+    },
+    {
+        "source_sentence": "pañcavokārabhavaṁ …",
+        "translation": "five choice ...",
+        "source": "cnd13:15.27_0"
+    },
+    {
+        "source_sentence": "atītaṁ …",
+        "translation": "past ...",
+        "source": "cnd13:15.28_0"
+    },
+    {
+        "source_sentence": "anāgataṁ …",
+        "translation": "in the future ...",
+        "source": "cnd13:15.29_0"
+    },
+    {
+        "source_sentence": "paccuppannaṁ …",
+        "translation": "present ...",
+        "source": "cnd13:15.30_0"
+    },
+    {
+        "source_sentence": "diṭṭhasutamutaviññātabbe dhamme āsīsati sādiyati pattheti piheti abhijappatīti—",
+        "translation": "if he desires to be seen, heard, thought, or known something, and he consents to them when they roam it; he binds them away, saying,",
+        "source": "cnd13:15.31_0"
+    },
+    {
+        "source_sentence": "nirāsaso so uda āsasāno.",
+        "translation": "free of sorrow, heat, and depression.",
+        "source": "cnd13:15.32_0"
+    },
+    {
+        "source_sentence": "**Paññāṇavā so uda paññakappī**ti.",
+        "translation": "Is he wise, or is he still acquiring wisdom?",
+        "source": "cnd13:16.1_0"
+    },
+    {
+        "source_sentence": "**Paññāṇavā so**ti paṇḍito paññavā buddhimā ñāṇī vibhāvī medhāvī.",
+        "translation": "Soṇa, wise, and learned, wise. He is the wise, endowed with knowledge,",
+        "source": "cnd13:16.2_0"
+    },
+    {
+        "source_sentence": "**Uda paññakappī**ti udāhu aṭṭhasamāpattiñāṇena vā pañcābhiññāñāṇena vā micchāñāṇena vā taṇhākappaṁ vā diṭṭhikappaṁ vā kappeti janeti sañjaneti nibbatteti abhinibbattetīti—",
+        "translation": "Or alternatively: it is due to the bodies of existence, or the five grasping aggregates, or wrong view and one is reborn in another’s presence. This is the kind of misconception.",
+        "source": "cnd13:16.3_0"
+    },
+    {
+        "source_sentence": "paññāṇavā so uda paññakappī.",
+        "translation": "Is he wise, or is he still acquiring wisdom?",
+        "source": "cnd13:16.4_0"
+    },
+    {
+        "source_sentence": "**Muniṁ ahaṁ sakka yathā vijaññan**ti.",
+        "translation": "I would know just what the sage is like, Sakyan:",
+        "source": "cnd13:17.1_0"
+    },
+    {
+        "source_sentence": "**Sakkā**ti sakko bhagavā.",
+        "translation": "and the Fortunate One were able,",
+        "source": "cnd13:17.2_0"
+    },
+    {
+        "source_sentence": "Sakyakulā pabbajitotipi sakko.",
+        "translation": "who has gone forth from the Sakyan clan,",
+        "source": "cnd13:17.3_0"
+    },
+    {
+        "source_sentence": "Atha vā aḍḍho mahaddhano dhanavātipi sakko.",
+        "translation": "Then, rich, affluent, and wealthy,",
+        "source": "cnd13:17.4_0"
+    },
+    {
+        "source_sentence": "Tassimāni dhanāni, seyyathidaṁ—",
+        "translation": "He has these kinds of wealth:",
+        "source": "cnd13:17.5_0"
+    },
+    {
+        "source_sentence": "saddhādhanaṁ sīladhanaṁ hiridhanaṁ ottappadhanaṁ sutadhanaṁ cāgadhanaṁ paññādhanaṁ satipaṭṭhānadhanaṁ sammappadhānadhanaṁ iddhipādadhanaṁ indriyadhanaṁ baladhanaṁ bojjhaṅgadhanaṁ maggadhanaṁ phaladhanaṁ nibbānadhananti.",
+        "translation": "For the wealth of faith, ethical conduct, conscience, prudence, energy, and wisdom.",
+        "source": "cnd13:17.6_0"
+    },
+    {
+        "source_sentence": "Tehi anekavidhehi dhanaratanehi aḍḍho mahaddhano dhanavātipi sakko.",
+        "translation": "Those without countless precious things, riches, affluent, and wealthy.",
+        "source": "cnd13:17.7_0"
+    },
+    {
+        "source_sentence": "Atha vā sakko pahu visavī alamatto sūro vīro vikkanto abhīrū acchambhī anutrāsī apalāyī pahīnabhayabheravo vigatalomahaṁsotipi sakko.",
+        "translation": "Or he was able to get uproot.",
+        "source": "cnd13:17.8_0"
+    },
+    {
+        "source_sentence": "**Muniṁ ahaṁ sakka yathā vijaññan**ti sakka yathāhaṁ muniṁ jāneyyaṁ ājāneyyaṁ vijāneyyaṁ paṭivijāneyyaṁ paṭivijjheyyanti—",
+        "translation": "I would know what the sage is like, Sakyan, which would understand, and what is known as a sage.",
+        "source": "cnd13:17.9_0"
+    },
+    {
+        "source_sentence": "muniṁ ahaṁ sakka yathā vijaññaṁ.",
+        "translation": "I would know just what the sage is like, Sakyan:",
+        "source": "cnd13:17.10_0"
+    },
+    {
+        "source_sentence": "**Taṁ me viyācikkha samantacakkhū**ti.",
+        "translation": "that rolling-horn all around for me.",
+        "source": "cnd13:18.1_0"
+    },
+    {
+        "source_sentence": "**Tan**ti yaṁ pucchāmi yaṁ yācāmi yaṁ ajjhesāmi yaṁ pasādemi.",
+        "translation": "That’s what I ask, in whatever place I ask, whatever you ask,",
+        "source": "cnd13:18.2_0"
+    },
+    {
+        "source_sentence": "**Viyācikkhā**ti ācikkhāhi desehi paññapehi paṭṭhapehi vivarāhi vibhajāhi uttānīkarohi pakāsehi.",
+        "translation": "explains, teaches, asserts, establishes, clarified, analyzed, and revealed the teaching.",
+        "source": "cnd13:18.3_0"
+    },
+    {
+        "source_sentence": "**Samantacakkhū**ti samantacakkhu vuccati sabbaññutañāṇaṁ …pe…",
+        "translation": "All-seeing omniscience is called knowledge of all kindness. ...”",
+        "source": "cnd13:18.4_0"
+    },
+    {
+        "source_sentence": "tathāgato tena samantacakkhūti—",
+        "translation": "The Realized One sugges it all around,",
+        "source": "cnd13:18.5_0"
+    },
+    {
+        "source_sentence": "taṁ me viyācikkha samantacakkhu.",
+        "translation": "all that was my Visionary,",
+        "source": "cnd13:18.6_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "Hence that brahmin thought,",
+        "source": "cnd13:18.7_0"
+    },
+    {
+        "source_sentence": "“Nirāsaso so uda āsasāno,",
+        "translation": "“Is he without yearning, or of the stomach?",
+        "source": "cnd13:19.1_0"
+    },
+    {
+        "source_sentence": "Paññāṇavā so uda paññakappī;",
+        "translation": "Is he wise, or is he still acquiring wisdom?",
+        "source": "cnd13:19.2_0"
+    },
+    {
+        "source_sentence": "Muniṁ ahaṁ sakka yathā vijaññaṁ,",
+        "translation": "I would know just what the sage is like, Sakyan:",
+        "source": "cnd13:19.3_0"
+    },
+    {
+        "source_sentence": "Taṁ me viyācikkha samantacakkhū”ti.",
+        "translation": "that’s all-seeing, wound.”",
+        "source": "cnd13:19.4_0"
+    },
+    {
+        "source_sentence": "**Nirāsaso so na ca āsasāno,**",
+        "translation": "alert, with no hope for such reasons.",
+        "source": "cnd13:20.1_0"
+    },
+    {
+        "source_sentence": "**Paññāṇavā so na ca paññakappī;**",
+        "translation": "He is wise, he is not still acquiring wisdom.",
+        "source": "cnd13:20.2_0"
+    },
+    {
+        "source_sentence": "**Evampi todeyya muniṁ vijāna,**",
+        "translation": "Know that the Sage is just like this, Todeyya:",
+        "source": "cnd13:20.3_0"
+    },
+    {
+        "source_sentence": "**Akiñcanaṁ kāmabhave asattaṁ. **",
+        "translation": "who has nothing, and is not clinging to sense existence,",
+        "source": "cnd13:20.4_0"
+    },
+    {
+        "source_sentence": "**Nirāsaso so na ca āsasāno**ti nittaṇho so.",
+        "translation": "(That) no longer hope, not having no craving, no longer comes from,",
+        "source": "cnd13:21.1_0"
+    },
+    {
+        "source_sentence": "Na so sataṇho rūpe nāsīsati.",
+        "translation": "He doesn’t expect a wise person,",
+        "source": "cnd13:21.2_0"
+    },
+    {
+        "source_sentence": "Sadde …pe…",
+        "translation": "sounds ...",
+        "source": "cnd13:21.3_0"
+    },
+    {
+        "source_sentence": "gandhe …",
+        "translation": "smells ...",
+        "source": "cnd13:21.4_0"
+    },
+    {
+        "source_sentence": "diṭṭhasutamutaviññātabbe dhamme nāsīsati na icchati na sādiyati na pattheti na piheti nābhijappatīti—",
+        "translation": "He doesn’t wish to be seen, heard, thought, or known something, but he doesn’t wish to accept.",
+        "source": "cnd13:21.5_0"
+    },
+    {
+        "source_sentence": "nirāsaso so na ca āsasāno.",
+        "translation": "alert, with no hope for such reasons.",
+        "source": "cnd13:21.6_0"
+    },
+    {
+        "source_sentence": "**Paññāṇavā so na ca paññakappī**ti.",
+        "translation": "He is wise, he is not still acquiring wisdom.",
+        "source": "cnd13:22.1_0"
+    },
+    {
+        "source_sentence": "**Paññāṇavā**ti paṇḍito paññavā buddhimā ñāṇī vibhāvī medhāvī.",
+        "translation": "wise, learned, and wise.",
+        "source": "cnd13:22.2_0"
+    },
+    {
+        "source_sentence": "**Na ca paññakappī**ti aṭṭhasamāpattiñāṇena vā pañcābhiññāñāṇena vā micchāñāṇena vā taṇhākappaṁ vā na kappeti diṭṭhikappaṁ vā na kappeti na janeti na sañjaneti na nibbatteti nābhinibbattetīti—",
+        "translation": "Neither phenomena nor the kind of attainment consisting of the five attainments, or with wrong view, wrong thought, wrong speech, wrong action, or wrong livelihood. ...",
+        "source": "cnd13:22.3_0"
+    },
+    {
+        "source_sentence": "paññāṇavā so na ca paññakappī.",
+        "translation": "He is wise, he is not still acquiring wisdom.",
+        "source": "cnd13:22.4_0"
+    },
+    {
+        "source_sentence": "**Evampi todeyya muniṁ vijānā**ti.",
+        "translation": "Know that the Sage knows that it Todeyyasaka",
+        "source": "cnd13:23.1_0"
+    },
+    {
+        "source_sentence": "**Munī**ti monaṁ vuccati ñāṇaṁ …pe… saṅgajālamaticca so muni.",
+        "translation": "the sage who knows modes, is called the knowledge of the chains.",
+        "source": "cnd13:23.2_0"
+    },
+    {
+        "source_sentence": "**Evampi todeyya muniṁ vijānā**ti todeyya, evaṁ muniṁ jāna paṭijāna paṭivijāna paṭivijjhāti—",
+        "translation": "Todeyya, the Sage knows thus: Todeyya he knows how to wake up.",
+        "source": "cnd13:23.3_0"
+    },
+    {
+        "source_sentence": "evampi todeyya muniṁ vijāna.",
+        "translation": "Know that the Sage is just like this, Todeyya:",
+        "source": "cnd13:23.4_0"
+    },
+    {
+        "source_sentence": "**Akiñcanaṁ kāmabhave asattan**ti.",
+        "translation": "who has nothing, and is not clinging to sense existence,",
+        "source": "cnd13:24.1_0"
+    },
+    {
+        "source_sentence": "**Akiñcanan**ti rāgakiñcanaṁ dosakiñcanaṁ mohakiñcanaṁ mānakiñcanaṁ diṭṭhikiñcanaṁ kilesakiñcanaṁ duccaritakiñcanaṁ.",
+        "translation": "Without charging, greed, hate, and delusion, and conceit.",
+        "source": "cnd13:24.2_0"
+    },
+    {
+        "source_sentence": "Yassetāni kiñcanāni pahīnāni samucchinnāni vūpasantāni paṭippassaddhāni abhabbuppattikāni ñāṇagginā daḍḍhāni, so vuccati akiñcano.",
+        "translation": "He who has cut off all fear and dread, and who has gone too far from the dispensation, is called a “bowl” .",
+        "source": "cnd13:24.3_0"
+    },
+    {
+        "source_sentence": "**Kāmā**ti uddānato dve kāmā—",
+        "translation": "sensual pleasures:",
+        "source": "cnd13:24.4_0"
+    },
+    {
+        "source_sentence": "vatthukāmā ca kilesakāmā ca …pe…",
+        "translation": "They want to site for objects and objects for objects.",
+        "source": "cnd13:24.5_0"
+    },
+    {
+        "source_sentence": "ime vuccanti vatthukāmā …pe…",
+        "translation": "These are said to be the basis for objects.",
+        "source": "cnd13:24.6_0"
+    },
+    {
+        "source_sentence": "ime vuccanti kilesakāmā.",
+        "translation": "These are called the defilements that defilement.",
+        "source": "cnd13:24.7_0"
+    },
+    {
+        "source_sentence": "**Bhavā**ti dve bhavā—",
+        "translation": "Continued existences of existence:",
+        "source": "cnd13:24.8_0"
+    },
+    {
+        "source_sentence": "kammabhavo ca paṭisandhiko ca punabbhavo …pe…",
+        "translation": "They declare that continued existence is ended. When rebirth has come to be. And when there is no further rebirth ...",
+        "source": "cnd13:24.9_0"
+    },
+    {
+        "source_sentence": "ayaṁ paṭisandhiko punabbhavo.",
+        "translation": "This is another future lives.",
+        "source": "cnd13:24.10_0"
+    },
+    {
+        "source_sentence": "**Akiñcanaṁ kāmabhave asattan**ti akiñcanaṁ puggalaṁ kāme ca bhave ca asattaṁ alaggaṁ alaggitaṁ apalibuddhaṁ nikkhantaṁ nissaṭaṁ vippamuttaṁ visaññuttaṁ vimariyādikatena cetasā viharantanti—",
+        "translation": "They live withdrawn from sensual pleasures, and they’re free of vanity. And they’re unconcerned, unattached, seeing, and free of limits.",
+        "source": "cnd13:25.1_0"
+    },
+    {
+        "source_sentence": "akiñcanaṁ kāmabhave asattaṁ.",
+        "translation": "who has nothing, and is not clinging to sense existence,",
+        "source": "cnd13:25.2_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd13:25.3_0"
+    },
+    {
+        "source_sentence": "“Nirāsaso so na ca āsasāno,",
+        "translation": "“Shouldn’t heat but has no sorrow,",
+        "source": "cnd13:26.1_0"
+    },
+    {
+        "source_sentence": "Paññāṇavā so na ca paññakappī;",
+        "translation": "He is wise, he is not still acquiring wisdom.",
+        "source": "cnd13:26.2_0"
+    },
+    {
+        "source_sentence": "Evampi todeyya muniṁ vijāna,",
+        "translation": "Know that the Sage is just like this, Todeyya:",
+        "source": "cnd13:26.3_0"
+    },
+    {
+        "source_sentence": "Akiñcanaṁ kāmabhave asattan”ti.",
+        "translation": "who has nothing, and is not clinging to sense existence.”",
+        "source": "cnd13:26.4_0"
+    },
+    {
+        "source_sentence": "Saha gāthāpariyosānā …pe…",
+        "translation": "spoke with verses ...",
+        "source": "cnd13:27.1_0"
+    },
+    {
+        "source_sentence": "satthā me bhante bhagavā, sāvakohamasmīti.",
+        "translation": "you’re my teacher, I’m your disciple.",
+        "source": "cnd13:27.2_0"
+    },
+    {
+        "source_sentence": "Todeyyamāṇavapucchāniddeso navamo.",
+        "translation": "the ninth part of the Todeyya Suttanta, and the ninth place (that) had been given to him.",
+        "source": "cnd13:27.3_0"
+    }
+]

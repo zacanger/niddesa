@@ -1,0 +1,417 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd4:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavaggagāthā",
+        "translation": "Pārāyanavaggagāthā",
+        "source": "cnd4:0.2_0"
+    },
+    {
+        "source_sentence": "4. Pārāyanānugītigāthā",
+        "translation": "4. Pārāyanānugītigāthā",
+        "source": "cnd4:0.3_0"
+    },
+    {
+        "source_sentence": "“Pārāyanamanugāyissaṁ,",
+        "translation": "“I’ll get a verse",
+        "source": "cnd4:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā piṅgiyo)",
+        "translation": "said venerable Piṅgiya,",
+        "source": "cnd4:1.2_0"
+    },
+    {
+        "source_sentence": "Yathāddakkhi tathākkhāsi;",
+        "translation": "how the Teacher explained it.",
+        "source": "cnd4:1.3_0"
+    },
+    {
+        "source_sentence": "Vimalo bhūrimedhaso,",
+        "translation": "Poised, stainless,",
+        "source": "cnd4:1.4_0"
+    },
+    {
+        "source_sentence": "Nikkāmo nibbano nāgo;",
+        "translation": "the giant, free of joy,",
+        "source": "cnd4:1.5_0"
+    },
+    {
+        "source_sentence": "Kissa hetu musā bhaṇe.",
+        "translation": "Why is that a delicious thing?",
+        "source": "cnd4:1.6_0"
+    },
+    {
+        "source_sentence": "Pahīnamalamohassa,",
+        "translation": "have given up the stain of immorality.",
+        "source": "cnd4:2.1_0"
+    },
+    {
+        "source_sentence": "mānamakkhappahāyino;",
+        "translation": "they’ve given up conceit, they say.",
+        "source": "cnd4:2.2_0"
+    },
+    {
+        "source_sentence": "Handāhaṁ kittayissāmi,",
+        "translation": "Well now, I’ll extol them.",
+        "source": "cnd4:2.3_0"
+    },
+    {
+        "source_sentence": "giraṁ vaṇṇūpasañhitaṁ.",
+        "translation": "for your beautiful complexion,",
+        "source": "cnd4:2.4_0"
+    },
+    {
+        "source_sentence": "Tamonudo buddho samantacakkhu,",
+        "translation": "The Buddha, the darkness-dispeller, the All-Seeing Visionary,",
+        "source": "cnd4:3.1_0"
+    },
+    {
+        "source_sentence": "Lokantagū sabbabhavātivatto;",
+        "translation": "Who has gone beyond all states of existence.",
+        "source": "cnd4:3.2_0"
+    },
+    {
+        "source_sentence": "Anāsavo sabbadukkhappahīno,",
+        "translation": "given up all suffering, the one pollutant-free,",
+        "source": "cnd4:3.3_0"
+    },
+    {
+        "source_sentence": "Saccavhayo brahme upāsito me.",
+        "translation": "whose very name is truth - O brahmin, (you are) worshipped by me.",
+        "source": "cnd4:3.4_0"
+    },
+    {
+        "source_sentence": "Dijo yathā kubbanakaṁ pahāya,",
+        "translation": "Just as a bird who has given up a barren woodland,",
+        "source": "cnd4:4.1_0"
+    },
+    {
+        "source_sentence": "Bahupphalaṁ kānanamāvaseyya;",
+        "translation": "might live in a forest which has much fruit,",
+        "source": "cnd4:4.2_0"
+    },
+    {
+        "source_sentence": "Evampahaṁ appadasse pahāya,",
+        "translation": "so those who have given up those of little wisdom,",
+        "source": "cnd4:4.3_0"
+    },
+    {
+        "source_sentence": "Mahodadhiṁ haṁsoriva ajjhapatto.",
+        "translation": "like a swan who has arrived at the great sea.",
+        "source": "cnd4:4.4_0"
+    },
+    {
+        "source_sentence": "Yeme pubbe viyākaṁsu,",
+        "translation": "Those who, in regard to their past lives,",
+        "source": "cnd4:5.1_0"
+    },
+    {
+        "source_sentence": "Huraṁ gotamasāsanā;",
+        "translation": "Gotama’s intention.",
+        "source": "cnd4:5.2_0"
+    },
+    {
+        "source_sentence": "Iccāsi iti bhavissati,",
+        "translation": "there will be for one like that,",
+        "source": "cnd4:5.3_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ taṁ itihītihaṁ;",
+        "translation": "it is all that was just hearing.",
+        "source": "cnd4:5.4_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ taṁ takkavaḍḍhanaṁ.",
+        "translation": "all that just increased my thoughts.",
+        "source": "cnd4:5.5_0"
+    },
+    {
+        "source_sentence": "Eko tamonudāsino,",
+        "translation": "one dispelled darkness.",
+        "source": "cnd4:6.1_0"
+    },
+    {
+        "source_sentence": "jutimā so pabhaṅkaro;",
+        "translation": "you shine a light free woman.",
+        "source": "cnd4:6.2_0"
+    },
+    {
+        "source_sentence": "Gotamo bhūripaññāṇo,",
+        "translation": "Gotama is the Great Knowledge.",
+        "source": "cnd4:6.3_0"
+    },
+    {
+        "source_sentence": "gotamo bhūrimedhaso.",
+        "translation": "Gotama of Great Intelligence.",
+        "source": "cnd4:6.4_0"
+    },
+    {
+        "source_sentence": "Yo me dhammamadesesi,",
+        "translation": "He who taught me the Dhamma",
+        "source": "cnd4:7.1_0"
+    },
+    {
+        "source_sentence": "Sandiṭṭhikamakālikaṁ;",
+        "translation": "it is visible, not subject to time,",
+        "source": "cnd4:7.2_0"
+    },
+    {
+        "source_sentence": "Taṇhakkhayamanītikaṁ,",
+        "translation": "settling the ending of craving.",
+        "source": "cnd4:7.3_0"
+    },
+    {
+        "source_sentence": "Yassa natthi upamā kvaci”.",
+        "translation": "the man who does nothing.”",
+        "source": "cnd4:7.4_0"
+    },
+    {
+        "source_sentence": "“Kiṁ nu tamhā vippavasasi,",
+        "translation": "“Why do you avoid them?",
+        "source": "cnd4:8.1_0"
+    },
+    {
+        "source_sentence": "muhuttamapi piṅgiya;",
+        "translation": "even for a moment,",
+        "source": "cnd4:8.2_0"
+    },
+    {
+        "source_sentence": "Gotamā bhūripaññāṇā,",
+        "translation": "from Gotama of Great Knowledge,",
+        "source": "cnd4:8.3_0"
+    },
+    {
+        "source_sentence": "gotamā bhūrimedhasā.",
+        "translation": "Gotama of Great Intelligence,",
+        "source": "cnd4:8.4_0"
+    },
+    {
+        "source_sentence": "Yo te dhammamadesesi,",
+        "translation": "he who taught the Teaching to you,",
+        "source": "cnd4:9.1_0"
+    },
+    {
+        "source_sentence": "Sandiṭṭhikamakālikaṁ;",
+        "translation": "it is visible, not subject to time,",
+        "source": "cnd4:9.2_0"
+    },
+    {
+        "source_sentence": "Taṇhakkhayamanītikaṁ,",
+        "translation": "settling the ending of craving.",
+        "source": "cnd4:9.3_0"
+    },
+    {
+        "source_sentence": "Yassa natthi upamā kvaci”.",
+        "translation": "the man who does nothing.”",
+        "source": "cnd4:9.4_0"
+    },
+    {
+        "source_sentence": "“Nāhaṁ tamhā vippavasāmi,",
+        "translation": "“I don’t understand that",
+        "source": "cnd4:10.1_0"
+    },
+    {
+        "source_sentence": "Muhuttamapi brāhmaṇa;",
+        "translation": "a moment, brahmin,",
+        "source": "cnd4:10.2_0"
+    },
+    {
+        "source_sentence": "Gotamā bhūripaññāṇā,",
+        "translation": "from Gotama of Great Knowledge,",
+        "source": "cnd4:10.3_0"
+    },
+    {
+        "source_sentence": "Gotamā bhūrimedhasā.",
+        "translation": "Gotama of Great Intelligence,",
+        "source": "cnd4:10.4_0"
+    },
+    {
+        "source_sentence": "Yo me dhammamadesesi,",
+        "translation": "He who taught me the Dhamma",
+        "source": "cnd4:11.1_0"
+    },
+    {
+        "source_sentence": "Sandiṭṭhikamakālikaṁ;",
+        "translation": "it is visible, not subject to time,",
+        "source": "cnd4:11.2_0"
+    },
+    {
+        "source_sentence": "Taṇhakkhayamanītikaṁ,",
+        "translation": "settling the ending of craving.",
+        "source": "cnd4:11.3_0"
+    },
+    {
+        "source_sentence": "Yassa natthi upamā kvaci.",
+        "translation": "One who lives likes nothing,",
+        "source": "cnd4:11.4_0"
+    },
+    {
+        "source_sentence": "Passāmi naṁ manasā cakkhunāva,",
+        "translation": "I see him in my mind as though with the eye,",
+        "source": "cnd4:12.1_0"
+    },
+    {
+        "source_sentence": "Rattindivaṁ brāhmaṇa appamatto;",
+        "translation": "(as I dwell) heedful night and day, brahmin.",
+        "source": "cnd4:12.2_0"
+    },
+    {
+        "source_sentence": "Namassamāno vivasemi rattiṁ,",
+        "translation": "revering him I make the night pass by,",
+        "source": "cnd4:12.3_0"
+    },
+    {
+        "source_sentence": "Teneva maññāmi avippavāsaṁ.",
+        "translation": "and so I thought I wouldn’t stay opportunity.",
+        "source": "cnd4:12.4_0"
+    },
+    {
+        "source_sentence": "Saddhā ca pīti ca mano sati ca,",
+        "translation": "faith, mindfulness, and mind.",
+        "source": "cnd4:13.1_0"
+    },
+    {
+        "source_sentence": "Nāpentime gotamasāsanamhā;",
+        "translation": "they do not depart from Gotama’s teaching,",
+        "source": "cnd4:13.2_0"
+    },
+    {
+        "source_sentence": "Yaṁ yaṁ disaṁ vajati bhūripañño,",
+        "translation": "whatever direction the One of Great Wisdom goes to",
+        "source": "cnd4:13.3_0"
+    },
+    {
+        "source_sentence": "Sa tena teneva natohamasmi.",
+        "translation": "That’s why I am not reborn there.",
+        "source": "cnd4:13.4_0"
+    },
+    {
+        "source_sentence": "Jiṇṇassa me dubbalathāmakassa,",
+        "translation": "I am old, without strength and feeble,",
+        "source": "cnd4:14.1_0"
+    },
+    {
+        "source_sentence": "Teneva kāyo na paleti tattha;",
+        "translation": "And so the body doesn’t get close to it.",
+        "source": "cnd4:14.2_0"
+    },
+    {
+        "source_sentence": "Saṅkappayantāya vajāmi niccaṁ,",
+        "translation": "I’m always sympathy about a person.",
+        "source": "cnd4:14.3_0"
+    },
+    {
+        "source_sentence": "Mano hi me brāhmaṇa tena yutto.",
+        "translation": "for my mind, Brahmin, is joined to him.",
+        "source": "cnd4:14.4_0"
+    },
+    {
+        "source_sentence": "Paṅke sayāno pariphandamāno,",
+        "translation": "like a drunk on a fle.",
+        "source": "cnd4:15.1_0"
+    },
+    {
+        "source_sentence": "Dīpā dīpaṁ upallaviṁ;",
+        "translation": "Upavattana, hurtful,",
+        "source": "cnd4:15.2_0"
+    },
+    {
+        "source_sentence": "Athaddasāsiṁ sambuddhaṁ,",
+        "translation": "Then I saw the Buddha,",
+        "source": "cnd4:15.3_0"
+    },
+    {
+        "source_sentence": "Oghatiṇṇamanāsavaṁ”.",
+        "translation": "like the flood swelling the leaves.”",
+        "source": "cnd4:15.4_0"
+    },
+    {
+        "source_sentence": "“Yathā ahū vakkali muttasaddho,",
+        "translation": "[The Buddha:] “Just as Vakkali released his confidence -",
+        "source": "cnd4:16.1_0"
+    },
+    {
+        "source_sentence": "Bhadrāvudho āḷavigotamo ca;",
+        "translation": "Bhadrāvudha, Kāḷigodhā",
+        "source": "cnd4:16.2_0"
+    },
+    {
+        "source_sentence": "Evameva tvampi pamuñcassu saddhaṁ,",
+        "translation": "so too you must release your confidence,",
+        "source": "cnd4:16.3_0"
+    },
+    {
+        "source_sentence": "Gamissasi tvaṁ piṅgiya maccudheyyassa pāraṁ”.",
+        "translation": "you will go from afar, Piṅgiya.”",
+        "source": "cnd4:16.4_0"
+    },
+    {
+        "source_sentence": "“Esa bhiyyo pasīdāmi,",
+        "translation": "“My confidence grew",
+        "source": "cnd4:17.1_0"
+    },
+    {
+        "source_sentence": "Sutvāna munino vaco;",
+        "translation": "When you hear a sage’s word,",
+        "source": "cnd4:17.2_0"
+    },
+    {
+        "source_sentence": "Vivaṭṭacchado sambuddho,",
+        "translation": "the Awakened One, the Sambuddha,",
+        "source": "cnd4:17.3_0"
+    },
+    {
+        "source_sentence": "Akhilo paṭibhānavā.",
+        "translation": "kind, eloquent,",
+        "source": "cnd4:17.4_0"
+    },
+    {
+        "source_sentence": "Adhideve abhiññāya,",
+        "translation": "who, knowing the King of the Disciple,",
+        "source": "cnd4:18.1_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ vedi paroparaṁ;",
+        "translation": "all the other is the confirmation.",
+        "source": "cnd4:18.2_0"
+    },
+    {
+        "source_sentence": "Pañhānantakaro satthā,",
+        "translation": "The Teacher, making them recite,",
+        "source": "cnd4:18.3_0"
+    },
+    {
+        "source_sentence": "Kaṅkhīnaṁ paṭijānataṁ.",
+        "translation": "admitted to being whipped,",
+        "source": "cnd4:18.4_0"
+    },
+    {
+        "source_sentence": "Asaṁhīraṁ asaṅkuppaṁ,",
+        "translation": "Knowing this, foster it—",
+        "source": "cnd4:19.1_0"
+    },
+    {
+        "source_sentence": "Yassa natthi upamā kvaci;",
+        "translation": "One who lives likes nothing,",
+        "source": "cnd4:19.2_0"
+    },
+    {
+        "source_sentence": "Addhā gamissāmi na mettha kaṅkhā,",
+        "translation": "Surely I will go about this,",
+        "source": "cnd4:19.3_0"
+    },
+    {
+        "source_sentence": "Evaṁ maṁ dhārehi adhimuttacittan”ti.",
+        "translation": "thus bear me in mind as one whose heart is intent (on Nibbāna).”",
+        "source": "cnd4:19.4_0"
+    },
+    {
+        "source_sentence": "Pārāyanānugītigāthā niṭṭhitā.",
+        "translation": "The account of the far shore is finished.",
+        "source": "cnd4:19.5_0"
+    }
+]

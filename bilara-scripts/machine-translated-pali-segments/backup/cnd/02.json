@@ -1,0 +1,2477 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd2:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavaggagāthā",
+        "translation": "Pārāyanavaggagāthā",
+        "source": "cnd2:0.2_0"
+    },
+    {
+        "source_sentence": "Pucchā",
+        "translation": "Pucchā",
+        "source": "cnd2:0.3_0"
+    },
+    {
+        "source_sentence": "1. Ajitamāṇavapucchā",
+        "translation": "1. Ajitamāṇavapucchā",
+        "source": "cnd2:1.0.1_0"
+    },
+    {
+        "source_sentence": "“Kenassu nivuto loko,",
+        "translation": "“What is the world enveloped?",
+        "source": "cnd2:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā ajito)",
+        "translation": "Ajita, Venerable Ajita,",
+        "source": "cnd2:1.2_0"
+    },
+    {
+        "source_sentence": "Kenassu nappakāsati;",
+        "translation": "What don’t want to harm?",
+        "source": "cnd2:1.3_0"
+    },
+    {
+        "source_sentence": "Kissābhilepanaṁ brūsi,",
+        "translation": "You call a worm to what.",
+        "source": "cnd2:1.4_0"
+    },
+    {
+        "source_sentence": "Kiṁsu tassa mahabbhayaṁ”.",
+        "translation": "what’s the great hermit?”",
+        "source": "cnd2:1.5_0"
+    },
+    {
+        "source_sentence": "“Avijjāya nivuto loko,",
+        "translation": "“The world is enveloped by ignorance,",
+        "source": "cnd2:2.1_0"
+    },
+    {
+        "source_sentence": "(ajitāti bhagavā)",
+        "translation": "He calls unqualled,",
+        "source": "cnd2:2.2_0"
+    },
+    {
+        "source_sentence": "Vevicchā pamādā nappakāsati;",
+        "translation": "The host of gods would not give up,",
+        "source": "cnd2:2.3_0"
+    },
+    {
+        "source_sentence": "Jappābhilepanaṁ brūmi,",
+        "translation": "Hunger",
+        "source": "cnd2:2.4_0"
+    },
+    {
+        "source_sentence": "Dukkhamassa mahabbhayaṁ”.",
+        "translation": "Suffering is the greatest of suffering.”",
+        "source": "cnd2:2.5_0"
+    },
+    {
+        "source_sentence": "“Savanti sabbadhi sotā,",
+        "translation": "“Streams are flowing everywhere,",
+        "source": "cnd2:3.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā ajito)",
+        "translation": "Ajita, Venerable Ajita,",
+        "source": "cnd2:3.2_0"
+    },
+    {
+        "source_sentence": "Sotānaṁ kiṁ nivāraṇaṁ;",
+        "translation": "What is the reason why.",
+        "source": "cnd2:3.3_0"
+    },
+    {
+        "source_sentence": "Sotānaṁ saṁvaraṁ brūhi,",
+        "translation": "That is the restraint of the ear,",
+        "source": "cnd2:3.4_0"
+    },
+    {
+        "source_sentence": "Kena sotā pidhiyyare”.",
+        "translation": "whose mind is full of light?”",
+        "source": "cnd2:3.5_0"
+    },
+    {
+        "source_sentence": "“Yāni sotāni lokasmiṁ,",
+        "translation": "“Whatever streams there are in the world",
+        "source": "cnd2:4.1_0"
+    },
+    {
+        "source_sentence": "(ajitāti bhagavā)",
+        "translation": "He calls unqualled,",
+        "source": "cnd2:4.2_0"
+    },
+    {
+        "source_sentence": "Sati tesaṁ nivāraṇaṁ;",
+        "translation": "and mindfulness its careful driver.",
+        "source": "cnd2:4.3_0"
+    },
+    {
+        "source_sentence": "Sotānaṁ saṁvaraṁ brūmi,",
+        "translation": "I declare the restraint of the ear;",
+        "source": "cnd2:4.4_0"
+    },
+    {
+        "source_sentence": "Paññāyete pidhiyyare”.",
+        "translation": "for their wisdom is full of wisdom.”",
+        "source": "cnd2:4.5_0"
+    },
+    {
+        "source_sentence": "“Paññā ceva sati cāpi,",
+        "translation": "“Knowledge and mindfulness,",
+        "source": "cnd2:5.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā ajito)",
+        "translation": "Ajita, Venerable Ajita,",
+        "source": "cnd2:5.2_0"
+    },
+    {
+        "source_sentence": "Nāmarūpañca mārisa;",
+        "translation": "name and form.",
+        "source": "cnd2:5.3_0"
+    },
+    {
+        "source_sentence": "Etaṁ me puṭṭho pabrūhi,",
+        "translation": "When I’ve questioned this,",
+        "source": "cnd2:5.4_0"
+    },
+    {
+        "source_sentence": "Katthetaṁ uparujjhati”.",
+        "translation": "what is convenient is there.”",
+        "source": "cnd2:5.5_0"
+    },
+    {
+        "source_sentence": "“Yametaṁ pañhaṁ apucchi,",
+        "translation": "“This question that was asked,",
+        "source": "cnd2:6.1_0"
+    },
+    {
+        "source_sentence": "ajita taṁ vadāmi te;",
+        "translation": "they’re not able to be one, I say.",
+        "source": "cnd2:6.2_0"
+    },
+    {
+        "source_sentence": "Yattha nāmañca rūpañca,",
+        "translation": "And where name and form",
+        "source": "cnd2:6.3_0"
+    },
+    {
+        "source_sentence": "asesaṁ uparujjhati;",
+        "translation": "cease with nothing left over;",
+        "source": "cnd2:6.4_0"
+    },
+    {
+        "source_sentence": "Viññāṇassa nirodhena,",
+        "translation": "with the cessation of consciousness,",
+        "source": "cnd2:6.5_0"
+    },
+    {
+        "source_sentence": "etthetaṁ uparujjhati”.",
+        "translation": "that’s where this ceases.”",
+        "source": "cnd2:6.6_0"
+    },
+    {
+        "source_sentence": "“Ye ca saṅkhātadhammāse,",
+        "translation": "“Those who have appraised the teaching,",
+        "source": "cnd2:7.1_0"
+    },
+    {
+        "source_sentence": "ye ca sekhā puthū idha;",
+        "translation": "and the many kinds of trainees here—",
+        "source": "cnd2:7.2_0"
+    },
+    {
+        "source_sentence": "Tesaṁ me nipako iriyaṁ,",
+        "translation": "do my alert.",
+        "source": "cnd2:7.3_0"
+    },
+    {
+        "source_sentence": "puṭṭho pabrūhi mārisa”.",
+        "translation": "when questioned, dear Sir.”",
+        "source": "cnd2:7.4_0"
+    },
+    {
+        "source_sentence": "“Kāmesu nābhigijjheyya,",
+        "translation": "“In regard to sense pleasures,",
+        "source": "cnd2:8.1_0"
+    },
+    {
+        "source_sentence": "Manasānāvilo siyā;",
+        "translation": "would be filled with awareness.",
+        "source": "cnd2:8.2_0"
+    },
+    {
+        "source_sentence": "Kusalo sabbadhammānaṁ,",
+        "translation": "wholesome things,",
+        "source": "cnd2:8.3_0"
+    },
+    {
+        "source_sentence": "Sato bhikkhu paribbaje”ti.",
+        "translation": "to give up sensual desire.",
+        "source": "cnd2:8.4_0"
+    },
+    {
+        "source_sentence": "Ajitamāṇavapucchā paṭhamā.",
+        "translation": "The first question was created.",
+        "source": "cnd2:8.5_0"
+    },
+    {
+        "source_sentence": "2. Tissametteyyamāṇavapucchā",
+        "translation": "2. Tissametteyyamāṇavapucchā",
+        "source": "cnd2:9.0_0"
+    },
+    {
+        "source_sentence": "“Kodha santusito loke,",
+        "translation": "“They’re happy in the world,",
+        "source": "cnd2:9.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā tissametteyyo)",
+        "translation": "‘The venerable Tissa is better",
+        "source": "cnd2:9.2_0"
+    },
+    {
+        "source_sentence": "Kassa no santi iñjitā;",
+        "translation": "Whose strikes are destroyed?",
+        "source": "cnd2:9.3_0"
+    },
+    {
+        "source_sentence": "Ko ubhantamabhiññāya,",
+        "translation": "Who is stubborn in both ways:",
+        "source": "cnd2:9.4_0"
+    },
+    {
+        "source_sentence": "Majjhe mantā na lippati;",
+        "translation": "and is not stuck in the middle.",
+        "source": "cnd2:9.5_0"
+    },
+    {
+        "source_sentence": "Kaṁ brūsi mahāpurisoti,",
+        "translation": "He is a great man,",
+        "source": "cnd2:9.6_0"
+    },
+    {
+        "source_sentence": "Ko idha sibbinimaccagā”.",
+        "translation": "who has escaped the seamstress here?”",
+        "source": "cnd2:9.7_0"
+    },
+    {
+        "source_sentence": "“Kāmesu brahmacariyavā,",
+        "translation": "“Among the spiritual life",
+        "source": "cnd2:10.1_0"
+    },
+    {
+        "source_sentence": "(metteyyāti bhagavā)",
+        "translation": "The Buddha has good will,",
+        "source": "cnd2:10.2_0"
+    },
+    {
+        "source_sentence": "Vītataṇho sadā sato;",
+        "translation": "Rid of craving, always mindful,",
+        "source": "cnd2:10.3_0"
+    },
+    {
+        "source_sentence": "Saṅkhāya nibbuto bhikkhu,",
+        "translation": "A mendicant comes to be quenched.",
+        "source": "cnd2:10.4_0"
+    },
+    {
+        "source_sentence": "Tassa no santi iñjitā.",
+        "translation": "But there are no motion",
+        "source": "cnd2:10.5_0"
+    },
+    {
+        "source_sentence": "So ubhantamabhiññāya,",
+        "translation": "Understanding your wisdom,",
+        "source": "cnd2:11.1_0"
+    },
+    {
+        "source_sentence": "Majjhe mantā na lippati;",
+        "translation": "and is not stuck in the middle.",
+        "source": "cnd2:11.2_0"
+    },
+    {
+        "source_sentence": "Taṁ brūmi mahāpurisoti,",
+        "translation": "He is a great man, I declare,",
+        "source": "cnd2:11.3_0"
+    },
+    {
+        "source_sentence": "So idha sibbinimaccagā”ti.",
+        "translation": "you have escaped the seam.",
+        "source": "cnd2:11.4_0"
+    },
+    {
+        "source_sentence": "Tissametteyyamāṇavapucchā dutiyā.",
+        "translation": "Third: Tissa’s questions on the second day,",
+        "source": "cnd2:11.5_0"
+    },
+    {
+        "source_sentence": "3. Puṇṇakamāṇavapucchā",
+        "translation": "3. Puṇṇakamāṇavapucchā",
+        "source": "cnd2:12.0_0"
+    },
+    {
+        "source_sentence": "“Anejaṁ mūladassāviṁ,",
+        "translation": "“Having seen the root of all that is unmoved,",
+        "source": "cnd2:12.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā puṇṇako)",
+        "translation": "So much venerable Puṇṇa",
+        "source": "cnd2:12.2_0"
+    },
+    {
+        "source_sentence": "Atthi pañhena āgamaṁ;",
+        "translation": "There is a question that should be answered,",
+        "source": "cnd2:12.3_0"
+    },
+    {
+        "source_sentence": "Kiṁ nissitā isayo manujā,",
+        "translation": "On account of what did the seers and men,",
+        "source": "cnd2:12.4_0"
+    },
+    {
+        "source_sentence": "Khattiyā brāhmaṇā devatānaṁ;",
+        "translation": "nobles, and brahmins, here in the world,",
+        "source": "cnd2:12.5_0"
+    },
+    {
+        "source_sentence": "Yaññamakappayiṁsu puthūdha loke,",
+        "translation": "offered many sacrifices to the gods,",
+        "source": "cnd2:12.6_0"
+    },
+    {
+        "source_sentence": "Pucchāmi taṁ bhagavā brūhi metaṁ”.",
+        "translation": "I ask you, Fortunate One, please tell this to me.”",
+        "source": "cnd2:12.7_0"
+    },
+    {
+        "source_sentence": "“Ye kecime isayo manujā,",
+        "translation": "“Those who are born",
+        "source": "cnd2:13.1_0"
+    },
+    {
+        "source_sentence": "(puṇṇakāti bhagavā)",
+        "translation": "said the Buddha to Puṇṇaka,",
+        "source": "cnd2:13.2_0"
+    },
+    {
+        "source_sentence": "Khattiyā brāhmaṇā devatānaṁ;",
+        "translation": "nobles, and brahmins, here in the world,",
+        "source": "cnd2:13.3_0"
+    },
+    {
+        "source_sentence": "Yaññamakappayiṁsu puthūdha loke,",
+        "translation": "offered many sacrifices to the gods,",
+        "source": "cnd2:13.4_0"
+    },
+    {
+        "source_sentence": "Āsīsamānā puṇṇaka itthattaṁ;",
+        "translation": "being full of value, having complete purity,",
+        "source": "cnd2:13.5_0"
+    },
+    {
+        "source_sentence": "Jaraṁ sitā yaññamakappayiṁsu”.",
+        "translation": "now old, they slacked.",
+        "source": "cnd2:13.6_0"
+    },
+    {
+        "source_sentence": "“Ye kecime isayo manujā,",
+        "translation": "“Those who are born",
+        "source": "cnd2:14.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā puṇṇako)",
+        "translation": "So much venerable Puṇṇa",
+        "source": "cnd2:14.2_0"
+    },
+    {
+        "source_sentence": "Khattiyā brāhmaṇā devatānaṁ;",
+        "translation": "nobles, and brahmins, here in the world,",
+        "source": "cnd2:14.3_0"
+    },
+    {
+        "source_sentence": "Yaññamakappayiṁsu puthūdha loke,",
+        "translation": "offered many sacrifices to the gods,",
+        "source": "cnd2:14.4_0"
+    },
+    {
+        "source_sentence": "Kaccisu te bhagavā yaññapathe appamattā;",
+        "translation": "Can the Fortunate One, find such sacrifices?",
+        "source": "cnd2:14.5_0"
+    },
+    {
+        "source_sentence": "Atāruṁ jātiñca jarañca mārisa,",
+        "translation": "has crushed out birth and old age, dear Sir,",
+        "source": "cnd2:14.6_0"
+    },
+    {
+        "source_sentence": "Pucchāmi taṁ bhagavā brūhi metaṁ”.",
+        "translation": "I ask you, Fortunate One, please tell this to me.”",
+        "source": "cnd2:14.7_0"
+    },
+    {
+        "source_sentence": "“Āsīsanti thomayanti abhijappanti juhanti,",
+        "translation": "“They are the’s lion, they strike a fire and fire,",
+        "source": "cnd2:15.1_0"
+    },
+    {
+        "source_sentence": "(puṇṇakāti bhagavā)",
+        "translation": "said the Buddha to Puṇṇaka,",
+        "source": "cnd2:15.2_0"
+    },
+    {
+        "source_sentence": "Kāmābhijappanti paṭicca lābhaṁ;",
+        "translation": "They hunger for sense pleasures, because of gain",
+        "source": "cnd2:15.3_0"
+    },
+    {
+        "source_sentence": "Te yājayogā bhavarāgarattā,",
+        "translation": "they engage in sacrifice, excited by the passion for existence.",
+        "source": "cnd2:15.4_0"
+    },
+    {
+        "source_sentence": "Nātariṁsu jātijaranti brūmi”.",
+        "translation": "they have not crossed over birth and old age, I say.”",
+        "source": "cnd2:15.5_0"
+    },
+    {
+        "source_sentence": "“Te ce nātariṁsu yājayogā,",
+        "translation": "“If those who have not crossed over",
+        "source": "cnd2:16.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā puṇṇako)",
+        "translation": "So much venerable Puṇṇa",
+        "source": "cnd2:16.2_0"
+    },
+    {
+        "source_sentence": "Yaññehi jātiñca jarañca mārisa;",
+        "translation": "birth and old age by their sacrifices, dear Sir,",
+        "source": "cnd2:16.3_0"
+    },
+    {
+        "source_sentence": "Atha ko carahi devamanussaloke,",
+        "translation": "then just who in the world of the Gods and men",
+        "source": "cnd2:16.4_0"
+    },
+    {
+        "source_sentence": "Atāri jātiñca jarañca mārisa;",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd2:16.5_0"
+    },
+    {
+        "source_sentence": "Pucchāmi taṁ bhagavā brūhi metaṁ”.",
+        "translation": "I ask you, Fortunate One, please tell this to me.”",
+        "source": "cnd2:16.6_0"
+    },
+    {
+        "source_sentence": "“Saṅkhāya lokasmi paroparāni,",
+        "translation": "“The world’s the next world,",
+        "source": "cnd2:17.1_0"
+    },
+    {
+        "source_sentence": "(puṇṇakāti bhagavā)",
+        "translation": "said the Buddha to Puṇṇaka,",
+        "source": "cnd2:17.2_0"
+    },
+    {
+        "source_sentence": "Yassiñjitaṁ natthi kuhiñci loke;",
+        "translation": "He has no agitation in the world.",
+        "source": "cnd2:17.3_0"
+    },
+    {
+        "source_sentence": "Santo vidhūmo anīgho nirāso,",
+        "translation": "Peaceful, unclouded, untroubled, with no need for hope,",
+        "source": "cnd2:17.4_0"
+    },
+    {
+        "source_sentence": "Atāri so jātijaranti brūmī”ti.",
+        "translation": "they’ve crossed over birth and old age, I declare.”",
+        "source": "cnd2:17.5_0"
+    },
+    {
+        "source_sentence": "Puṇṇakamāṇavapucchā tatiyā.",
+        "translation": "The third asking of the Sakyans",
+        "source": "cnd2:17.6_0"
+    },
+    {
+        "source_sentence": "4. Mettagūmāṇavapucchā",
+        "translation": "4. Mettagūmāṇavapucchā",
+        "source": "cnd2:18.0_0"
+    },
+    {
+        "source_sentence": "“Pucchāmi taṁ bhagavā brūhi metaṁ,",
+        "translation": "“I ask you, Fortunate One, please tell this to me,",
+        "source": "cnd2:18.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā mettagū)",
+        "translation": "said venerable Mettiya,",
+        "source": "cnd2:18.2_0"
+    },
+    {
+        "source_sentence": "Maññāmi taṁ vedaguṁ bhāvitattaṁ;",
+        "translation": "I think you have true understanding, and a developed self -",
+        "source": "cnd2:18.3_0"
+    },
+    {
+        "source_sentence": "Kuto nu dukkhā samudāgatā ime,",
+        "translation": "how have these countless kinds of suffering",
+        "source": "cnd2:18.4_0"
+    },
+    {
+        "source_sentence": "Ye keci lokasmimanekarūpā”.",
+        "translation": "Of those who know the world in the world,.”",
+        "source": "cnd2:18.5_0"
+    },
+    {
+        "source_sentence": "“Dukkhassa ve maṁ pabhavaṁ apucchasi,",
+        "translation": "“You asked me about the origin of suffering,",
+        "source": "cnd2:19.1_0"
+    },
+    {
+        "source_sentence": "(mettagūti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:19.2_0"
+    },
+    {
+        "source_sentence": "Taṁ te pavakkhāmi yathā pajānaṁ;",
+        "translation": "as I know it I will declare it to you:",
+        "source": "cnd2:19.3_0"
+    },
+    {
+        "source_sentence": "Upadhinidānā pabhavanti dukkhā,",
+        "translation": "Because of clinging to a basis",
+        "source": "cnd2:19.4_0"
+    },
+    {
+        "source_sentence": "Ye keci lokasmimanekarūpā.",
+        "translation": "Whatever in the world beyond,",
+        "source": "cnd2:19.5_0"
+    },
+    {
+        "source_sentence": "Yo ve avidvā upadhiṁ karoti,",
+        "translation": "The foolish one, without wisdom, clings to a basis,",
+        "source": "cnd2:20.1_0"
+    },
+    {
+        "source_sentence": "Punappunaṁ dukkhamupeti mando;",
+        "translation": "that idiot returns to suffering again and again.",
+        "source": "cnd2:20.2_0"
+    },
+    {
+        "source_sentence": "Tasmā pajānaṁ upadhiṁ na kayirā,",
+        "translation": "So let one who understands not build up attachments:",
+        "source": "cnd2:20.3_0"
+    },
+    {
+        "source_sentence": "Dukkhassa jātippabhavānupassī”.",
+        "translation": "seeing the birth and origin of suffering.”",
+        "source": "cnd2:20.4_0"
+    },
+    {
+        "source_sentence": "“Yaṁ taṁ apucchimha akittayī no,",
+        "translation": "“This is what we have done, not what is unself.",
+        "source": "cnd2:21.1_0"
+    },
+    {
+        "source_sentence": "Aññaṁ taṁ pucchāma tadiṅgha brūhi;",
+        "translation": "Please ask another question, Please tell this to me.",
+        "source": "cnd2:21.2_0"
+    },
+    {
+        "source_sentence": "‘Kathaṁ nu dhīrā vitaranti oghaṁ,",
+        "translation": "‘How do the wise ones cross over the flood,",
+        "source": "cnd2:21.3_0"
+    },
+    {
+        "source_sentence": "Jātiṁ jaraṁ sokapariddavañca’;",
+        "translation": "of birth, old age, grief, and lamentation?’",
+        "source": "cnd2:21.4_0"
+    },
+    {
+        "source_sentence": "Taṁ me muni sādhu viyākarohi,",
+        "translation": "Please explain this to me, O sage,",
+        "source": "cnd2:21.5_0"
+    },
+    {
+        "source_sentence": "Tathā hi te vidito esa dhammo”.",
+        "translation": "for this Teaching has been understood by you.”",
+        "source": "cnd2:21.6_0"
+    },
+    {
+        "source_sentence": "“Kittayissāmi te dhammaṁ,",
+        "translation": "“What can I teach you the Dhamma for you?",
+        "source": "cnd2:22.1_0"
+    },
+    {
+        "source_sentence": "(mettagūti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:22.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhe dhamme anītihaṁ;",
+        "translation": "in this very life, non-returner.",
+        "source": "cnd2:22.3_0"
+    },
+    {
+        "source_sentence": "Yaṁ viditvā sato caraṁ,",
+        "translation": "When a person understands the mindful and",
+        "source": "cnd2:22.4_0"
+    },
+    {
+        "source_sentence": "Tare loke visattikaṁ”.",
+        "translation": "like the sunk in the world.”",
+        "source": "cnd2:22.5_0"
+    },
+    {
+        "source_sentence": "“Tañcāhaṁ abhinandāmi,",
+        "translation": "“I greatly rejoice in that,",
+        "source": "cnd2:23.1_0"
+    },
+    {
+        "source_sentence": "mahesi dhammamuttamaṁ;",
+        "translation": "the supreme Dhamma.",
+        "source": "cnd2:23.2_0"
+    },
+    {
+        "source_sentence": "Yaṁ viditvā sato caraṁ,",
+        "translation": "When a person understands the mindful and",
+        "source": "cnd2:23.3_0"
+    },
+    {
+        "source_sentence": "tare loke visattikaṁ”.",
+        "translation": "like the sunk in the world.”",
+        "source": "cnd2:23.4_0"
+    },
+    {
+        "source_sentence": "“Yaṁ kiñci sampajānāsi,",
+        "translation": "“Whatever you know,",
+        "source": "cnd2:24.1_0"
+    },
+    {
+        "source_sentence": "(mettagūti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:24.2_0"
+    },
+    {
+        "source_sentence": "Uddhaṁ adho tiriyañcāpi majjhe;",
+        "translation": "above, below, and across the middle,",
+        "source": "cnd2:24.3_0"
+    },
+    {
+        "source_sentence": "Etesu nandiñca nivesanañca,",
+        "translation": "(There are) not seen these rivers and homes,",
+        "source": "cnd2:24.4_0"
+    },
+    {
+        "source_sentence": "Panujja viññāṇaṁ bhave na tiṭṭhe.",
+        "translation": "and consciousness,",
+        "source": "cnd2:24.5_0"
+    },
+    {
+        "source_sentence": "Evaṁvihārī sato appamatto,",
+        "translation": "Living in this way, mindful, and heedful,",
+        "source": "cnd2:25.1_0"
+    },
+    {
+        "source_sentence": "Bhikkhu caraṁ hitvā mamāyitāni;",
+        "translation": "the monk who lives on after giving up loved things,",
+        "source": "cnd2:25.2_0"
+    },
+    {
+        "source_sentence": "Jātiṁ jaraṁ sokapariddavañca,",
+        "translation": "of birth, old age, grief, and lamentation?",
+        "source": "cnd2:25.3_0"
+    },
+    {
+        "source_sentence": "Idheva vidvā pajaheyya dukkhaṁ”.",
+        "translation": "grief, lamentation, and suffering right here.”",
+        "source": "cnd2:25.4_0"
+    },
+    {
+        "source_sentence": "“Etābhinandāmi vaco mahesino,",
+        "translation": "“I greatly rejoice in that, the great hermit!",
+        "source": "cnd2:26.1_0"
+    },
+    {
+        "source_sentence": "Sukittitaṁ gotamanūpadhīkaṁ;",
+        "translation": "Gotamaks, well-free:",
+        "source": "cnd2:26.2_0"
+    },
+    {
+        "source_sentence": "Addhā hi bhagavā pahāsi dukkhaṁ,",
+        "translation": "Surely the Fortunate One gave up suffering,",
+        "source": "cnd2:26.3_0"
+    },
+    {
+        "source_sentence": "Tathā hi te vidito esa dhammo.",
+        "translation": "for this Teaching has been understood by you.",
+        "source": "cnd2:26.4_0"
+    },
+    {
+        "source_sentence": "Te cāpi nūnappajaheyyu dukkhaṁ,",
+        "translation": "Now that suffering may (etc.)",
+        "source": "cnd2:27.1_0"
+    },
+    {
+        "source_sentence": "Ye tvaṁ muni aṭṭhitaṁ ovadeyya;",
+        "translation": "whomever you would continually advise, O Sage,",
+        "source": "cnd2:27.2_0"
+    },
+    {
+        "source_sentence": "Taṁ taṁ namassāmi samecca nāga,",
+        "translation": "therefore having met the future, I revere you,",
+        "source": "cnd2:27.3_0"
+    },
+    {
+        "source_sentence": "Appeva maṁ bhagavā aṭṭhitaṁ ovadeyya”.",
+        "translation": "May the Buddha please advise me",
+        "source": "cnd2:27.4_0"
+    },
+    {
+        "source_sentence": "“Yaṁ brāhmaṇaṁ vedagumābhijaññā,",
+        "translation": "“That brāhmaṇa who has true understanding, a knowledge master,",
+        "source": "cnd2:28.1_0"
+    },
+    {
+        "source_sentence": "Akiñcanaṁ kāmabhave asattaṁ;",
+        "translation": "who has nothing, and is not clinging to sense existence,",
+        "source": "cnd2:28.2_0"
+    },
+    {
+        "source_sentence": "Addhā hi so oghamimaṁ atāri,",
+        "translation": "for he has surely crossed over the flood,",
+        "source": "cnd2:28.3_0"
+    },
+    {
+        "source_sentence": "Tiṇṇo ca pāraṁ akhilo akaṅkho.",
+        "translation": "without hindrance or doubt, he has crossed beyond.",
+        "source": "cnd2:28.4_0"
+    },
+    {
+        "source_sentence": "Vidvā ca yo vedagū naro idha,",
+        "translation": "That man who is wise, and has true understanding,",
+        "source": "cnd2:29.1_0"
+    },
+    {
+        "source_sentence": "Bhavābhave saṅgamimaṁ visajja;",
+        "translation": "who has released the shackle of repeated existence,",
+        "source": "cnd2:29.2_0"
+    },
+    {
+        "source_sentence": "So vītataṇho anīgho nirāso,",
+        "translation": "he is craving-free, not troubled, not yearning -",
+        "source": "cnd2:29.3_0"
+    },
+    {
+        "source_sentence": "Atāri so jātijaranti brūmī”ti.",
+        "translation": "they’ve crossed over birth and old age, I declare.”",
+        "source": "cnd2:29.4_0"
+    },
+    {
+        "source_sentence": "Mettagūmāṇavapucchā catutthī.",
+        "translation": "Longing on the four sides",
+        "source": "cnd2:29.5_0"
+    },
+    {
+        "source_sentence": "5. Dhotakamāṇavapucchā",
+        "translation": "5. Dhotakamāṇavapucchā",
+        "source": "cnd2:30.0_0"
+    },
+    {
+        "source_sentence": "“Pucchāmi taṁ bhagavā brūhi metaṁ,",
+        "translation": "“I ask you, Fortunate One, please tell this to me,",
+        "source": "cnd2:30.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā dhotako)",
+        "translation": "Dispeller, venerable Dhotaka,",
+        "source": "cnd2:30.2_0"
+    },
+    {
+        "source_sentence": "Vācābhikaṅkhāmi mahesi tuyhaṁ;",
+        "translation": "I long for the sake of your doubt,",
+        "source": "cnd2:30.3_0"
+    },
+    {
+        "source_sentence": "Tava sutvāna nigghosaṁ,",
+        "translation": "Having heard your words, he reached maturity,",
+        "source": "cnd2:30.4_0"
+    },
+    {
+        "source_sentence": "Sikkhe nibbānamattano”.",
+        "translation": "trained in my own training.”",
+        "source": "cnd2:30.5_0"
+    },
+    {
+        "source_sentence": "“Tenahātappaṁ karohi,",
+        "translation": "“Then, giving a little,",
+        "source": "cnd2:31.1_0"
+    },
+    {
+        "source_sentence": "(dhotakāti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:31.2_0"
+    },
+    {
+        "source_sentence": "Idheva nipako sato;",
+        "translation": "Living in this life, alert and mindful,",
+        "source": "cnd2:31.3_0"
+    },
+    {
+        "source_sentence": "Ito sutvāna nigghosaṁ,",
+        "translation": "Having heard these words, catching the flood",
+        "source": "cnd2:31.4_0"
+    },
+    {
+        "source_sentence": "Sikkhe nibbānamattano”.",
+        "translation": "trained in my own training.”",
+        "source": "cnd2:31.5_0"
+    },
+    {
+        "source_sentence": "“Passāmahaṁ devamanussaloke,",
+        "translation": "“I see in the world with its gods and men,",
+        "source": "cnd2:32.1_0"
+    },
+    {
+        "source_sentence": "Akiñcanaṁ brāhmaṇamiriyamānaṁ;",
+        "translation": "a brahmin who moves about having nothing,",
+        "source": "cnd2:32.2_0"
+    },
+    {
+        "source_sentence": "Taṁ taṁ namassāmi samantacakkhu,",
+        "translation": "therefore I revere you, All-Seeing Visionary,",
+        "source": "cnd2:32.3_0"
+    },
+    {
+        "source_sentence": "Pamuñca maṁ sakka kathaṅkathāhi”.",
+        "translation": "O Sakyan, please free me from my doubts.”",
+        "source": "cnd2:32.4_0"
+    },
+    {
+        "source_sentence": "“Nāhaṁ sahissāmi pamocanāya,",
+        "translation": "“I will not be able to free",
+        "source": "cnd2:33.1_0"
+    },
+    {
+        "source_sentence": "Kathaṅkathiṁ dhotaka kañci loke;",
+        "translation": "anyone in the world who is having doubts,",
+        "source": "cnd2:33.2_0"
+    },
+    {
+        "source_sentence": "Dhammañca seṭṭhaṁ abhijānamāno,",
+        "translation": "but knowing (Nibbāna), the best thing,",
+        "source": "cnd2:33.3_0"
+    },
+    {
+        "source_sentence": "Evaṁ tuvaṁ oghamimaṁ taresi”.",
+        "translation": "in this way you can cross over the flood.”",
+        "source": "cnd2:33.4_0"
+    },
+    {
+        "source_sentence": "“Anusāsa brahme karuṇāyamāno,",
+        "translation": "“When pursued this, he is very compassionate,",
+        "source": "cnd2:34.1_0"
+    },
+    {
+        "source_sentence": "Vivekadhammaṁ yamahaṁ vijaññaṁ;",
+        "translation": "the state of detachment that I should know,",
+        "source": "cnd2:34.2_0"
+    },
+    {
+        "source_sentence": "Yathāhaṁ ākāsova abyāpajjamāno,",
+        "translation": "like a goose, like a lovely pain.",
+        "source": "cnd2:34.3_0"
+    },
+    {
+        "source_sentence": "Idheva santo asito careyyaṁ”.",
+        "translation": "may live peaceful and independent right here.”",
+        "source": "cnd2:34.4_0"
+    },
+    {
+        "source_sentence": "“Kittayissāmi te santiṁ,",
+        "translation": "“What have I found peace for you?",
+        "source": "cnd2:35.1_0"
+    },
+    {
+        "source_sentence": "(dhotakāti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:35.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhe dhamme anītihaṁ;",
+        "translation": "in this very life, non-returner.",
+        "source": "cnd2:35.3_0"
+    },
+    {
+        "source_sentence": "Yaṁ viditvā sato caraṁ,",
+        "translation": "When a person understands the mindful and",
+        "source": "cnd2:35.4_0"
+    },
+    {
+        "source_sentence": "Tare loke visattikaṁ”.",
+        "translation": "like the sunk in the world.”",
+        "source": "cnd2:35.5_0"
+    },
+    {
+        "source_sentence": "“Tañcāhaṁ abhinandāmi,",
+        "translation": "“I greatly rejoice in that,",
+        "source": "cnd2:36.1_0"
+    },
+    {
+        "source_sentence": "mahesi santimuttamaṁ;",
+        "translation": "great seer.",
+        "source": "cnd2:36.2_0"
+    },
+    {
+        "source_sentence": "Yaṁ viditvā sato caraṁ,",
+        "translation": "When a person understands the mindful and",
+        "source": "cnd2:36.3_0"
+    },
+    {
+        "source_sentence": "tare loke visattikaṁ”.",
+        "translation": "like the sunk in the world.”",
+        "source": "cnd2:36.4_0"
+    },
+    {
+        "source_sentence": "“Yaṁ kiñci sampajānāsi,",
+        "translation": "“Whatever you know,",
+        "source": "cnd2:37.1_0"
+    },
+    {
+        "source_sentence": "(dhotakāti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:37.2_0"
+    },
+    {
+        "source_sentence": "Uddhaṁ adho tiriyañcāpi majjhe;",
+        "translation": "above, below, and across the middle,",
+        "source": "cnd2:37.3_0"
+    },
+    {
+        "source_sentence": "Etaṁ viditvā saṅgoti loke,",
+        "translation": "having understood this is a chain in the world,",
+        "source": "cnd2:37.4_0"
+    },
+    {
+        "source_sentence": "Bhavābhavāya mākāsi taṇhan”ti.",
+        "translation": "you must not have craving for repeated existence.”",
+        "source": "cnd2:37.5_0"
+    },
+    {
+        "source_sentence": "Dhotakamāṇavapucchā pañcamī.",
+        "translation": "Five are the fifth questions.”",
+        "source": "cnd2:37.6_0"
+    },
+    {
+        "source_sentence": "6. Upasīvamāṇavapucchā",
+        "translation": "6. Upasīvamāṇavapucchā",
+        "source": "cnd2:38.0_0"
+    },
+    {
+        "source_sentence": "“Eko ahaṁ sakka mahantamoghaṁ,",
+        "translation": "“I am the great hermit, Sakka, the Lord of the World,",
+        "source": "cnd2:38.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā upasīvo)",
+        "translation": "Venerable Upasīva,",
+        "source": "cnd2:38.2_0"
+    },
+    {
+        "source_sentence": "Anissito no visahāmi tārituṁ;",
+        "translation": "I am not able to cross over the great flood.",
+        "source": "cnd2:38.3_0"
+    },
+    {
+        "source_sentence": "Ārammaṇaṁ brūhi samantacakkhu,",
+        "translation": "Please tell me of a support, All-Seeing Visionary,",
+        "source": "cnd2:38.4_0"
+    },
+    {
+        "source_sentence": "Yaṁ nissito oghamimaṁ tareyyaṁ”.",
+        "translation": "what can I cross over the flood.”",
+        "source": "cnd2:38.5_0"
+    },
+    {
+        "source_sentence": "“Ākiñcaññaṁ pekkhamāno satimā,",
+        "translation": "“Why, when sickness and mindfulness,",
+        "source": "cnd2:39.1_0"
+    },
+    {
+        "source_sentence": "(upasīvāti bhagavā)",
+        "translation": "he is qualified.",
+        "source": "cnd2:39.2_0"
+    },
+    {
+        "source_sentence": "Natthīti nissāya tarassu oghaṁ;",
+        "translation": "depending on nothing, cross over the flood.",
+        "source": "cnd2:39.3_0"
+    },
+    {
+        "source_sentence": "Kāme pahāya virato kathāhi,",
+        "translation": "Having given up sense pleasures, abstaining from talk,",
+        "source": "cnd2:39.4_0"
+    },
+    {
+        "source_sentence": "Taṇhakkhayaṁ nattamahābhipassa”.",
+        "translation": "day and night you must look for the end of suffering.”",
+        "source": "cnd2:39.5_0"
+    },
+    {
+        "source_sentence": "“Sabbesu kāmesu yo vītarāgo,",
+        "translation": "“He who is passionless in regard to all sense pleasures,",
+        "source": "cnd2:40.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā upasīvo)",
+        "translation": "Venerable Upasīva,",
+        "source": "cnd2:40.2_0"
+    },
+    {
+        "source_sentence": "Ākiñcaññaṁ nissito hitvā maññaṁ;",
+        "translation": "who is depending on nothingness, having given up sense pleasures,",
+        "source": "cnd2:40.3_0"
+    },
+    {
+        "source_sentence": "Saññāvimokkhe paramedhimutto,",
+        "translation": "intent on the highest freedom which still has perception -",
+        "source": "cnd2:40.4_0"
+    },
+    {
+        "source_sentence": "Tiṭṭhe nu so tattha anānuyāyī”.",
+        "translation": "will he remain there without going away?”",
+        "source": "cnd2:40.5_0"
+    },
+    {
+        "source_sentence": "“Sabbesu kāmesu yo vītarāgo,",
+        "translation": "“He who is passionless in regard to all sense pleasures,",
+        "source": "cnd2:41.1_0"
+    },
+    {
+        "source_sentence": "(upasīvāti bhagavā)",
+        "translation": "he is qualified.",
+        "source": "cnd2:41.2_0"
+    },
+    {
+        "source_sentence": "Ākiñcaññaṁ nissito hitvā maññaṁ;",
+        "translation": "who is depending on nothingness, having given up sense pleasures,",
+        "source": "cnd2:41.3_0"
+    },
+    {
+        "source_sentence": "Saññāvimokkhe paramedhimutto,",
+        "translation": "intent on the highest freedom which still has perception -",
+        "source": "cnd2:41.4_0"
+    },
+    {
+        "source_sentence": "Tiṭṭheyya so tattha anānuyāyī”.",
+        "translation": "he will remain there without going away.”",
+        "source": "cnd2:41.5_0"
+    },
+    {
+        "source_sentence": "“Tiṭṭhe ce so tattha anānuyāyī,",
+        "translation": "“If he remains there without going away",
+        "source": "cnd2:42.1_0"
+    },
+    {
+        "source_sentence": "Pūgampi vassānaṁ samantacakkhu;",
+        "translation": "for a great number of years, All-Seeing Visionary,",
+        "source": "cnd2:42.2_0"
+    },
+    {
+        "source_sentence": "Tattheva so sītisiyā vimutto,",
+        "translation": "I’ll freed in the cold,",
+        "source": "cnd2:42.3_0"
+    },
+    {
+        "source_sentence": "Cavetha viññāṇaṁ tathāvidhassa”.",
+        "translation": "or will the consciousness of such a one fall away?”",
+        "source": "cnd2:42.4_0"
+    },
+    {
+        "source_sentence": "“Acci yathā vātavegena khittā,",
+        "translation": "“Just as a flame swept away by the wind,",
+        "source": "cnd2:43.1_0"
+    },
+    {
+        "source_sentence": "(upasīvāti bhagavā)",
+        "translation": "he is qualified.",
+        "source": "cnd2:43.2_0"
+    },
+    {
+        "source_sentence": "Atthaṁ paleti na upeti saṅkhaṁ;",
+        "translation": "goes to rest and can no longer be discerned,",
+        "source": "cnd2:43.3_0"
+    },
+    {
+        "source_sentence": "Evaṁ munī nāmakāyā vimutto,",
+        "translation": "just so the Sage free from the mental body",
+        "source": "cnd2:43.4_0"
+    },
+    {
+        "source_sentence": "Atthaṁ paleti na upeti saṅkhaṁ”.",
+        "translation": "goes to rest and can no longer be discerned.”",
+        "source": "cnd2:43.5_0"
+    },
+    {
+        "source_sentence": "“Atthaṅgato so uda vā so natthi,",
+        "translation": "“There is no strike or filler,",
+        "source": "cnd2:44.1_0"
+    },
+    {
+        "source_sentence": "Udāhu ve sassatiyā arogo;",
+        "translation": "Or is it possible to gourd",
+        "source": "cnd2:44.2_0"
+    },
+    {
+        "source_sentence": "Taṁ me munī sādhu viyākarohi,",
+        "translation": "Please explain this to me, O sage,",
+        "source": "cnd2:44.3_0"
+    },
+    {
+        "source_sentence": "Tathā hi te vidito esa dhammo”.",
+        "translation": "for this Teaching has been understood by you.”",
+        "source": "cnd2:44.4_0"
+    },
+    {
+        "source_sentence": "“Atthaṅgatassa na pamāṇamatthi,",
+        "translation": "“There is no wavering in going,",
+        "source": "cnd2:45.1_0"
+    },
+    {
+        "source_sentence": "(upasīvāti bhagavā)",
+        "translation": "he is qualified.",
+        "source": "cnd2:45.2_0"
+    },
+    {
+        "source_sentence": "Yena naṁ vajjuṁ taṁ tassa natthi;",
+        "translation": "by which one might have no fault,",
+        "source": "cnd2:45.3_0"
+    },
+    {
+        "source_sentence": "Sabbesu dhammesu samūhatesu,",
+        "translation": "when everything has been completely removed,",
+        "source": "cnd2:45.4_0"
+    },
+    {
+        "source_sentence": "Samūhatā vādapathāpi sabbe”ti.",
+        "translation": "and all the way of speaking the path.”",
+        "source": "cnd2:45.5_0"
+    },
+    {
+        "source_sentence": "Upasīvamāṇavapucchā chaṭṭhī.",
+        "translation": "At Upasīva, Sīvaṇavatī, and Sīvalī,",
+        "source": "cnd2:45.6_0"
+    },
+    {
+        "source_sentence": "7. Nandamāṇavapucchā",
+        "translation": "7. Nandamāṇavapucchā",
+        "source": "cnd2:46.0_0"
+    },
+    {
+        "source_sentence": "“Santi loke munayo,",
+        "translation": "“There are sages in the world,",
+        "source": "cnd2:46.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "So venerable Nanda,",
+        "source": "cnd2:46.2_0"
+    },
+    {
+        "source_sentence": "Janā vadanti tayidaṁ kathaṁsu;",
+        "translation": "that is what people say - how is this so?",
+        "source": "cnd2:46.3_0"
+    },
+    {
+        "source_sentence": "Ñāṇūpapannaṁ muni no vadanti,",
+        "translation": "Do they say he is a sage because he has knowledge",
+        "source": "cnd2:46.4_0"
+    },
+    {
+        "source_sentence": "Udāhu ve jīvitenūpapannaṁ”.",
+        "translation": "Or because of the life he leads?”",
+        "source": "cnd2:46.5_0"
+    },
+    {
+        "source_sentence": "“Na diṭṭhiyā na sutiyā na ñāṇena,",
+        "translation": "“Not by view, tradition, or knowledge,",
+        "source": "cnd2:47.1_0"
+    },
+    {
+        "source_sentence": "Munīdha nanda kusalā vadanti;",
+        "translation": "covetousness speaks,",
+        "source": "cnd2:47.2_0"
+    },
+    {
+        "source_sentence": "Visenikatvā anīghā nirāsā,",
+        "translation": "Without making use of, without destroying the flood,",
+        "source": "cnd2:47.3_0"
+    },
+    {
+        "source_sentence": "Caranti ye te munayoti brūmi”.",
+        "translation": "not yearning, they are sages, I say.”",
+        "source": "cnd2:47.4_0"
+    },
+    {
+        "source_sentence": "“Ye kecime samaṇabrāhmaṇāse,",
+        "translation": "“Those ascetics and brahmins who",
+        "source": "cnd2:48.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "venerable Nanda,",
+        "source": "cnd2:48.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhassutenāpi vadanti suddhiṁ;",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd2:48.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbatenāpi vadanti suddhiṁ,",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd2:48.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpena vadanti suddhiṁ;",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd2:48.5_0"
+    },
+    {
+        "source_sentence": "Kaccissu te bhagavā tattha yatā carantā,",
+        "translation": "Fortunate One, perhaps those living restrained in this way",
+        "source": "cnd2:48.6_0"
+    },
+    {
+        "source_sentence": "Atāru jātiñca jarañca mārisa;",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd2:48.7_0"
+    },
+    {
+        "source_sentence": "Pucchāmi taṁ bhagavā brūhi metaṁ”.",
+        "translation": "I ask you, Fortunate One, please tell this to me.”",
+        "source": "cnd2:48.8_0"
+    },
+    {
+        "source_sentence": "“Ye kecime samaṇabrāhmaṇāse,",
+        "translation": "“Those ascetics and brahmins who",
+        "source": "cnd2:49.1_0"
+    },
+    {
+        "source_sentence": "(nandāti bhagavā)",
+        "translation": "And he said the Buddha Nandā,",
+        "source": "cnd2:49.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhassutenāpi vadanti suddhiṁ;",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd2:49.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbatenāpi vadanti suddhiṁ,",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd2:49.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpena vadanti suddhiṁ;",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd2:49.5_0"
+    },
+    {
+        "source_sentence": "Kiñcāpi te tattha yatā caranti,",
+        "translation": "although they are living restrained in this way,",
+        "source": "cnd2:49.6_0"
+    },
+    {
+        "source_sentence": "Nātariṁsu jātijaranti brūmi”.",
+        "translation": "they have not crossed over birth and old age, I say.”",
+        "source": "cnd2:49.7_0"
+    },
+    {
+        "source_sentence": "“Ye kecime samaṇabrāhmaṇāse,",
+        "translation": "“Those ascetics and brahmins who",
+        "source": "cnd2:50.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "venerable Nanda,",
+        "source": "cnd2:50.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhassutenāpi vadanti suddhiṁ;",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd2:50.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbatenāpi vadanti suddhiṁ,",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd2:50.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpena vadanti suddhiṁ;",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd2:50.5_0"
+    },
+    {
+        "source_sentence": "Te ce muni brūsi anoghatiṇṇe,",
+        "translation": "if you say these sages have not crossed the flood,",
+        "source": "cnd2:50.6_0"
+    },
+    {
+        "source_sentence": "Atha ko carahi devamanussaloke;",
+        "translation": "then just who in the world of the Gods and men",
+        "source": "cnd2:50.7_0"
+    },
+    {
+        "source_sentence": "Atāri jātiñca jarañca mārisa,",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd2:50.8_0"
+    },
+    {
+        "source_sentence": "Pucchāmi taṁ bhagavā brūhi metaṁ”.",
+        "translation": "I ask you, Fortunate One, please tell this to me.”",
+        "source": "cnd2:50.9_0"
+    },
+    {
+        "source_sentence": "“Nāhaṁ sabbe samaṇabrāhmaṇāse,",
+        "translation": "“I do not say that all ascetics and brahmins,",
+        "source": "cnd2:51.1_0"
+    },
+    {
+        "source_sentence": "(nandāti bhagavā)",
+        "translation": "And he said the Buddha Nandā,",
+        "source": "cnd2:51.2_0"
+    },
+    {
+        "source_sentence": "Jātijarāya nivutāti brūmi;",
+        "translation": "are enveloped in birth and old age:",
+        "source": "cnd2:51.3_0"
+    },
+    {
+        "source_sentence": "Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā,",
+        "translation": "whoever here has given up (reliance on) what is seen,",
+        "source": "cnd2:51.4_0"
+    },
+    {
+        "source_sentence": "Sīlabbataṁ vāpi pahāya sabbaṁ;",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "cnd2:51.5_0"
+    },
+    {
+        "source_sentence": "Anekarūpampi pahāya sabbaṁ,",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd2:51.6_0"
+    },
+    {
+        "source_sentence": "Taṇhaṁ pariññāya anāsavāse;",
+        "translation": "who, by fully knowing craving, are pollutant-free -",
+        "source": "cnd2:51.7_0"
+    },
+    {
+        "source_sentence": "Te ve narā oghatiṇṇāti brūmi”.",
+        "translation": "you don’t have the flood swells.”",
+        "source": "cnd2:51.8_0"
+    },
+    {
+        "source_sentence": "“Etābhinandāmi vaco mahesino,",
+        "translation": "“I greatly rejoice in that, the great hermit!",
+        "source": "cnd2:52.1_0"
+    },
+    {
+        "source_sentence": "Sukittitaṁ gotamanūpadhīkaṁ;",
+        "translation": "Gotamaks, well-free:",
+        "source": "cnd2:52.2_0"
+    },
+    {
+        "source_sentence": "Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā,",
+        "translation": "whoever here has given up (reliance on) what is seen,",
+        "source": "cnd2:52.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbataṁ vāpi pahāya sabbaṁ;",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "cnd2:52.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpampi pahāya sabbaṁ,",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd2:52.5_0"
+    },
+    {
+        "source_sentence": "Taṇhaṁ pariññāya anāsavāse;",
+        "translation": "who, by fully knowing craving, are pollutant-free -",
+        "source": "cnd2:52.6_0"
+    },
+    {
+        "source_sentence": "Ahampi te oghatiṇṇāti brūmī”ti.",
+        "translation": "I have crossed the flood.”",
+        "source": "cnd2:52.7_0"
+    },
+    {
+        "source_sentence": "Nandamāṇavapucchā sattamā.",
+        "translation": "Seven on Nandana’s Moon",
+        "source": "cnd2:52.8_0"
+    },
+    {
+        "source_sentence": "8. Hemakamāṇavapucchā",
+        "translation": "8. Hemakamāṇavapucchā",
+        "source": "cnd2:53.0_0"
+    },
+    {
+        "source_sentence": "“Ye me pubbe viyākaṁsu,",
+        "translation": "“Those who explained (things) to me in the past,",
+        "source": "cnd2:53.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā hemako)",
+        "translation": "ʻNo doubt is so, venerable.",
+        "source": "cnd2:53.2_0"
+    },
+    {
+        "source_sentence": "Huraṁ gotamasāsanā;",
+        "translation": "Gotama’s intention.",
+        "source": "cnd2:53.3_0"
+    },
+    {
+        "source_sentence": "Iccāsi iti bhavissati,",
+        "translation": "there will be for one like that,",
+        "source": "cnd2:53.4_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ taṁ itihītihaṁ;",
+        "translation": "it is all that was just hearing.",
+        "source": "cnd2:53.5_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ taṁ takkavaḍḍhanaṁ,",
+        "translation": "all that just increased my thoughts.",
+        "source": "cnd2:53.6_0"
+    },
+    {
+        "source_sentence": "Nāhaṁ tattha abhiramiṁ.",
+        "translation": "I didn’t delight there.",
+        "source": "cnd2:53.7_0"
+    },
+    {
+        "source_sentence": "Tvañca me dhammamakkhāhi,",
+        "translation": "You must explain the Teaching to me,",
+        "source": "cnd2:54.1_0"
+    },
+    {
+        "source_sentence": "taṇhānigghātanaṁ muni;",
+        "translation": "the sage gone to the end of craving,",
+        "source": "cnd2:54.2_0"
+    },
+    {
+        "source_sentence": "Yaṁ viditvā sato caraṁ,",
+        "translation": "When a person understands the mindful and",
+        "source": "cnd2:54.3_0"
+    },
+    {
+        "source_sentence": "tare loke visattikaṁ”.",
+        "translation": "like the sunk in the world.”",
+        "source": "cnd2:54.4_0"
+    },
+    {
+        "source_sentence": "“Idha diṭṭhasutamutaviññātesu,",
+        "translation": "“In regard to this seen, heard, sensed, or cognized,",
+        "source": "cnd2:55.1_0"
+    },
+    {
+        "source_sentence": "Piyarūpesu hemaka;",
+        "translation": "Embowls",
+        "source": "cnd2:55.2_0"
+    },
+    {
+        "source_sentence": "Chandarāgavinodanaṁ,",
+        "translation": "that gets rid of desire and greed.",
+        "source": "cnd2:55.3_0"
+    },
+    {
+        "source_sentence": "Nibbānapadamaccutaṁ.",
+        "translation": "the unsurpassed Dhamma.",
+        "source": "cnd2:55.4_0"
+    },
+    {
+        "source_sentence": "Etadaññāya ye satā,",
+        "translation": "Knowing this, those who are mindful,",
+        "source": "cnd2:56.1_0"
+    },
+    {
+        "source_sentence": "Diṭṭhadhammābhinibbutā;",
+        "translation": "extinguished in this very life.",
+        "source": "cnd2:56.2_0"
+    },
+    {
+        "source_sentence": "Upasantā ca te sadā,",
+        "translation": "you always live always peaceful.",
+        "source": "cnd2:56.3_0"
+    },
+    {
+        "source_sentence": "Tiṇṇā loke visattikan”ti.",
+        "translation": "has crossed over clinging to the world.”",
+        "source": "cnd2:56.4_0"
+    },
+    {
+        "source_sentence": "Hemakamāṇavapucchā aṭṭhamā.",
+        "translation": "the eighth questions of the winter months.",
+        "source": "cnd2:56.5_0"
+    },
+    {
+        "source_sentence": "9. Todeyyamāṇavapucchā",
+        "translation": "9. Todeyyamāṇavapucchā",
+        "source": "cnd2:57.0_0"
+    },
+    {
+        "source_sentence": "“Yasmiṁ kāmā na vasanti,",
+        "translation": "“In whom sensual pleasures don’t stay in the realm,",
+        "source": "cnd2:57.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā todeyyo)",
+        "translation": "said venerable Todeyya,",
+        "source": "cnd2:57.2_0"
+    },
+    {
+        "source_sentence": "Taṇhā yassa na vijjati;",
+        "translation": "who has no craving for craving.",
+        "source": "cnd2:57.3_0"
+    },
+    {
+        "source_sentence": "Kathaṅkathā ca yo tiṇṇo,",
+        "translation": "he who has crossed beyond doubts,",
+        "source": "cnd2:57.4_0"
+    },
+    {
+        "source_sentence": "Vimokkho tassa kīdiso”.",
+        "translation": "What kind of liberation is it?”",
+        "source": "cnd2:57.5_0"
+    },
+    {
+        "source_sentence": "“Yasmiṁ kāmā na vasanti,",
+        "translation": "“In whom sensual pleasures don’t stay in the realm,",
+        "source": "cnd2:58.1_0"
+    },
+    {
+        "source_sentence": "(todeyyāti bhagavā)",
+        "translation": "Todeyya:",
+        "source": "cnd2:58.2_0"
+    },
+    {
+        "source_sentence": "Taṇhā yassa na vijjati;",
+        "translation": "who has no craving for craving.",
+        "source": "cnd2:58.3_0"
+    },
+    {
+        "source_sentence": "Kathaṅkathā ca yo tiṇṇo,",
+        "translation": "he who has crossed beyond doubts,",
+        "source": "cnd2:58.4_0"
+    },
+    {
+        "source_sentence": "Vimokkho tassa nāparo”.",
+        "translation": "there is no liberation for him.”",
+        "source": "cnd2:58.5_0"
+    },
+    {
+        "source_sentence": "“Nirāsaso so uda āsasāno,",
+        "translation": "“She’s healedless, healso with no stomach.",
+        "source": "cnd2:59.1_0"
+    },
+    {
+        "source_sentence": "Paññāṇavā so uda paññakappī;",
+        "translation": "Is he wise, or is he still acquiring wisdom?",
+        "source": "cnd2:59.2_0"
+    },
+    {
+        "source_sentence": "Muniṁ ahaṁ sakka yathā vijaññaṁ,",
+        "translation": "I would know just what the sage is like, Sakyan:",
+        "source": "cnd2:59.3_0"
+    },
+    {
+        "source_sentence": "Taṁ me viyācikkha samantacakkhu”.",
+        "translation": "all that you come out from me.”",
+        "source": "cnd2:59.4_0"
+    },
+    {
+        "source_sentence": "“Nirāsaso so na ca āsasāno,",
+        "translation": "“Shouldn’t heedlessness,",
+        "source": "cnd2:60.1_0"
+    },
+    {
+        "source_sentence": "Paññāṇavā so na ca paññakappī;",
+        "translation": "He is wise, he is not still acquiring wisdom.",
+        "source": "cnd2:60.2_0"
+    },
+    {
+        "source_sentence": "Evampi todeyya muniṁ vijāna,",
+        "translation": "Know that the Sage is just like this, Todeyya:",
+        "source": "cnd2:60.3_0"
+    },
+    {
+        "source_sentence": "Akiñcanaṁ kāmabhave asattan”ti.",
+        "translation": "who has nothing, and is not clinging to sense pleasures?”",
+        "source": "cnd2:60.4_0"
+    },
+    {
+        "source_sentence": "Todeyyamāṇavapucchā navamā.",
+        "translation": "just as you’ll ask for new knowledge.",
+        "source": "cnd2:60.5_0"
+    },
+    {
+        "source_sentence": "10. Kappamāṇavapucchā",
+        "translation": "10. Kappamāṇavapucchā",
+        "source": "cnd2:61.0_0"
+    },
+    {
+        "source_sentence": "“Majjhe sarasmiṁ tiṭṭhataṁ,",
+        "translation": "“For those standing in the middle of a lake,",
+        "source": "cnd2:61.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā kappo)",
+        "translation": "Living on getting what is allowable.",
+        "source": "cnd2:61.2_0"
+    },
+    {
+        "source_sentence": "Oghe jāte mahabbhaye;",
+        "translation": "and born of a great flood,",
+        "source": "cnd2:61.3_0"
+    },
+    {
+        "source_sentence": "Jarāmaccuparetānaṁ,",
+        "translation": "to swep away old age and death?",
+        "source": "cnd2:61.4_0"
+    },
+    {
+        "source_sentence": "Dīpaṁ pabrūhi mārisa;",
+        "translation": "you released the leopard.",
+        "source": "cnd2:61.5_0"
+    },
+    {
+        "source_sentence": "Tvañca me dīpamakkhāhi,",
+        "translation": "you must explain to me",
+        "source": "cnd2:61.6_0"
+    },
+    {
+        "source_sentence": "Yathāyidaṁ nāparaṁ siyā”.",
+        "translation": "likewise the next world.”",
+        "source": "cnd2:61.7_0"
+    },
+    {
+        "source_sentence": "“Majjhe sarasmiṁ tiṭṭhataṁ,",
+        "translation": "“For those standing in the middle of a lake,",
+        "source": "cnd2:62.1_0"
+    },
+    {
+        "source_sentence": "(kappāti bhagavā)",
+        "translation": "Sir, is allowable for us.”",
+        "source": "cnd2:62.2_0"
+    },
+    {
+        "source_sentence": "Oghe jāte mahabbhaye;",
+        "translation": "and born of a great flood,",
+        "source": "cnd2:62.3_0"
+    },
+    {
+        "source_sentence": "Jarāmaccuparetānaṁ,",
+        "translation": "to swep away old age and death?",
+        "source": "cnd2:62.4_0"
+    },
+    {
+        "source_sentence": "Dīpaṁ pabrūmi kappa te.",
+        "translation": "I light a lamp for you.",
+        "source": "cnd2:62.5_0"
+    },
+    {
+        "source_sentence": "Akiñcanaṁ anādānaṁ,",
+        "translation": "one with nothing, never grasping:",
+        "source": "cnd2:63.1_0"
+    },
+    {
+        "source_sentence": "etaṁ dīpaṁ anāparaṁ;",
+        "translation": "this is the island with its own insight,",
+        "source": "cnd2:63.2_0"
+    },
+    {
+        "source_sentence": "Nibbānaṁ iti naṁ brūmi,",
+        "translation": "I call this extinguishment",
+        "source": "cnd2:63.3_0"
+    },
+    {
+        "source_sentence": "jarāmaccuparikkhayaṁ.",
+        "translation": "the roll of old age.",
+        "source": "cnd2:63.4_0"
+    },
+    {
+        "source_sentence": "Etadaññāya ye satā,",
+        "translation": "Knowing this, those who are mindful,",
+        "source": "cnd2:64.1_0"
+    },
+    {
+        "source_sentence": "Diṭṭhadhammābhinibbutā;",
+        "translation": "extinguished in this very life.",
+        "source": "cnd2:64.2_0"
+    },
+    {
+        "source_sentence": "Na te māravasānugā,",
+        "translation": "don’t fall under Māra’s sway,",
+        "source": "cnd2:64.3_0"
+    },
+    {
+        "source_sentence": "Na te mārassa paddhagū”ti.",
+        "translation": "don’t come to bathe.”",
+        "source": "cnd2:64.4_0"
+    },
+    {
+        "source_sentence": "Kappamāṇavapucchā dasamā.",
+        "translation": "Questioning the ninety-nine years after asking questions, for ten months",
+        "source": "cnd2:64.5_0"
+    },
+    {
+        "source_sentence": "11. Jatukaṇṇimāṇavapucchā",
+        "translation": "11. Jatukaṇṇimāṇavapucchā",
+        "source": "cnd2:65.0_0"
+    },
+    {
+        "source_sentence": "“Sutvānahaṁ vīramakāmakāmiṁ,",
+        "translation": "“Having heard of a hero who has no desire for sense pleasures,",
+        "source": "cnd2:65.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā jatukaṇṇi)",
+        "translation": "‘Give up the early!",
+        "source": "cnd2:65.2_0"
+    },
+    {
+        "source_sentence": "Oghātigaṁ puṭṭhumakāmamāgamaṁ;",
+        "translation": "I came to ask that desireless one who is beyond the flood,",
+        "source": "cnd2:65.3_0"
+    },
+    {
+        "source_sentence": "Santipadaṁ brūhi sahajanetta,",
+        "translation": "please speak of the state of peace,",
+        "source": "cnd2:65.4_0"
+    },
+    {
+        "source_sentence": "Yathātacchaṁ bhagavā brūhi metaṁ.",
+        "translation": "as it really is, Fortunate One, please tell me this.",
+        "source": "cnd2:65.5_0"
+    },
+    {
+        "source_sentence": "Bhagavā hi kāme abhibhuyya iriyati,",
+        "translation": "the Fortunate One moves about having vanquished sense desires,",
+        "source": "cnd2:66.1_0"
+    },
+    {
+        "source_sentence": "Ādiccova pathaviṁ tejī tejasā;",
+        "translation": "as the sun (dwells) the earth with its shelter.",
+        "source": "cnd2:66.2_0"
+    },
+    {
+        "source_sentence": "Parittapaññassa me bhūripañña,",
+        "translation": "I’m Wisdom, great in wisdom,",
+        "source": "cnd2:66.3_0"
+    },
+    {
+        "source_sentence": "Ācikkha dhammaṁ yamahaṁ vijaññaṁ;",
+        "translation": "explain the Teaching so that I may know",
+        "source": "cnd2:66.4_0"
+    },
+    {
+        "source_sentence": "Jātijarāya idha vippahānaṁ”.",
+        "translation": "the complete giving up of birth and old age here.”",
+        "source": "cnd2:66.5_0"
+    },
+    {
+        "source_sentence": "“Kāmesu vinaya gedhaṁ,",
+        "translation": "“Among the greedy for sense pleasures,",
+        "source": "cnd2:67.1_0"
+    },
+    {
+        "source_sentence": "(jatukaṇṇīti bhagavā)",
+        "translation": "May the Buddha shine!",
+        "source": "cnd2:67.2_0"
+    },
+    {
+        "source_sentence": "Nekkhammaṁ daṭṭhu khemato;",
+        "translation": "seeing safety in renunciation.",
+        "source": "cnd2:67.3_0"
+    },
+    {
+        "source_sentence": "Uggahitaṁ nirattaṁ vā,",
+        "translation": "Unstored by the wind,",
+        "source": "cnd2:67.4_0"
+    },
+    {
+        "source_sentence": "Mā te vijjittha kiñcanaṁ.",
+        "translation": "do not let injure him.",
+        "source": "cnd2:67.5_0"
+    },
+    {
+        "source_sentence": "Yaṁ pubbe taṁ visosehi,",
+        "translation": "When you should purify yourselves,",
+        "source": "cnd2:68.1_0"
+    },
+    {
+        "source_sentence": "pacchā te māhu kiñcanaṁ;",
+        "translation": "do not later on.",
+        "source": "cnd2:68.2_0"
+    },
+    {
+        "source_sentence": "Majjhe ce no gahessasi,",
+        "translation": "if you take up nothing in the present,",
+        "source": "cnd2:68.3_0"
+    },
+    {
+        "source_sentence": "upasanto carissasi.",
+        "translation": "you will live at peace.",
+        "source": "cnd2:68.4_0"
+    },
+    {
+        "source_sentence": "Sabbaso nāmarūpasmiṁ,",
+        "translation": "One who has no sense of ownership",
+        "source": "cnd2:69.1_0"
+    },
+    {
+        "source_sentence": "Vītagedhassa brāhmaṇa;",
+        "translation": "For the quenched, brahmin,",
+        "source": "cnd2:69.2_0"
+    },
+    {
+        "source_sentence": "Āsavāssa na vijjanti,",
+        "translation": "nor defilements are destroyed.",
+        "source": "cnd2:69.3_0"
+    },
+    {
+        "source_sentence": "Yehi maccuvasaṁ vaje”ti.",
+        "translation": "don’t defeat the deathless.”",
+        "source": "cnd2:69.4_0"
+    },
+    {
+        "source_sentence": "Jatukaṇṇimāṇavapucchā ekādasamā.",
+        "translation": "eleven months I ask (the eleven) a lotus place,",
+        "source": "cnd2:69.5_0"
+    },
+    {
+        "source_sentence": "12. Bhadrāvudhamāṇavapucchā",
+        "translation": "12. Bhadrāvudhamāṇavapucchā",
+        "source": "cnd2:70.0_0"
+    },
+    {
+        "source_sentence": "“Okañjahaṁ taṇhacchidaṁ anejaṁ,",
+        "translation": "“This body isn’t fond of craving,",
+        "source": "cnd2:70.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā bhadrāvudho)",
+        "translation": "longing, venerable Bhadrāvudha,",
+        "source": "cnd2:70.2_0"
+    },
+    {
+        "source_sentence": "Nandiñjahaṁ oghatiṇṇaṁ vimuttaṁ;",
+        "translation": "for he does not abandon the flood,",
+        "source": "cnd2:70.3_0"
+    },
+    {
+        "source_sentence": "Kappañjahaṁ abhiyāce sumedhaṁ,",
+        "translation": "the speculation-leaver, the intelligent one - (him) I beg,",
+        "source": "cnd2:70.4_0"
+    },
+    {
+        "source_sentence": "Sutvāna nāgassa apanamissanti ito.",
+        "translation": "will not be able to hear the other,",
+        "source": "cnd2:70.5_0"
+    },
+    {
+        "source_sentence": "Nānājanā janapadehi saṅgatā,",
+        "translation": "Various people have come from the countries,",
+        "source": "cnd2:71.1_0"
+    },
+    {
+        "source_sentence": "Tava vīra vākyaṁ abhikaṅkhamānā;",
+        "translation": "and are waiting for your saying, O hero,",
+        "source": "cnd2:71.2_0"
+    },
+    {
+        "source_sentence": "Tesaṁ tuvaṁ sādhu viyākarohi,",
+        "translation": "you must explain (the Teaching) properly to them,",
+        "source": "cnd2:71.3_0"
+    },
+    {
+        "source_sentence": "Tathā hi te vidito esa dhammo”.",
+        "translation": "for this Teaching has been understood by you.”",
+        "source": "cnd2:71.4_0"
+    },
+    {
+        "source_sentence": "“Ādānataṇhaṁ vinayetha sabbaṁ,",
+        "translation": "“You should remove all cravings, O Vinaya,",
+        "source": "cnd2:72.1_0"
+    },
+    {
+        "source_sentence": "(bhadrāvudhāti bhagavā)",
+        "translation": "Bhadrāvudha, Blessed One,",
+        "source": "cnd2:72.2_0"
+    },
+    {
+        "source_sentence": "Uddhaṁ adho tiriyañcāpi majjhe;",
+        "translation": "above, below, and across the middle,",
+        "source": "cnd2:72.3_0"
+    },
+    {
+        "source_sentence": "Yaṁ yañhi lokasmimupādiyanti,",
+        "translation": "for they are attached to the world.",
+        "source": "cnd2:72.4_0"
+    },
+    {
+        "source_sentence": "Teneva māro anveti jantuṁ.",
+        "translation": "For that person who is unable to prepare a person.",
+        "source": "cnd2:72.5_0"
+    },
+    {
+        "source_sentence": "Tasmā pajānaṁ na upādiyetha,",
+        "translation": "Therefore knowing (this), the mindful monk should",
+        "source": "cnd2:73.1_0"
+    },
+    {
+        "source_sentence": "Bhikkhu sato kiñcanaṁ sabbaloke;",
+        "translation": "a monastic in the whole world with its gods,",
+        "source": "cnd2:73.2_0"
+    },
+    {
+        "source_sentence": "Ādānasatte iti pekkhamāno,",
+        "translation": "seeing that with what is called attachment to cling,",
+        "source": "cnd2:73.3_0"
+    },
+    {
+        "source_sentence": "Pajaṁ imaṁ maccudheyye visattan”ti.",
+        "translation": "when a person gives it up in the presence of death.”",
+        "source": "cnd2:73.4_0"
+    },
+    {
+        "source_sentence": "Bhadrāvudhamāṇavapucchā dvādasamā.",
+        "translation": "Queen Bhadrāṇasī and Twelve (requent) in twelve (years)",
+        "source": "cnd2:73.5_0"
+    },
+    {
+        "source_sentence": "13. Udayamāṇavapucchā",
+        "translation": "13. Udayamāṇavapucchā",
+        "source": "cnd2:74.0_0"
+    },
+    {
+        "source_sentence": "“Jhāyiṁ virajamāsīnaṁ,",
+        "translation": "“Vijaya, overcome by dispelling passions,",
+        "source": "cnd2:74.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā udayo)",
+        "translation": "‘Look is impermanent!’",
+        "source": "cnd2:74.2_0"
+    },
+    {
+        "source_sentence": "Katakiccaṁ anāsavaṁ;",
+        "translation": "his task completed, free of defilements.”",
+        "source": "cnd2:74.3_0"
+    },
+    {
+        "source_sentence": "Pāraguṁ sabbadhammānaṁ,",
+        "translation": "Gone beyond all things,",
+        "source": "cnd2:74.4_0"
+    },
+    {
+        "source_sentence": "Atthi pañhena āgamaṁ;",
+        "translation": "There is a question that should be answered,",
+        "source": "cnd2:74.5_0"
+    },
+    {
+        "source_sentence": "Aññāvimokkhaṁ pabrūhi,",
+        "translation": "this liberation is declared.",
+        "source": "cnd2:74.6_0"
+    },
+    {
+        "source_sentence": "Avijjāya pabhedanaṁ”.",
+        "translation": "with the smashing of ignorance.”",
+        "source": "cnd2:74.7_0"
+    },
+    {
+        "source_sentence": "“Pahānaṁ kāmacchandānaṁ,",
+        "translation": "Sensual desire for sensual pleasures,",
+        "source": "cnd2:75.1_0"
+    },
+    {
+        "source_sentence": "(udayāti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:75.2_0"
+    },
+    {
+        "source_sentence": "Domanassāna cūbhayaṁ;",
+        "translation": "sensual perceptions and aversion;",
+        "source": "cnd2:75.3_0"
+    },
+    {
+        "source_sentence": "Thinassa ca panūdanaṁ,",
+        "translation": "the dispelling of dullness,",
+        "source": "cnd2:75.4_0"
+    },
+    {
+        "source_sentence": "Kukkuccānaṁ nivāraṇaṁ.",
+        "translation": "and the cessation of remorse.",
+        "source": "cnd2:75.5_0"
+    },
+    {
+        "source_sentence": "Upekkhāsatisaṁsuddhaṁ,",
+        "translation": "Pure equanimity and mindfulness,",
+        "source": "cnd2:76.1_0"
+    },
+    {
+        "source_sentence": "dhammatakkapurejavaṁ;",
+        "translation": "precededed by investigation of principles—",
+        "source": "cnd2:76.2_0"
+    },
+    {
+        "source_sentence": "Aññāvimokkhaṁ pabrūmi,",
+        "translation": "this, I declare, is liberation by enlightenment,",
+        "source": "cnd2:76.3_0"
+    },
+    {
+        "source_sentence": "avijjāya pabhedanaṁ”.",
+        "translation": "with the smashing of ignorance.”",
+        "source": "cnd2:76.4_0"
+    },
+    {
+        "source_sentence": "“Kiṁsu saṁyojano loko,",
+        "translation": "“What fetters the world?",
+        "source": "cnd2:77.1_0"
+    },
+    {
+        "source_sentence": "kiṁsu tassa vicāraṇaṁ;",
+        "translation": "what will you do?",
+        "source": "cnd2:77.2_0"
+    },
+    {
+        "source_sentence": "Kissassa vippahānena,",
+        "translation": "With the giving up of what",
+        "source": "cnd2:77.3_0"
+    },
+    {
+        "source_sentence": "nibbānaṁ iti vuccati”.",
+        "translation": "extinguishment is what is meant.”",
+        "source": "cnd2:77.4_0"
+    },
+    {
+        "source_sentence": "“Nandisaṁyojano loko,",
+        "translation": "“The world is fettered by enjoyment,",
+        "source": "cnd2:78.1_0"
+    },
+    {
+        "source_sentence": "vitakkassa vicāraṇaṁ;",
+        "translation": "Thought explores it.",
+        "source": "cnd2:78.2_0"
+    },
+    {
+        "source_sentence": "Taṇhāya vippahānena,",
+        "translation": "With the giving up of craving",
+        "source": "cnd2:78.3_0"
+    },
+    {
+        "source_sentence": "nibbānaṁ iti vuccati”.",
+        "translation": "extinguishment is what is meant.”",
+        "source": "cnd2:78.4_0"
+    },
+    {
+        "source_sentence": "“Kathaṁ satassa carato,",
+        "translation": "“How, how is it that a sentient being?",
+        "source": "cnd2:79.1_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ uparujjhati;",
+        "translation": "consciousness is ceased.",
+        "source": "cnd2:79.2_0"
+    },
+    {
+        "source_sentence": "Bhagavantaṁ puṭṭhumāgamma,",
+        "translation": "We’ve come to ask the Buddha;",
+        "source": "cnd2:79.3_0"
+    },
+    {
+        "source_sentence": "taṁ suṇoma vaco tava”.",
+        "translation": "let us hear what you have to say.”",
+        "source": "cnd2:79.4_0"
+    },
+    {
+        "source_sentence": "“Ajjhattañca bahiddhā ca,",
+        "translation": "“With externally",
+        "source": "cnd2:80.1_0"
+    },
+    {
+        "source_sentence": "Vedanaṁ nābhinandato;",
+        "translation": "(But) without understanding feeling,",
+        "source": "cnd2:80.2_0"
+    },
+    {
+        "source_sentence": "Evaṁ satassa carato,",
+        "translation": "So to live mindfully",
+        "source": "cnd2:80.3_0"
+    },
+    {
+        "source_sentence": "Viññāṇaṁ uparujjhatī”ti.",
+        "translation": "consciousness is cease.”",
+        "source": "cnd2:80.4_0"
+    },
+    {
+        "source_sentence": "Udayamāṇavapucchā terasamā.",
+        "translation": "Asking to the top of the stomach",
+        "source": "cnd2:80.5_0"
+    },
+    {
+        "source_sentence": "14. Posālamāṇavapucchā",
+        "translation": "14. Posālamāṇavapucchā",
+        "source": "cnd2:81.0_0"
+    },
+    {
+        "source_sentence": "“Yo atītaṁ ādisati,",
+        "translation": "“A mendicant who reveals the past,",
+        "source": "cnd2:81.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā posālo)",
+        "translation": "Looking on, Venerable Phagguṇa",
+        "source": "cnd2:81.2_0"
+    },
+    {
+        "source_sentence": "Anejo chinnasaṁsayo;",
+        "translation": "unstirred, their doubts cut off.",
+        "source": "cnd2:81.3_0"
+    },
+    {
+        "source_sentence": "Pāraguṁ sabbadhammānaṁ,",
+        "translation": "Gone beyond all things,",
+        "source": "cnd2:81.4_0"
+    },
+    {
+        "source_sentence": "Atthi pañhena āgamaṁ.",
+        "translation": "There is a question that should be answered,",
+        "source": "cnd2:81.5_0"
+    },
+    {
+        "source_sentence": "Vibhūtarūpasaññissa,",
+        "translation": "in the true form of wisdom.",
+        "source": "cnd2:82.1_0"
+    },
+    {
+        "source_sentence": "sabbakāyappahāyino;",
+        "translation": "abandoning all defilements,",
+        "source": "cnd2:82.2_0"
+    },
+    {
+        "source_sentence": "Ajjhattañca bahiddhā ca,",
+        "translation": "whether pleasure or pain",
+        "source": "cnd2:82.3_0"
+    },
+    {
+        "source_sentence": "natthi kiñcīti passato;",
+        "translation": "Without seeing, there is no calm,",
+        "source": "cnd2:82.4_0"
+    },
+    {
+        "source_sentence": "Ñāṇaṁ sakkānupucchāmi,",
+        "translation": "I ask about (his) knowledge, I am a personal knowledge of identity.",
+        "source": "cnd2:82.5_0"
+    },
+    {
+        "source_sentence": "kathaṁ neyyo tathāvidho”.",
+        "translation": "How is it quietly completed?”",
+        "source": "cnd2:82.6_0"
+    },
+    {
+        "source_sentence": "“Viññāṇaṭṭhitiyo sabbā,",
+        "translation": "“All the stations of consciousness,",
+        "source": "cnd2:83.1_0"
+    },
+    {
+        "source_sentence": "(posālāti bhagavā)",
+        "translation": "said the Buddha,",
+        "source": "cnd2:83.2_0"
+    },
+    {
+        "source_sentence": "Abhijānaṁ tathāgato;",
+        "translation": "the Realised One, after seeing the Realised One.",
+        "source": "cnd2:83.3_0"
+    },
+    {
+        "source_sentence": "Tiṭṭhantamenaṁ jānāti,",
+        "translation": "to live on sesame,",
+        "source": "cnd2:83.4_0"
+    },
+    {
+        "source_sentence": "Vimuttaṁ tapparāyaṇaṁ.",
+        "translation": "freed in the ending of craving,",
+        "source": "cnd2:83.5_0"
+    },
+    {
+        "source_sentence": "Ākiñcaññasambhavaṁ ñatvā,",
+        "translation": "Knowing the origin of nothingness,",
+        "source": "cnd2:84.1_0"
+    },
+    {
+        "source_sentence": "Nandī saṁyojanaṁ iti;",
+        "translation": "relishing is the fetter of delight;",
+        "source": "cnd2:84.2_0"
+    },
+    {
+        "source_sentence": "Evametaṁ abhiññāya,",
+        "translation": "A mendicant disciple of the Buddha,",
+        "source": "cnd2:84.3_0"
+    },
+    {
+        "source_sentence": "Tato tattha vipassati;",
+        "translation": "then sees clearly.",
+        "source": "cnd2:84.4_0"
+    },
+    {
+        "source_sentence": "Etaṁ ñāṇaṁ tathaṁ tassa,",
+        "translation": "this is real knowed for him:",
+        "source": "cnd2:84.5_0"
+    },
+    {
+        "source_sentence": "Brāhmaṇassa vusīmato”ti.",
+        "translation": "you’re the accomplished brahmin.”",
+        "source": "cnd2:84.6_0"
+    },
+    {
+        "source_sentence": "Posālamāṇavapucchā cuddasamā.",
+        "translation": "frowning up and inclusion,",
+        "source": "cnd2:84.7_0"
+    },
+    {
+        "source_sentence": "15. Mogharājamāṇavapucchā",
+        "translation": "15. Mogharājamāṇavapucchā",
+        "source": "cnd2:85.0_0"
+    },
+    {
+        "source_sentence": "“Dvāhaṁ sakkaṁ apucchissaṁ,",
+        "translation": "“I asked Sakka, I would ask",
+        "source": "cnd2:85.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā mogharājā)",
+        "translation": "Mogharāja, said venerable Mogharāja,",
+        "source": "cnd2:85.2_0"
+    },
+    {
+        "source_sentence": "Na me byākāsi cakkhumā;",
+        "translation": "The Seer didn’t answer in the world,",
+        "source": "cnd2:85.3_0"
+    },
+    {
+        "source_sentence": "Yāvatatiyañca devīsi,",
+        "translation": "he gives the third time the Queen.",
+        "source": "cnd2:85.4_0"
+    },
+    {
+        "source_sentence": "Byākarotīti me sutaṁ.",
+        "translation": "so I have heard.",
+        "source": "cnd2:85.5_0"
+    },
+    {
+        "source_sentence": "Ayaṁ loko paro loko,",
+        "translation": "This world, the other world,",
+        "source": "cnd2:86.1_0"
+    },
+    {
+        "source_sentence": "brahmaloko sadevako;",
+        "translation": "the Eternal Youth from the Brahmā realm.",
+        "source": "cnd2:86.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhiṁ te nābhijānāti,",
+        "translation": "they don’t understand you.",
+        "source": "cnd2:86.3_0"
+    },
+    {
+        "source_sentence": "gotamassa yasassino.",
+        "translation": "of the renowned Gotama",
+        "source": "cnd2:86.4_0"
+    },
+    {
+        "source_sentence": "Evaṁ abhikkantadassāviṁ,",
+        "translation": "so unsurpassed, so very facet,",
+        "source": "cnd2:87.1_0"
+    },
+    {
+        "source_sentence": "atthi pañhena āgamaṁ;",
+        "translation": "There is a question that should be answered,",
+        "source": "cnd2:87.2_0"
+    },
+    {
+        "source_sentence": "Kathaṁ lokaṁ avekkhantaṁ,",
+        "translation": "How do you see the world?",
+        "source": "cnd2:87.3_0"
+    },
+    {
+        "source_sentence": "maccurājā na passati”.",
+        "translation": "then the King of Death won’t see you.”",
+        "source": "cnd2:87.4_0"
+    },
+    {
+        "source_sentence": "“Suññato lokaṁ avekkhassu,",
+        "translation": "“Looking on the world as empty,",
+        "source": "cnd2:88.1_0"
+    },
+    {
+        "source_sentence": "Mogharāja sadā sato;",
+        "translation": "Mogharāja, King, always mindful.",
+        "source": "cnd2:88.2_0"
+    },
+    {
+        "source_sentence": "Attānudiṭṭhiṁ ūhacca,",
+        "translation": "Having removed (wrong) view of self,",
+        "source": "cnd2:88.3_0"
+    },
+    {
+        "source_sentence": "Evaṁ maccutaro siyā;",
+        "translation": "so death will cross over death.",
+        "source": "cnd2:88.4_0"
+    },
+    {
+        "source_sentence": "Evaṁ lokaṁ avekkhantaṁ,",
+        "translation": "looking around the world",
+        "source": "cnd2:88.5_0"
+    },
+    {
+        "source_sentence": "Maccurājā na passatī”ti.",
+        "translation": "king of Death won’t see you.”",
+        "source": "cnd2:88.6_0"
+    },
+    {
+        "source_sentence": "Mogharājamāṇavapucchā pannarasamā.",
+        "translation": "asking questions",
+        "source": "cnd2:88.7_0"
+    },
+    {
+        "source_sentence": "16. Piṅgiyamāṇavapucchā",
+        "translation": "16. Piṅgiyamāṇavapucchā",
+        "source": "cnd2:89.0_0"
+    },
+    {
+        "source_sentence": "“Jiṇṇohamasmi abalo vītavaṇṇo,",
+        "translation": "“I am old, without strength,",
+        "source": "cnd2:89.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā piṅgiyo)",
+        "translation": "said venerable Piṅgiya,",
+        "source": "cnd2:89.2_0"
+    },
+    {
+        "source_sentence": "Nettā na suddhā savanaṁ na phāsu;",
+        "translation": "my eyes are unclear, and hearing is difficult -",
+        "source": "cnd2:89.3_0"
+    },
+    {
+        "source_sentence": "Māhaṁ nassaṁ momuho antarāva,",
+        "translation": "may I indeed not perish a fool mid-way!",
+        "source": "cnd2:89.4_0"
+    },
+    {
+        "source_sentence": "Ācikkha dhammaṁ yamahaṁ vijaññaṁ;",
+        "translation": "explain the Teaching so that I may know",
+        "source": "cnd2:89.5_0"
+    },
+    {
+        "source_sentence": "Jātijarāya idha vippahānaṁ”.",
+        "translation": "the complete giving up of birth and old age here.”",
+        "source": "cnd2:89.6_0"
+    },
+    {
+        "source_sentence": "“Disvāna rūpesu vihaññamāne,",
+        "translation": "“Having seen (people) being struck down",
+        "source": "cnd2:90.1_0"
+    },
+    {
+        "source_sentence": "(piṅgiyāti bhagavā)",
+        "translation": "the Fortunate One, (saying):",
+        "source": "cnd2:90.2_0"
+    },
+    {
+        "source_sentence": "Ruppanti rūpesu janā pamattā;",
+        "translation": "people are delighted about sights,",
+        "source": "cnd2:90.3_0"
+    },
+    {
+        "source_sentence": "Tasmā tuvaṁ piṅgiya appamatto,",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd2:90.4_0"
+    },
+    {
+        "source_sentence": "Jahassu rūpaṁ apunabbhavāya”.",
+        "translation": "must give up form, and not come into existence again.”",
+        "source": "cnd2:90.5_0"
+    },
+    {
+        "source_sentence": "“Disā catasso vidisā catasso,",
+        "translation": "“The four directions, the four intermediate directions,",
+        "source": "cnd2:91.1_0"
+    },
+    {
+        "source_sentence": "Uddhaṁ adho dasa disā imāyo;",
+        "translation": "above, below, and in all directions.",
+        "source": "cnd2:91.2_0"
+    },
+    {
+        "source_sentence": "Na tuyhaṁ adiṭṭhaṁ asutaṁ amutaṁ,",
+        "translation": "which hasn’t been seen, heard, or sensed,",
+        "source": "cnd2:91.3_0"
+    },
+    {
+        "source_sentence": "Atho aviññātaṁ kiñcanamatthi loke;",
+        "translation": "unshakable, without understanding,",
+        "source": "cnd2:91.4_0"
+    },
+    {
+        "source_sentence": "Ācikkha dhammaṁ yamahaṁ vijaññaṁ,",
+        "translation": "explain the Teaching so that I may know",
+        "source": "cnd2:91.5_0"
+    },
+    {
+        "source_sentence": "Jātijarāya idha vippahānaṁ”.",
+        "translation": "the complete giving up of birth and old age here.”",
+        "source": "cnd2:91.6_0"
+    },
+    {
+        "source_sentence": "“Taṇhādhipanne manuje pekkhamāno,",
+        "translation": "“Seeing human beings, like a man,",
+        "source": "cnd2:92.1_0"
+    },
+    {
+        "source_sentence": "(piṅgiyāti bhagavā)",
+        "translation": "the Fortunate One, (saying):",
+        "source": "cnd2:92.2_0"
+    },
+    {
+        "source_sentence": "Santāpajāte jarasā parete;",
+        "translation": "are tormented, and overcome by old age -",
+        "source": "cnd2:92.3_0"
+    },
+    {
+        "source_sentence": "Tasmā tuvaṁ piṅgiya appamatto,",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd2:92.4_0"
+    },
+    {
+        "source_sentence": "Jahassu taṇhaṁ apunabbhavāyā”ti.",
+        "translation": "must give up craving and not come into existence again.”",
+        "source": "cnd2:92.5_0"
+    },
+    {
+        "source_sentence": "Piṅgiyamāṇavapucchā soḷasamā.",
+        "translation": "I ask you like the origin of the Piṅgiyas,",
+        "source": "cnd2:92.6_0"
+    }
+]

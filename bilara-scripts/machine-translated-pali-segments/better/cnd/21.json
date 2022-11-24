@@ -1,0 +1,1062 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd21:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavagganiddesa",
+        "translation": "Pārāyanavagganiddesa",
+        "source": "cnd21:0.2_0"
+    },
+    {
+        "source_sentence": "17. Pārāyanatthutigāthāniddesa",
+        "translation": "recited this verse:",
+        "source": "cnd21:0.3_0"
+    },
+    {
+        "source_sentence": "**Idamavoca bhagavā magadhesu viharanto pāsāṇake cetiye, paricārakasoḷasānaṁ brāhmaṇānaṁ ajjhiṭṭho puṭṭho puṭṭho pañhaṁ byākāsi.**",
+        "translation": "This is what the Buddha said.",
+        "source": "cnd21:1.1_0"
+    },
+    {
+        "source_sentence": "**Idamavoca bhagavā**ti idaṁ pārāyanaṁ avoca.",
+        "translation": "That’s what the Buddha said.",
+        "source": "cnd21:2.1_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti—",
+        "translation": "The Buddha has designated Māra’s statements, that is,",
+        "source": "cnd21:2.2_0"
+    },
+    {
+        "source_sentence": "idamavoca bhagavā.",
+        "translation": "That is what the Buddha said.",
+        "source": "cnd21:2.3_0"
+    },
+    {
+        "source_sentence": "**Magadhesu viharanto**ti magadhanāmake janapade viharanto iriyanto vattento pālento yapento yāpento.",
+        "translation": "While staying in the Magadhan country, he while staying in the land of the Magadhans nearby.",
+        "source": "cnd21:2.4_0"
+    },
+    {
+        "source_sentence": "**Pāsāṇake cetiye**ti pāsāṇakacetiyaṁ vuccati buddhāsananti—",
+        "translation": "to the Palace of Kattika Shrine, including a shrine, they are called",
+        "source": "cnd21:2.5_0"
+    },
+    {
+        "source_sentence": "magadhesu viharanto pāsāṇake cetiye.",
+        "translation": "while living near to the Magadhan city Shrine,",
+        "source": "cnd21:2.6_0"
+    },
+    {
+        "source_sentence": "**Paricārakasoḷasānaṁ brāhmaṇānan**ti piṅgiyo brāhmaṇo bāvarissa brāhmaṇassa paddho paddhacaro paricārako sisso.",
+        "translation": "Pilindavaccha has served the brahmins as a brahmin, and also with his cats.",
+        "source": "cnd21:2.7_0"
+    },
+    {
+        "source_sentence": "Piṅgiyena te soḷasāti—",
+        "translation": "Piṅgiyānī",
+        "source": "cnd21:2.8_0"
+    },
+    {
+        "source_sentence": "evampi paricārakasoḷasānaṁ brāhmaṇānaṁ.",
+        "translation": "That’s how the sixteen Brahmins",
+        "source": "cnd21:2.9_0"
+    },
+    {
+        "source_sentence": "Atha vā te soḷasa brāhmaṇā buddhassa bhagavato paddhā paddhacarā paricārakā sissāti—",
+        "translation": "Or alternatively, the brahmin boy was traveling by Buddha, saying,",
+        "source": "cnd21:2.10_0"
+    },
+    {
+        "source_sentence": "evampi paricārakasoḷasānaṁ brāhmaṇānaṁ.",
+        "translation": "That’s how the sixteen Brahmins",
+        "source": "cnd21:2.11_0"
+    },
+    {
+        "source_sentence": "**Ajjhiṭṭho puṭṭho puṭṭho pañhaṁ byākāsī**ti.",
+        "translation": "When asked, if he answers questions and answers, he answers questions.",
+        "source": "cnd21:3.1_0"
+    },
+    {
+        "source_sentence": "**Ajjhiṭṭho**ti ajjhiṭṭho ajjhesito.",
+        "translation": "Today there is no faults without remainder, in the middle,",
+        "source": "cnd21:3.2_0"
+    },
+    {
+        "source_sentence": "**Puṭṭho puṭṭho**ti puṭṭho puṭṭho pucchito pucchito yācito yācito ajjhesito ajjhesito pasādito pasādito.",
+        "translation": "when asked, questioned by questions, asked, and asked whether in requested by questions, he asked requested or spoken by questions.",
+        "source": "cnd21:3.3_0"
+    },
+    {
+        "source_sentence": "**Pañhaṁ byākāsī**ti pañhaṁ byākāsi ācikkhi desesi paññapesi paṭṭhapesi vivari vibhaji uttānīākāsi pakāsesīti—",
+        "translation": "answers questions, answers, establishes, clarifies, analyzes, and reveals the meaning.",
+        "source": "cnd21:3.4_0"
+    },
+    {
+        "source_sentence": "ajjhiṭṭho puṭṭho puṭṭho pañhaṁ byākāsi.",
+        "translation": "asked, and asked, and he answered the questions.",
+        "source": "cnd21:3.5_0"
+    },
+    {
+        "source_sentence": "Tenetaṁ vuccati—",
+        "translation": "they’re said to be this:",
+        "source": "cnd21:3.6_0"
+    },
+    {
+        "source_sentence": "“Idamavoca bhagavā magadhesu viharanto pāsāṇake cetiye, paricārakasoḷasānaṁ brāhmaṇānaṁ ajjhiṭṭho puṭṭho puṭṭho pañhaṁ byākāsī”ti.",
+        "translation": "“Just now, Buddha, while staying in the land of the Magadhans at the Bamboo Grove, he answers.”",
+        "source": "cnd21:4.1_0"
+    },
+    {
+        "source_sentence": "**Ekamekassa cepi pañhassa atthamaññāya dhammamaññāya dhammānudhammaṁ paṭipajjeyya, gaccheyyeva jarāmaraṇassa pāraṁ.**",
+        "translation": "If even a single question who knows the meaning and the teaching, practices accordingly,",
+        "source": "cnd21:5.1_0"
+    },
+    {
+        "source_sentence": "**Pāraṅgamanīyā ime dhammāti.**",
+        "translation": "these things are beyond.",
+        "source": "cnd21:5.2_0"
+    },
+    {
+        "source_sentence": "**Tasmā imassa dhammapariyāyassa “pārāyanan”teva adhivacanaṁ.**",
+        "translation": "Therefore this exposition of the Dhamma",
+        "source": "cnd21:5.3_0"
+    },
+    {
+        "source_sentence": "**Ekamekassa cepi pañhassā**ti ekamekassa cepi ajitapañhassa, ekamekassa cepi tissametteyyapañhassa, ekamekassa cepi puṇṇakapañhassa, ekamekassa cepi mettagūpañhassa, ekamekassa cepi dhotakapañhassa, ekamekassa cepi upasīvapañhassa, ekamekassa cepi nandakapañhassa, ekamekassa cepi hemakapañhassa, ekamekassa cepi todeyyapañhassa, ekamekassa cepi kappapañhassa, ekamekassa cepi jatukaṇṇipañhassa, ekamekassa cepi bhadrāvudhapañhassa, ekamekassa cepi udayapañhassa, ekamekassa cepi posālapañhassa, ekamekassa cepi mogharājapañhassa, ekamekassa cepi piṅgiyapañhassāti—",
+        "translation": "If to the one of these (persons) even a single one of these (i.e.)",
+        "source": "cnd21:6.1_0"
+    },
+    {
+        "source_sentence": "ekamekassa cepi pañhassa.",
+        "translation": "If each and every question,",
+        "source": "cnd21:6.2_0"
+    },
+    {
+        "source_sentence": "**Atthamaññāya dhammamaññāyā**ti sveva pañho dhammo, visajjanaṁ atthoti atthaṁ aññāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvāti—",
+        "translation": "Then, knowing the meaning of the meaning and the teaching, having understood the Dhamma, after understanding that it was taught, and knowing he took it away, he knew it as an unknown,",
+        "source": "cnd21:7.1_0"
+    },
+    {
+        "source_sentence": "atthamaññāya.",
+        "translation": "Understanding the meaning and the teaching,",
+        "source": "cnd21:7.2_0"
+    },
+    {
+        "source_sentence": "**Dhammamaññāyā**ti dhammaṁ aññāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvāti—",
+        "translation": "After releasing the Dhamma, he knew the preachers of the Dhamma, and he founded after discovering full experienced, and becoming absentence, saying,",
+        "source": "cnd21:7.3_0"
+    },
+    {
+        "source_sentence": "dhammamaññāyāti—",
+        "translation": "Perceptions of the teaching:",
+        "source": "cnd21:7.4_0"
+    },
+    {
+        "source_sentence": "atthamaññāya dhammamaññāya.",
+        "translation": "Understanding the meaning and the teaching,",
+        "source": "cnd21:7.5_0"
+    },
+    {
+        "source_sentence": "**Dhammānudhammaṁ paṭipajjeyyā**ti sammāpaṭipadaṁ anulomapaṭipadaṁ apaccanīkapaṭipadaṁ anvatthapaṭipadaṁ dhammānudhammapaṭipadaṁ paṭipajjeyyāti—",
+        "translation": "Practicing in line with the teaching, practice properly, and practice accordingly.",
+        "source": "cnd21:7.6_0"
+    },
+    {
+        "source_sentence": "dhammānudhammaṁ paṭipajjeyya.",
+        "translation": "practice in line with the teaching,",
+        "source": "cnd21:7.7_0"
+    },
+    {
+        "source_sentence": "**Gaccheyyeva jarāmaraṇassa pāran**ti jarāmaraṇassa pāraṁ vuccati amataṁ nibbānaṁ.",
+        "translation": "they go beyond old age and death, the far shore, and the deathless are called Nibbāna.",
+        "source": "cnd21:7.8_0"
+    },
+    {
+        "source_sentence": "Yo so sabbasaṅkhārasamatho sabbūpadhipaṭinissaggo taṇhakkhayo virāgo nirodho nibbānaṁ.",
+        "translation": "It’s the ending of all activities, the letting go of all attachments, the ending of craving, fading away, cessation, extinguishment.’",
+        "source": "cnd21:7.9_0"
+    },
+    {
+        "source_sentence": "**Gaccheyyeva jarāmaraṇassa pāran**ti jarāmaraṇassa pāraṁ gaccheyya, pāraṁ adhigaccheyya, pāraṁ adhiphasseyya, pāraṁ sacchikareyyāti—",
+        "translation": "They’d go beyond old age and death, the far shore, and the far shore.",
+        "source": "cnd21:7.10_0"
+    },
+    {
+        "source_sentence": "gaccheyyeva jarāmaraṇassa pāraṁ.",
+        "translation": "he would surely go beyond old age and death.",
+        "source": "cnd21:7.11_0"
+    },
+    {
+        "source_sentence": "**Pāraṅgamanīyā ime dhammā**ti ime dhammā pāraṅgamanīyā.",
+        "translation": "the far shore, these things are beyond, and these things are laid down.",
+        "source": "cnd21:7.12_0"
+    },
+    {
+        "source_sentence": "Pāraṁ pāpenti pāraṁ sampāpenti pāraṁ samanupāpenti, jarāmaraṇassa taraṇāya saṁvattantīti—",
+        "translation": "They make an effort to cross over to the far shore, and they make it lead to old age and death.",
+        "source": "cnd21:7.13_0"
+    },
+    {
+        "source_sentence": "pāraṅgamanīyā ime dhammāti.",
+        "translation": "these things are beyond.",
+        "source": "cnd21:7.14_0"
+    },
+    {
+        "source_sentence": "**Tasmā imassa dhammapariyāyassā**ti.",
+        "translation": "That’s why I understand the teaching.",
+        "source": "cnd21:8.1_0"
+    },
+    {
+        "source_sentence": "**Tasmā**ti tasmā taṅkāraṇā taṁhetu tappaccayā taṁnidānāti—",
+        "translation": "That’s why it comes from the reason why that causes sources.",
+        "source": "cnd21:8.2_0"
+    },
+    {
+        "source_sentence": "tasmā.",
+        "translation": "therefore it is fitting to do something as a sign.’",
+        "source": "cnd21:8.3_0"
+    },
+    {
+        "source_sentence": "**Imassa dhammapariyāyassā**ti imassa pārāyanassāti—",
+        "translation": "Instead of giving up the beyond",
+        "source": "cnd21:8.4_0"
+    },
+    {
+        "source_sentence": "tasmā imassa dhammapariyāyassa.",
+        "translation": "That’s why I understand the teaching.",
+        "source": "cnd21:8.5_0"
+    },
+    {
+        "source_sentence": "**Pārāyananteva adhivacanan**ti pāraṁ vuccati amataṁ nibbānaṁ …pe… nirodho nibbānaṁ.",
+        "translation": "who is included in the far shore, and the deathless is called extinguishment.",
+        "source": "cnd21:8.6_0"
+    },
+    {
+        "source_sentence": "Ayanaṁ vuccati maggo, seyyathidaṁ—",
+        "translation": "This is called the path,",
+        "source": "cnd21:8.7_0"
+    },
+    {
+        "source_sentence": "sammādiṭṭhi …pe… sammāsamādhi.",
+        "translation": "right view ... right immersion.",
+        "source": "cnd21:8.8_0"
+    },
+    {
+        "source_sentence": "**Adhivacanan**ti saṅkhā samaññā paññatti vohāro nāmaṁ nāmakammaṁ nāmadheyyaṁ nirutti byañjanaṁ abhilāpoti—",
+        "translation": "“Speaking is the name of the phenomena; constructions and sparings are called “without curry”.",
+        "source": "cnd21:8.9_0"
+    },
+    {
+        "source_sentence": "pārāyananteva adhivacanaṁ.",
+        "translation": "is a term for the beyond.",
+        "source": "cnd21:8.10_0"
+    },
+    {
+        "source_sentence": "Tenetaṁ vuccati—",
+        "translation": "they’re said to be this:",
+        "source": "cnd21:8.11_0"
+    },
+    {
+        "source_sentence": "“Ekamekassa cepi pañhassa atthamaññāya dhammamaññāya dhammānudhammaṁ paṭipajjeyya, gaccheyyeva jarāmaraṇassa pāraṁ.",
+        "translation": "“If anyone understands the meaning and the teaching and practices accordingly,",
+        "source": "cnd21:9.1_0"
+    },
+    {
+        "source_sentence": "Pāraṅgamanīyā ime dhammāti.",
+        "translation": "these things are beyond.",
+        "source": "cnd21:9.2_0"
+    },
+    {
+        "source_sentence": "Tasmā imassa dhammapariyāyassa ‘pārāyanan’teva adhivacanan”ti.",
+        "translation": "That’s why it’s called ‘Dearth’ and ‘This is a term for this exposition of the teaching’.”",
+        "source": "cnd21:9.3_0"
+    },
+    {
+        "source_sentence": "**Ajito tissametteyyo,**",
+        "translation": "Conquered by the name of the Three Worthiness.",
+        "source": "cnd21:10.1_0"
+    },
+    {
+        "source_sentence": "**puṇṇako atha mettagū;**",
+        "translation": "Then Puṇṇa Mettagū,",
+        "source": "cnd21:10.2_0"
+    },
+    {
+        "source_sentence": "**Dhotako upasīvo ca,**",
+        "translation": "Dhotaka, and Upasīva,",
+        "source": "cnd21:10.3_0"
+    },
+    {
+        "source_sentence": "**nando ca atha hemako. **",
+        "translation": "and Nandaka,",
+        "source": "cnd21:10.4_0"
+    },
+    {
+        "source_sentence": "**Todeyyakappā dubhayo,**",
+        "translation": "the two: Todeyya and Kappa, and Todeyya,",
+        "source": "cnd21:11.1_0"
+    },
+    {
+        "source_sentence": "**jatukaṇṇī ca paṇḍito;**",
+        "translation": "Jatukaṇṇī and the astute",
+        "source": "cnd21:11.2_0"
+    },
+    {
+        "source_sentence": "**Bhadrāvudho udayo ca,**",
+        "translation": "Bhadrāvudha and Udaya,",
+        "source": "cnd21:11.3_0"
+    },
+    {
+        "source_sentence": "**posālo cāpi brāhmaṇo;**",
+        "translation": "Pāṭaliputta,",
+        "source": "cnd21:11.4_0"
+    },
+    {
+        "source_sentence": "**Mogharājā ca medhāvī,**",
+        "translation": "of Mogharāja,",
+        "source": "cnd21:11.5_0"
+    },
+    {
+        "source_sentence": "**piṅgiyo ca mahāisi. **",
+        "translation": "and Piṅgiya,",
+        "source": "cnd21:11.6_0"
+    },
+    {
+        "source_sentence": "**Ete buddhaṁ upāgacchuṁ,**",
+        "translation": "These went to the Buddha.",
+        "source": "cnd21:12.1_0"
+    },
+    {
+        "source_sentence": "**Sampannacaraṇaṁ isiṁ;**",
+        "translation": "jealous of paths,",
+        "source": "cnd21:12.2_0"
+    },
+    {
+        "source_sentence": "**Pucchantā nipuṇe pañhe,**",
+        "translation": "asking subtle questions,",
+        "source": "cnd21:12.3_0"
+    },
+    {
+        "source_sentence": "**Buddhaseṭṭhaṁ upāgamuṁ. **",
+        "translation": "they went to the Buddha.",
+        "source": "cnd21:12.4_0"
+    },
+    {
+        "source_sentence": "**Ete buddhaṁ upāgacchun**ti.",
+        "translation": "These are the Buddha who come to a Buddha,",
+        "source": "cnd21:13.1_0"
+    },
+    {
+        "source_sentence": "**Ete**ti soḷasa pārāyaniyā brāhmaṇā.",
+        "translation": "these sixteen brahmin students crossed over the far shore.",
+        "source": "cnd21:13.2_0"
+    },
+    {
+        "source_sentence": "**Buddho**ti yo so bhagavā sayambhū anācariyako pubbe ananussutesu dhammesu sāmaṁ saccāni abhisambujjhi, tattha ca sabbaññutaṁ patto balesu ca vasībhāvaṁ.",
+        "translation": "He who was Buddha, the ruler of the earth, knowledge, and wakened regarding all things in the past, future, and present.",
+        "source": "cnd21:13.3_0"
+    },
+    {
+        "source_sentence": "**Buddho**ti kenaṭṭhena buddho?",
+        "translation": "by what is the Buddha?",
+        "source": "cnd21:13.4_0"
+    },
+    {
+        "source_sentence": "Bujjhitā saccānīti buddho, bodhetā pajāyāti buddho, sabbaññutāya buddho, sabbadassāvitāya buddho, abhiññeyyatāya buddho, visavitāya buddho, khīṇāsavasaṅkhātena buddho, nirupalepasaṅkhātena buddho, ekantavītarāgoti buddho, ekantavītadosoti buddho, ekantavītamohoti buddho, ekantanikkilesoti buddho, ekāyanamaggaṁ gatoti buddho, eko anuttaraṁ sammāsambodhiṁ abhisambuddhoti buddho, abuddhivihatattā buddhipaṭilābhāti buddho.",
+        "translation": "Buddha awakened for themselves; he was awakened, generous, accomplished in knowledge and conduct, holy, knower of the world, supreme guide for those who wish to train, teacher of gods and humans, awakened, blessed. He was a fully awakened Buddha. That was a supreme Buddha awakened for themselves, complete in all Buddhaship, free from defilements, and awakened.",
+        "source": "cnd21:13.5_0"
+    },
+    {
+        "source_sentence": "**Buddho**ti netaṁ nāmaṁ mātarā kataṁ na pitarā kataṁ na bhātarā kataṁ na bhaginiyā kataṁ na mittāmaccehi kataṁ na ñātisālohitehi kataṁ na samaṇabrāhmaṇehi kataṁ na devatāhi kataṁ.",
+        "translation": "“He who was called Buddha, his mother, father, brother, or sister. It wasn’t done by friends and colleagues, by relatives and kin, by ascetics and brahmins, or by the deities.",
+        "source": "cnd21:13.6_0"
+    },
+    {
+        "source_sentence": "Vimokkhantikametaṁ buddhānaṁ bhagavantānaṁ bodhiyā mūle saha sabbaññutañāṇassa paṭilābhā sacchikā paññatti, yadidaṁ buddhoti.",
+        "translation": "It is so opposing for the Buddhas to truly understand the opposite truth, that is, the liberation of knowledge.",
+        "source": "cnd21:13.7_0"
+    },
+    {
+        "source_sentence": "**Ete buddhaṁ upāgacchun**ti ete buddhaṁ upāgamiṁsu upasaṅkamiṁsu payirupāsiṁsu paripucchiṁsu paripañhiṁsūti—",
+        "translation": "They then went to the Buddha, bowed, and stood to one side.",
+        "source": "cnd21:13.8_0"
+    },
+    {
+        "source_sentence": "ete buddhaṁ upāgacchuṁ.",
+        "translation": "These went to the Buddha.",
+        "source": "cnd21:13.9_0"
+    },
+    {
+        "source_sentence": "**Sampannacaraṇaṁ isin**ti **caraṇaṁ** vuccati sīlācāranibbatti.",
+        "translation": "are called “restraint in the archery” .",
+        "source": "cnd21:14.1_0"
+    },
+    {
+        "source_sentence": "Sīlasaṁvaropi caraṇaṁ, indriyasaṁvaropi caraṇaṁ, bhojane mattaññutāpi caraṇaṁ, jāgariyānuyogopi caraṇaṁ, sattapi saddhammā caraṇaṁ, cattāripi jhānāni caraṇaṁ.",
+        "translation": "Virtuous conduct, restraint in regard to foods, drink, clothes, and moderation, both in examination, and also the seven good qualities, and the four absorptions.",
+        "source": "cnd21:14.2_0"
+    },
+    {
+        "source_sentence": "**Sampannacaraṇan**ti sampannacaraṇaṁ seṭṭhacaraṇaṁ viseṭṭhacaraṇaṁ pāmokkhacaraṇaṁ uttamacaraṇaṁ pavaracaraṇaṁ.",
+        "translation": "Rejecting the Recollection of the Recollection, the Friends of Principle, the Best of Principle, and the second place (concentration), the place without coming downstream, going to the highest place,",
+        "source": "cnd21:14.3_0"
+    },
+    {
+        "source_sentence": "**Isī**ti isi bhagavā mahantaṁ sīlakkhandhaṁ esī gavesī pariyesīti isi …pe…",
+        "translation": "The Buddha seeked a large mass of ethical behavior ...",
+        "source": "cnd21:14.4_0"
+    },
+    {
+        "source_sentence": "mahesakkhehi vā sattehi esito gavesito pariyesito—",
+        "translation": "searches for the hundred being looked for searches,",
+        "source": "cnd21:14.4_1"
+    },
+    {
+        "source_sentence": "“kahaṁ buddho, kahaṁ bhagavā, kahaṁ devadevo kahaṁ narāsabho”ti—",
+        "translation": "“Where was the Buddha? Where are you, sir?”",
+        "source": "cnd21:14.5_0"
+    },
+    {
+        "source_sentence": "isīti—",
+        "translation": "Isidāsī",
+        "source": "cnd21:14.6_0"
+    },
+    {
+        "source_sentence": "sampannacaraṇaṁ isiṁ.",
+        "translation": "jealous of paths,",
+        "source": "cnd21:14.7_0"
+    },
+    {
+        "source_sentence": "**Pucchantā nipuṇe pañhe**ti.",
+        "translation": "if he asks a question;",
+        "source": "cnd21:15.1_0"
+    },
+    {
+        "source_sentence": "**Pucchantā**ti pucchantā yācantā ajjhesantā pasādentā.",
+        "translation": "asking about (getting) asking questions, and in order to rebuke them.",
+        "source": "cnd21:15.2_0"
+    },
+    {
+        "source_sentence": "**Nipuṇe pañhe**ti gambhīre duddase duranubodhe sante paṇīte atakkāvacare nipuṇe paṇḍitavedanīye pañheti—",
+        "translation": "They ask a deep question, hard to understand, peaceful, sublime, beyond the scope of logic, subtle, comprehensible to the astute.",
+        "source": "cnd21:15.3_0"
+    },
+    {
+        "source_sentence": "pucchantā nipuṇe pañhe.",
+        "translation": "asking subtle questions,",
+        "source": "cnd21:15.4_0"
+    },
+    {
+        "source_sentence": "**Buddhaseṭṭhaṁ upāgamun**ti.",
+        "translation": "they went to the Buddha and bowed to him.",
+        "source": "cnd21:16.1_0"
+    },
+    {
+        "source_sentence": "**Buddho**ti yo so bhagavā …pe… sacchikā paññatti, yadidaṁ buddhoti.",
+        "translation": "whether the Buddha is awakened to the truth, namely the goal of the Buddha.",
+        "source": "cnd21:16.2_0"
+    },
+    {
+        "source_sentence": "**Seṭṭhan**ti aggaṁ seṭṭhaṁ viseṭṭhaṁ pāmokkhaṁ uttamaṁ pavaraṁ buddhaṁ upāgamuṁ upāgamiṁsu upasaṅkamiṁsu payirupāsiṁsu paripucchiṁsu paripañhiṁsūti—",
+        "translation": "They asked the best of men to visit the Buddha, the highest among men, that is best and delighted.",
+        "source": "cnd21:16.3_0"
+    },
+    {
+        "source_sentence": "buddhaseṭṭhaṁ upāgamuṁ.",
+        "translation": "they went to the Buddha.",
+        "source": "cnd21:16.4_0"
+    },
+    {
+        "source_sentence": "Tenetaṁ vuccati—",
+        "translation": "they’re said to be this:",
+        "source": "cnd21:16.5_0"
+    },
+    {
+        "source_sentence": "“Ete buddhaṁ upāgacchuṁ,",
+        "translation": "“The Buddha has come to this Buddha,",
+        "source": "cnd21:17.1_0"
+    },
+    {
+        "source_sentence": "sampannacaraṇaṁ isiṁ;",
+        "translation": "jealous of paths,",
+        "source": "cnd21:17.2_0"
+    },
+    {
+        "source_sentence": "Pucchantā nipuṇe pañhe,",
+        "translation": "asking subtle questions,",
+        "source": "cnd21:17.3_0"
+    },
+    {
+        "source_sentence": "buddhaseṭṭhaṁ upāgamun”ti.",
+        "translation": "the Buddha’s best.”",
+        "source": "cnd21:17.4_0"
+    },
+    {
+        "source_sentence": "**Tesaṁ buddho pabyākāsi,**",
+        "translation": "The Buddha explained it to them.",
+        "source": "cnd21:18.1_0"
+    },
+    {
+        "source_sentence": "**Pañhaṁ puṭṭho yathātathaṁ;**",
+        "translation": "I answered like one who answers",
+        "source": "cnd21:18.2_0"
+    },
+    {
+        "source_sentence": "**Pañhānaṁ veyyākaraṇena,**",
+        "translation": "and by answering questions.",
+        "source": "cnd21:18.3_0"
+    },
+    {
+        "source_sentence": "**Tosesi brāhmaṇe muni. **",
+        "translation": "Todeyya that the sage did not make known,",
+        "source": "cnd21:18.4_0"
+    },
+    {
+        "source_sentence": "**Tesaṁ buddho pabyākāsī**ti.",
+        "translation": "The Buddha became awakened for them.",
+        "source": "cnd21:19.1_0"
+    },
+    {
+        "source_sentence": "**Tesan**ti soḷasānaṁ pārāyaniyānaṁ brāhmaṇānaṁ.",
+        "translation": "for those sixteen brahmin hermits,",
+        "source": "cnd21:19.2_0"
+    },
+    {
+        "source_sentence": "**Buddho**ti yo so bhagavā …pe… sacchikā paññatti, yadidaṁ buddhoti.",
+        "translation": "whether the Buddha is awakened to the truth, namely the goal of the Buddha.",
+        "source": "cnd21:19.3_0"
+    },
+    {
+        "source_sentence": "**Pabyākāsī**ti tesaṁ buddho pabyākāsi ācikkhi desesi paññapesi paṭṭhapesi vivari vibhaji uttānīakāsi pakāsesīti—",
+        "translation": "The Buddha declared them,",
+        "source": "cnd21:19.4_0"
+    },
+    {
+        "source_sentence": "tesaṁ buddho pabyākāsi.",
+        "translation": "The Buddha explained it to them.",
+        "source": "cnd21:19.5_0"
+    },
+    {
+        "source_sentence": "**Pañhaṁ puṭṭho yathātathan**ti.",
+        "translation": "answers in questions,",
+        "source": "cnd21:20.1_0"
+    },
+    {
+        "source_sentence": "**Pañhaṁ puṭṭho**ti pañhaṁ puṭṭho pucchito yācito ajjhesito pasādito.",
+        "translation": "asked a question, asked, and in answering questions, he answers by questions.",
+        "source": "cnd21:20.2_0"
+    },
+    {
+        "source_sentence": "**Yathātathan**ti yathā ācikkhitabbaṁ tathā ācikkhi, yathā desitabbaṁ tathā desesi, yathā paññapetabbaṁ tathā paññapesi, yathā paṭṭhapetabbaṁ tathā paṭṭhapesi, yathā vivaritabbaṁ tathā vivari, yathā vibhajitabbaṁ tathā vibhaji, yathā uttānīkātabbaṁ tathā uttānīakāsi, yathā pakāsitabbaṁ tathā pakāsesīti—",
+        "translation": "He should explain, as it is.",
+        "source": "cnd21:20.3_0"
+    },
+    {
+        "source_sentence": "pañhaṁ puṭṭho yathātathaṁ.",
+        "translation": "I answered like one who answers",
+        "source": "cnd21:20.4_0"
+    },
+    {
+        "source_sentence": "**Pañhānaṁ veyyākaraṇenā**ti pañhānaṁ veyyākaraṇena ācikkhanena desanena paññapanena paṭṭhapanena vivaraṇena vibhajanena uttānīkammena pakāsanenāti—",
+        "translation": "answers questions, answers, establishes, clarifies, analyzes, and reveals the answer to the question.",
+        "source": "cnd21:21.1_0"
+    },
+    {
+        "source_sentence": "pañhānaṁ veyyākaraṇena.",
+        "translation": "and by answering questions.",
+        "source": "cnd21:21.2_0"
+    },
+    {
+        "source_sentence": "**Tosesi brāhmaṇe munī**ti.",
+        "translation": "Todeyya he released the brahmins.",
+        "source": "cnd21:22.1_0"
+    },
+    {
+        "source_sentence": "**Tosesī**ti tosesi vitosesi pasādesi ārādhesi attamane akāsi.",
+        "translation": "Todeyya he converted the queen Sīha, delighted (all) near the Kālakārāma.",
+        "source": "cnd21:22.2_0"
+    },
+    {
+        "source_sentence": "**Brāhmaṇe**ti soḷasa pārāyaniye brāhmaṇe.",
+        "translation": "And he fell into the sixteenth brahmins.",
+        "source": "cnd21:22.3_0"
+    },
+    {
+        "source_sentence": "**Munī**ti monaṁ vuccati ñāṇaṁ …pe… saṅgajālamaticca so munīti—",
+        "translation": "the knowledge of guilty of delusion ...",
+        "source": "cnd21:22.4_0"
+    },
+    {
+        "source_sentence": "tosesi brāhmaṇe muni.",
+        "translation": "Todeyya that the sage did not make known,",
+        "source": "cnd21:22.5_0"
+    },
+    {
+        "source_sentence": "Tenetaṁ vuccati—",
+        "translation": "they’re said to be this:",
+        "source": "cnd21:22.6_0"
+    },
+    {
+        "source_sentence": "“Tesaṁ buddho pabyākāsi,",
+        "translation": "“The Buddha explained,",
+        "source": "cnd21:23.1_0"
+    },
+    {
+        "source_sentence": "pañhaṁ puṭṭho yathātathaṁ;",
+        "translation": "I answered like one who answers",
+        "source": "cnd21:23.2_0"
+    },
+    {
+        "source_sentence": "Pañhānaṁ veyyākaraṇena,",
+        "translation": "and by answering questions.",
+        "source": "cnd21:23.3_0"
+    },
+    {
+        "source_sentence": "tosesi brāhmaṇe munī”ti.",
+        "translation": "and Todeyya the brahmins.”",
+        "source": "cnd21:23.4_0"
+    },
+    {
+        "source_sentence": "**Te tositā cakkhumatā,**",
+        "translation": "They’re satisfied with the eyes,",
+        "source": "cnd21:24.1_0"
+    },
+    {
+        "source_sentence": "**buddhenādiccabandhunā;**",
+        "translation": "the Kinsman of the Sun, so skilled in means,",
+        "source": "cnd21:24.2_0"
+    },
+    {
+        "source_sentence": "**Brahmacariyamacariṁsu,**",
+        "translation": "lived the spiritual life.",
+        "source": "cnd21:24.3_0"
+    },
+    {
+        "source_sentence": "**varapaññassa santike. **",
+        "translation": "this man of such splendid wisdom.",
+        "source": "cnd21:24.4_0"
+    },
+    {
+        "source_sentence": "**Te tositā cakkhumatā**ti.",
+        "translation": "They’re satisfied with the eyes,",
+        "source": "cnd21:25.1_0"
+    },
+    {
+        "source_sentence": "**Te**ti soḷasa pārāyaniyā brāhmaṇā.",
+        "translation": "Those sixteen brahmin students,",
+        "source": "cnd21:25.2_0"
+    },
+    {
+        "source_sentence": "**Tositā**ti tositā vitositā pasāditā ārādhitā attamanā katāti—",
+        "translation": "Todeyya they converted, excited, and delighted.",
+        "source": "cnd21:25.3_0"
+    },
+    {
+        "source_sentence": "te tositā.",
+        "translation": "They did not Todeyya:",
+        "source": "cnd21:25.4_0"
+    },
+    {
+        "source_sentence": "**Cakkhumatā**ti bhagavā pañcahi cakkhūhi cakkhumā—",
+        "translation": "The Buddha looked at them with the five eyes:",
+        "source": "cnd21:25.5_0"
+    },
+    {
+        "source_sentence": "maṁsacakkhunāpi cakkhumā, dibbacakkhunāpi cakkhumā, paññācakkhunāpi cakkhumā, buddhacakkhunāpi cakkhumā, samantacakkhunāpi cakkhumā.",
+        "translation": "The Visionary-Seeing Visionary, the eye of vision, and the clear vision of the Buddha.",
+        "source": "cnd21:25.6_0"
+    },
+    {
+        "source_sentence": "Kathaṁ bhagavā maṁsacakkhunāpi cakkhumā …pe…",
+        "translation": "And how do the Buddha possessed me with vision and vision?",
+        "source": "cnd21:25.7_0"
+    },
+    {
+        "source_sentence": "evaṁ bhagavā samantacakkhunāpi cakkhumāti—",
+        "translation": "The Buddha has eyes all around.",
+        "source": "cnd21:25.8_0"
+    },
+    {
+        "source_sentence": "te tositā cakkhumatā.",
+        "translation": "They’re satisfied with the eyes,",
+        "source": "cnd21:25.9_0"
+    },
+    {
+        "source_sentence": "**Buddhenādiccabandhunā**ti.",
+        "translation": "the Kinsman of the Sun, so skilled in means,",
+        "source": "cnd21:26.1_0"
+    },
+    {
+        "source_sentence": "**Buddho**ti yo so bhagavā …pe… sacchikā paññatti, yadidaṁ buddhoti.",
+        "translation": "whether the Buddha is awakened to the truth, namely the goal of the Buddha.",
+        "source": "cnd21:26.2_0"
+    },
+    {
+        "source_sentence": "**Ādiccabandhunā**ti **ādicco** vuccati sūriyo.",
+        "translation": "the sun is what is said; the sun is called the sun.",
+        "source": "cnd21:26.3_0"
+    },
+    {
+        "source_sentence": "So gotamo gottena, bhagavāpi gotamo gottena, bhagavā sūriyassa gottañātako gottabandhu.",
+        "translation": "Master Gotama, the Buddha is propagated from the clan of his clan.",
+        "source": "cnd21:26.4_0"
+    },
+    {
+        "source_sentence": "Tasmā buddho ādiccabandhūti—",
+        "translation": "That’s why the Buddha Kinsman of the Sun,",
+        "source": "cnd21:26.5_0"
+    },
+    {
+        "source_sentence": "buddhenādiccabandhunā.",
+        "translation": "the Kinsman of the Sun, so skilled in means,",
+        "source": "cnd21:26.6_0"
+    },
+    {
+        "source_sentence": "**Brahmacariyamacariṁsū**ti brahmacariyaṁ vuccati asaddhammasamāpattiyā ārati virati paṭivirati veramaṇī viramaṇaṁ akiriyā akaraṇaṁ anajjhāpatti velāanatikkamo setughāto.",
+        "translation": "The spiritual life called ‘span of the spiritual life’ is said to be rotten in one who lives the true teaching’. It is abstention from killing living creatures, stealing, and committing sexual misconduct.",
+        "source": "cnd21:27.1_0"
+    },
+    {
+        "source_sentence": "Api ca nippariyāyavasena brahmacariyaṁ vuccati ariyo aṭṭhaṅgiko maggo, seyyathidaṁ—",
+        "translation": "Rather, the spiritual path is called the noble eightfold path, that is:",
+        "source": "cnd21:27.2_0"
+    },
+    {
+        "source_sentence": "sammādiṭṭhi, sammāsaṅkappo, sammāvācā, sammākammanto, sammāājīvo, sammāvāyāmo, sammāsati, sammāsamādhi.",
+        "translation": "right view, right thought, right speech, right action, right livelihood, right effort, right mindfulness, and right immersion.",
+        "source": "cnd21:27.3_0"
+    },
+    {
+        "source_sentence": "**Brahmacariyamacariṁsū**ti brahmacariyaṁ cariṁsu acariṁsu samādāya vattiṁsūti—",
+        "translation": "they went to the spiritual life under him.",
+        "source": "cnd21:27.4_0"
+    },
+    {
+        "source_sentence": "brahmacariyamacariṁsu.",
+        "translation": "lived the spiritual life.",
+        "source": "cnd21:27.5_0"
+    },
+    {
+        "source_sentence": "**Varapaññassa santike**ti varapaññassa aggapaññassa seṭṭhapaññassa viseṭṭhapaññassa pāmokkhapaññassa uttamapaññassa pavarapaññassa.",
+        "translation": "Excellent Varabhu is the best, best, chief, highest among gods and humans,",
+        "source": "cnd21:28.1_0"
+    },
+    {
+        "source_sentence": "**Santike**ti santike sāmantā āsanne avidūre upakaṭṭheti—",
+        "translation": "if she sits down nearby nearby, saying,",
+        "source": "cnd21:28.2_0"
+    },
+    {
+        "source_sentence": "varapaññassa santike.",
+        "translation": "this man of such splendid wisdom.",
+        "source": "cnd21:28.3_0"
+    },
+    {
+        "source_sentence": "Tenetaṁ vuccati—",
+        "translation": "they’re said to be this:",
+        "source": "cnd21:28.4_0"
+    },
+    {
+        "source_sentence": "“Te tositā cakkhumatā,",
+        "translation": "“These have passed away, O seer,",
+        "source": "cnd21:29.1_0"
+    },
+    {
+        "source_sentence": "buddhenādiccabandhunā;",
+        "translation": "the Kinsman of the Sun, so skilled in means,",
+        "source": "cnd21:29.2_0"
+    },
+    {
+        "source_sentence": "Brahmacariyamacariṁsu,",
+        "translation": "lived the spiritual life.",
+        "source": "cnd21:29.3_0"
+    },
+    {
+        "source_sentence": "varapaññassa santike”ti.",
+        "translation": "this man of such splendid wisdom.”",
+        "source": "cnd21:29.4_0"
+    },
+    {
+        "source_sentence": "**Ekamekassa pañhassa,**",
+        "translation": "It’s the one who asked each",
+        "source": "cnd21:30.1_0"
+    },
+    {
+        "source_sentence": "**yathā buddhena desitaṁ;**",
+        "translation": "as it was taught by the Buddha.",
+        "source": "cnd21:30.2_0"
+    },
+    {
+        "source_sentence": "**Tathā yo paṭipajjeyya,**",
+        "translation": "you should practice accordingly.",
+        "source": "cnd21:30.3_0"
+    },
+    {
+        "source_sentence": "**gacche pāraṁ apārato. **",
+        "translation": "they go beyond all the shackle.",
+        "source": "cnd21:30.4_0"
+    },
+    {
+        "source_sentence": "**Ekamekassa pañhassā**ti ekamekassa ajitapañhassa, ekamekassa tissametteyyapañhassa …pe…",
+        "translation": "In the same way one of these two questions, the Queen Discipline may I ask one of the threets,",
+        "source": "cnd21:31.1_0"
+    },
+    {
+        "source_sentence": "ekamekassa piṅgiyapañhassāti—",
+        "translation": "In the one Piṅgiya,",
+        "source": "cnd21:31.2_0"
+    },
+    {
+        "source_sentence": "ekamekassa pañhassa.",
+        "translation": "It’s the one who asked each",
+        "source": "cnd21:31.3_0"
+    },
+    {
+        "source_sentence": "**Yathā buddhena desitan**ti.",
+        "translation": "as it was taught by the Buddha.",
+        "source": "cnd21:32.1_0"
+    },
+    {
+        "source_sentence": "**Buddho**ti yo so bhagavā sayambhū …pe…",
+        "translation": "He who is the Buddha, the bed, the Fortunate One, lies down,",
+        "source": "cnd21:32.2_0"
+    },
+    {
+        "source_sentence": "sacchikā paññatti, yadidaṁ buddhoti.",
+        "translation": "to truth as regards, that is to say, the Buddha.",
+        "source": "cnd21:32.3_0"
+    },
+    {
+        "source_sentence": "**Yathā buddhena desitan**ti yathā buddhena ācikkhitaṁ desitaṁ paññapitaṁ paṭṭhapitaṁ vivaritaṁ vibhajitaṁ uttānīkataṁ pakāsitanti—",
+        "translation": "as it was taught by the Buddha, assert, establishing, clarified, analyzed, and revealed:",
+        "source": "cnd21:32.4_0"
+    },
+    {
+        "source_sentence": "yathā buddhena desitaṁ.",
+        "translation": "as it was taught by the Buddha.",
+        "source": "cnd21:32.5_0"
+    },
+    {
+        "source_sentence": "**Tathā yo paṭipajjeyyā**ti sammāpaṭipadaṁ anulomapaṭipadaṁ apaccanīkapaṭipadaṁ anvatthapaṭipadaṁ dhammānudhammapaṭipadaṁ paṭipajjeyyāti—",
+        "translation": "practice in line with the practice that leads to the right way.",
+        "source": "cnd21:33.1_0"
+    },
+    {
+        "source_sentence": "tathā yo paṭipajjeyya.",
+        "translation": "you should practice accordingly.",
+        "source": "cnd21:33.2_0"
+    },
+    {
+        "source_sentence": "**Gacche pāraṁ apārato**ti pāraṁ vuccati amataṁ nibbānaṁ …pe… nirodho nibbānaṁ;",
+        "translation": "They go beyond the near shore, which is called the far shore.",
+        "source": "cnd21:34.1_0"
+    },
+    {
+        "source_sentence": "apāraṁ vuccanti kilesā ca khandhā ca abhisaṅkhārā ca.",
+        "translation": "This is what is meant and the defilements of the aggregates.",
+        "source": "cnd21:34.2_0"
+    },
+    {
+        "source_sentence": "**Gacche pāraṁ apārato**ti apārato pāraṁ gaccheyya, pāraṁ adhigaccheyya, pāraṁ phasseyya, pāraṁ sacchikareyyāti—",
+        "translation": "If he goes beyond, the near shore to the far shore, and he crosses the far shore, he’d reach the far shore, and he’s far shore.",
+        "source": "cnd21:34.3_0"
+    },
+    {
+        "source_sentence": "gacche pāraṁ apārato.",
+        "translation": "they go beyond all the shackle.",
+        "source": "cnd21:34.4_0"
+    },
+    {
+        "source_sentence": "Tenetaṁ vuccati—",
+        "translation": "they’re said to be this:",
+        "source": "cnd21:34.5_0"
+    },
+    {
+        "source_sentence": "“Ekamekassa pañhassa,",
+        "translation": "“Only knowing this question,",
+        "source": "cnd21:35.1_0"
+    },
+    {
+        "source_sentence": "yathā buddhena desitaṁ;",
+        "translation": "as it was taught by the Buddha.",
+        "source": "cnd21:35.2_0"
+    },
+    {
+        "source_sentence": "Tathā yo paṭipajjeyya,",
+        "translation": "you should practice accordingly.",
+        "source": "cnd21:35.3_0"
+    },
+    {
+        "source_sentence": "gacche pāraṁ apārato”ti.",
+        "translation": "they go beyond all the shackle.”",
+        "source": "cnd21:35.4_0"
+    },
+    {
+        "source_sentence": "**Apārā pāraṁ gaccheyya,**",
+        "translation": "to cross over to the far shore.",
+        "source": "cnd21:36.1_0"
+    },
+    {
+        "source_sentence": "**bhāvento maggamuttamaṁ;**",
+        "translation": "developing the supreme path,",
+        "source": "cnd21:36.2_0"
+    },
+    {
+        "source_sentence": "**Maggo so pāraṁ gamanāya,**",
+        "translation": "This is the path for going to the beyond,",
+        "source": "cnd21:36.3_0"
+    },
+    {
+        "source_sentence": "**tasmā pārāyanaṁ iti. **",
+        "translation": "therefore it is called The Way to the Beyond.",
+        "source": "cnd21:36.4_0"
+    },
+    {
+        "source_sentence": "**Apārā pāraṁ gaccheyyā**ti apāraṁ vuccanti kilesā ca khandhā ca abhisaṅkhārā ca;",
+        "translation": "and cross to the far shore. These are called the defilements and the aggregates are what is defiled.",
+        "source": "cnd21:37.1_0"
+    },
+    {
+        "source_sentence": "pāraṁ vuccati amataṁ nibbānaṁ …pe…",
+        "translation": "the far shore ...",
+        "source": "cnd21:37.2_0"
+    },
+    {
+        "source_sentence": "taṇhakkhayo virāgo nirodho nibbānaṁ.",
+        "translation": "the end of craving, dispassion, cessation, Emancipation.",
+        "source": "cnd21:37.3_0"
+    },
+    {
+        "source_sentence": "**Apārā pāraṁ gaccheyyā**ti apārā pāraṁ gaccheyya, pāraṁ adhigaccheyya, pāraṁ phasseyya, pāraṁ sacchikareyyāti—",
+        "translation": "If they go beyond the stream, the far shore, and they’d cross to the far shore, and they’d commit an offense entailing expulsion.",
+        "source": "cnd21:37.4_0"
+    },
+    {
+        "source_sentence": "apārā pāraṁ gaccheyya.",
+        "translation": "to cross over to the far shore.",
+        "source": "cnd21:37.5_0"
+    },
+    {
+        "source_sentence": "**Bhāvento maggamuttaman**ti maggamuttamaṁ vuccati ariyo aṭṭhaṅgiko maggo, seyyathidaṁ—",
+        "translation": "when he develops the supreme path, the noble eightfold path is called the noble eightfold path, that is:",
+        "source": "cnd21:38.1_0"
+    },
+    {
+        "source_sentence": "sammādiṭṭhi …pe… sammāsamādhi.",
+        "translation": "right view ... right immersion.",
+        "source": "cnd21:38.2_0"
+    },
+    {
+        "source_sentence": "**Maggamuttaman**ti maggaṁ aggaṁ seṭṭhaṁ viseṭṭhaṁ pāmokkhaṁ uttamaṁ pavaraṁ.",
+        "translation": "The highest path which is the foremost, best, chief, highest, and finest of the paths.",
+        "source": "cnd21:38.3_0"
+    },
+    {
+        "source_sentence": "**Bhāvento**ti bhāvento āsevanto bahulīkarontoti—",
+        "translation": "developing, cultivating, and make much of it:",
+        "source": "cnd21:38.4_0"
+    },
+    {
+        "source_sentence": "bhāvento maggamuttamaṁ.",
+        "translation": "developing the supreme path,",
+        "source": "cnd21:38.5_0"
+    },
+    {
+        "source_sentence": "**Maggo so pāraṁ gamanāyā**ti—",
+        "translation": "The path that goes beyond,",
+        "source": "cnd21:39.1_0"
+    },
+    {
+        "source_sentence": "Maggo pantho patho pajjo,",
+        "translation": "The path is the lamp of path,",
+        "source": "cnd21:40.1_0"
+    },
+    {
+        "source_sentence": "añjasaṁ vaṭumāyanaṁ;",
+        "translation": "with joined palms held up,",
+        "source": "cnd21:40.2_0"
+    },
+    {
+        "source_sentence": "Nāvā uttarasetu ca,",
+        "translation": "may they both men and gods,",
+        "source": "cnd21:40.3_0"
+    },
+    {
+        "source_sentence": "kullo ca bhisi saṅkamo.",
+        "translation": "a raft, brilliant,",
+        "source": "cnd21:40.4_0"
+    },
+    {
+        "source_sentence": "**Pāraṁ gamanāyā**ti pāraṁ gamanāya pāraṁ sampāpanāya pāraṁ samanupāpanāya jarāmaraṇassa taraṇāyāti—",
+        "translation": "The far shore, and the far shore is included in the same way.",
+        "source": "cnd21:41.1_0"
+    },
+    {
+        "source_sentence": "maggo so pāraṁ gamanāya.",
+        "translation": "This is the path for going to the beyond,",
+        "source": "cnd21:41.2_0"
+    },
+    {
+        "source_sentence": "**Tasmā pārāyanaṁ itī**ti.",
+        "translation": "Therefore it is said to be far from here.",
+        "source": "cnd21:42.1_0"
+    },
+    {
+        "source_sentence": "**Tasmā**ti tasmā taṅkāraṇā taṁhetu tappaccayā taṁnidānā.",
+        "translation": "therefore with this reason, the source, condition, and condition of that reason.",
+        "source": "cnd21:42.2_0"
+    },
+    {
+        "source_sentence": "Pāraṁ vuccati amataṁ nibbānaṁ …pe… nirodho nibbānaṁ.",
+        "translation": "It’s called the deathless that leads to the deathless, extinguishment.",
+        "source": "cnd21:42.3_0"
+    },
+    {
+        "source_sentence": "Ayanaṁ vuccati maggo.",
+        "translation": "the path is what is meant.",
+        "source": "cnd21:42.4_0"
+    },
+    {
+        "source_sentence": "**Itī**ti padasandhi …pe… padānupubbatāpetaṁ itīti—",
+        "translation": "And so they divide those who have confidence in the teaching.",
+        "source": "cnd21:42.5_0"
+    },
+    {
+        "source_sentence": "tasmā pārāyanaṁ iti.",
+        "translation": "therefore it is called The Way to the Beyond.",
+        "source": "cnd21:42.6_0"
+    },
+    {
+        "source_sentence": "Tenetaṁ vuccati—",
+        "translation": "they’re said to be this:",
+        "source": "cnd21:42.7_0"
+    },
+    {
+        "source_sentence": "“Apārā pāraṁ gaccheyya,",
+        "translation": "“Rejoicing to cross over to the far shore,",
+        "source": "cnd21:43.1_0"
+    },
+    {
+        "source_sentence": "bhāvento maggamuttamaṁ;",
+        "translation": "developing the supreme path,",
+        "source": "cnd21:43.2_0"
+    },
+    {
+        "source_sentence": "Maggo so pāraṁ gamanāya,",
+        "translation": "This is the path for going to the beyond,",
+        "source": "cnd21:43.3_0"
+    },
+    {
+        "source_sentence": "tasmā pārāyanaṁ itī”ti.",
+        "translation": "which is why I’ve gone beyond this.”",
+        "source": "cnd21:43.4_0"
+    },
+    {
+        "source_sentence": "Pārāyanatthutigāthāniddeso sattarasamo.",
+        "translation": "The Description of Pārāsariya .",
+        "source": "cnd21:43.5_0"
+    }
+]

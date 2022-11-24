@@ -1,0 +1,3947 @@
+[
+    {
+        "source_sentence": "Mahāniddesa",
+        "translation": "Mahāniddesa",
+        "source": "mnd13:0.1_0"
+    },
+    {
+        "source_sentence": "Aṭṭhakavagga",
+        "translation": "Aṭṭhakavagga",
+        "source": "mnd13:0.2_0"
+    },
+    {
+        "source_sentence": "13. Mahābyūhasuttaniddesa",
+        "translation": "13. Mahābyūhasuttaniddesa",
+        "source": "mnd13:0.3_0"
+    },
+    {
+        "source_sentence": "Atha mahābyūhasuttaniddesaṁ vakkhati—",
+        "translation": "The Great Discourse on the Buddha",
+        "source": "mnd13:1.1_0"
+    },
+    {
+        "source_sentence": "**Ye kecime diṭṭhiparibbasānā,**",
+        "translation": "Whatever views there are (volitional) processes",
+        "source": "mnd13:2.1_0"
+    },
+    {
+        "source_sentence": "**Idameva saccanti ca vādayanti;**",
+        "translation": "that’s what they truth, or that’s real,",
+        "source": "mnd13:2.2_0"
+    },
+    {
+        "source_sentence": "**Sabbeva te nindamanvānayanti,**",
+        "translation": "they are all caught in the sandalwood,",
+        "source": "mnd13:2.3_0"
+    },
+    {
+        "source_sentence": "**Atho pasaṁsampi labhanti tattha.**",
+        "translation": "This went too and got lost",
+        "source": "mnd13:2.4_0"
+    },
+    {
+        "source_sentence": "**Ye kecime diṭṭhiparibbasānā**ti.",
+        "translation": "Whatever views there are inclusive (considered) views",
+        "source": "mnd13:3.1_0"
+    },
+    {
+        "source_sentence": "**Ye kecī**ti sabbena sabbaṁ sabbathā sabbaṁ asesaṁ nissesaṁ pariyādiyanavacanametaṁ—",
+        "translation": "Whoever has these eighty natures...",
+        "source": "mnd13:3.2_0"
+    },
+    {
+        "source_sentence": "ye kecīti.",
+        "translation": "to provide for those who have entered",
+        "source": "mnd13:3.3_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhiparibbasānā**ti.",
+        "translation": "Searching views:",
+        "source": "mnd13:3.4_0"
+    },
+    {
+        "source_sentence": "Santeke samaṇabrāhmaṇā diṭṭhigatikā;",
+        "translation": "There are some ascetics and brāhmaṇas who are of the views.",
+        "source": "mnd13:3.5_0"
+    },
+    {
+        "source_sentence": "te dvāsaṭṭhiyā diṭṭhigatānaṁ aññataraññataraṁ diṭṭhigataṁ gahetvā uggahetvā gaṇhitvā parāmasitvā abhinivisitvā sakāya sakāya diṭṭhiyā vasanti saṁvasanti āvasanti parivasanti.",
+        "translation": "After learning the convictions of those sixty-two misconceptions, they pick up a different view, and then go to the neighborhood of the views.",
+        "source": "mnd13:3.6_0"
+    },
+    {
+        "source_sentence": "Yathā agārikā vā gharesu vasanti, sāpattikā vā āpattīsu vasanti, sakilesā vā kilesesu vasanti;",
+        "translation": "Just as a housewife or a household life area, so corrupted by what is defilement.",
+        "source": "mnd13:3.7_0"
+    },
+    {
+        "source_sentence": "evamevaṁ santeke …pe…",
+        "translation": "In the same way, when some are newly ordained ...",
+        "source": "mnd13:3.8_0"
+    },
+    {
+        "source_sentence": "parivasantīti—",
+        "translation": "He has now completed:",
+        "source": "mnd13:3.9_0"
+    },
+    {
+        "source_sentence": "ye kecime diṭṭhiparibbasānā.",
+        "translation": "Whatever views there are (volitional) processes",
+        "source": "mnd13:3.10_0"
+    },
+    {
+        "source_sentence": "**Idameva saccanti ca vādayantī**ti.",
+        "translation": "This is the truth, or the otherwise.",
+        "source": "mnd13:4.1_0"
+    },
+    {
+        "source_sentence": "“Sassato loko, idameva saccaṁ moghamaññan”ti vadanti kathenti bhaṇanti dīpayanti voharanti.",
+        "translation": "“The cosmos is eternal. This is the only truth, other ideas are silly they speak of.”",
+        "source": "mnd13:4.2_0"
+    },
+    {
+        "source_sentence": "“Asassato loko …pe…",
+        "translation": "“The cosmos is not eternal ...” ...",
+        "source": "mnd13:4.3_0"
+    },
+    {
+        "source_sentence": "neva hoti na na hoti tathāgato paraṁ maraṇā, idameva saccaṁ moghamaññan”ti vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "‘A Realized One neither exists nor doesn’t exist after death. This is the only truth, other ideas are silly.’",
+        "source": "mnd13:4.4_0"
+    },
+    {
+        "source_sentence": "idameva saccanti ca vādayanti.",
+        "translation": "that’s what they truth, or that’s real,",
+        "source": "mnd13:4.5_0"
+    },
+    {
+        "source_sentence": "**Sabbeva te nindamanvānayantī**ti.",
+        "translation": "do all those sandalwood apply to you.",
+        "source": "mnd13:5.1_0"
+    },
+    {
+        "source_sentence": "Sabbeva te samaṇabrāhmaṇā nindameva anventi, garahameva anventi, akittimeva anventi;",
+        "translation": "all of them are just the same.",
+        "source": "mnd13:5.2_0"
+    },
+    {
+        "source_sentence": "sabbe ninditāyeva honti, garahitāyeva honti, akittitāyeva hontīti—",
+        "translation": "all those who were blameworthy, those who were unrestrained. And those who have not been accused, saying,",
+        "source": "mnd13:5.3_0"
+    },
+    {
+        "source_sentence": "sabbeva te nindamanvānayanti.",
+        "translation": "they are all caught in the sandalwood,",
+        "source": "mnd13:5.4_0"
+    },
+    {
+        "source_sentence": "**Atho pasaṁsampi labhanti tatthā**ti.",
+        "translation": "and they get too close.",
+        "source": "mnd13:6.1_0"
+    },
+    {
+        "source_sentence": "Tattha sakāya diṭṭhiyā sakāya khantiyā sakāya ruciyā sakāya laddhiyā pasaṁsaṁ thomanaṁ kittiṁ vaṇṇahārikaṁ labhanti paṭilabhanti upagacchanti vindantīti—",
+        "translation": "There they acquire in appearance.",
+        "source": "mnd13:6.2_0"
+    },
+    {
+        "source_sentence": "atho pasaṁsampi labhanti tattha.",
+        "translation": "This went too and got lost",
+        "source": "mnd13:6.3_0"
+    },
+    {
+        "source_sentence": "Tenāha so nimmito—",
+        "translation": "That monk was stored away.",
+        "source": "mnd13:7.1_0"
+    },
+    {
+        "source_sentence": "“Ye kecime diṭṭhiparibbasānā,",
+        "translation": "“Those who totally full of these (volitional) views",
+        "source": "mnd13:8.1_0"
+    },
+    {
+        "source_sentence": "Idameva saccanti ca vādayanti;",
+        "translation": "that’s what they truth, or that’s real,",
+        "source": "mnd13:8.2_0"
+    },
+    {
+        "source_sentence": "Sabbeva te nindamanvānayanti,",
+        "translation": "they are all caught in the sandalwood,",
+        "source": "mnd13:8.3_0"
+    },
+    {
+        "source_sentence": "Atho pasaṁsampi labhanti tatthā”ti.",
+        "translation": "This too I get too close to you.”",
+        "source": "mnd13:8.4_0"
+    },
+    {
+        "source_sentence": "**Appañhi etaṁ na alaṁ samāya,**",
+        "translation": "For this is not enough for me to put on.",
+        "source": "mnd13:9.1_0"
+    },
+    {
+        "source_sentence": "**Duve vivādassa phalāni brūmi;**",
+        "translation": "I declare this to the difficult person:",
+        "source": "mnd13:9.2_0"
+    },
+    {
+        "source_sentence": "**Etampi disvā na vivādayetha,**",
+        "translation": "Since this is not so,",
+        "source": "mnd13:9.3_0"
+    },
+    {
+        "source_sentence": "**Khemābhipassaṁ avivādabhūmiṁ.**",
+        "translation": "Vipassī, the speaker of the truth,",
+        "source": "mnd13:9.4_0"
+    },
+    {
+        "source_sentence": "**Appañhi etaṁ na alaṁ samāyā**ti.",
+        "translation": "For this is enough to undertake me,",
+        "source": "mnd13:10.1_0"
+    },
+    {
+        "source_sentence": "**Appañhi etan**ti appakaṁ etaṁ, omakaṁ etaṁ, thokakaṁ etaṁ, lāmakaṁ etaṁ, chatukkaṁ etaṁ, parittakaṁ etanti—",
+        "translation": "Since this is so, little is bit of small, this is ours.",
+        "source": "mnd13:10.2_0"
+    },
+    {
+        "source_sentence": "appañhi etaṁ.",
+        "translation": "For this is what’s appropriate.",
+        "source": "mnd13:10.3_0"
+    },
+    {
+        "source_sentence": "**Na alaṁ samāyā**ti nālaṁ rāgassa samāya, dosassa samāya, mohassa samāya, kodhassa …",
+        "translation": "This is not enough for you to become angry, hate, and delusion.",
+        "source": "mnd13:10.4_0"
+    },
+    {
+        "source_sentence": "upanāhassa …",
+        "translation": "hostility ...",
+        "source": "mnd13:10.4_1"
+    },
+    {
+        "source_sentence": "makkhassa …",
+        "translation": "Makkhali ...",
+        "source": "mnd13:10.4_2"
+    },
+    {
+        "source_sentence": "paḷāsassa … issāya …",
+        "translation": "contempt ...",
+        "source": "mnd13:10.4_3"
+    },
+    {
+        "source_sentence": "macchariyassa … māyāya …",
+        "translation": "stinginess ...",
+        "source": "mnd13:10.4_4"
+    },
+    {
+        "source_sentence": "sāṭheyyassa …",
+        "translation": "deviousness ...",
+        "source": "mnd13:10.4_5"
+    },
+    {
+        "source_sentence": "thambhassa …",
+        "translation": "obstinacy ...",
+        "source": "mnd13:10.4_6"
+    },
+    {
+        "source_sentence": "sārambhassa …",
+        "translation": "aggression ...",
+        "source": "mnd13:10.4_7"
+    },
+    {
+        "source_sentence": "mānassa …",
+        "translation": "having given up conceit ...",
+        "source": "mnd13:10.4_8"
+    },
+    {
+        "source_sentence": "atimānassa …",
+        "translation": "Through conceit ...",
+        "source": "mnd13:10.4_9"
+    },
+    {
+        "source_sentence": "madassa …",
+        "translation": "the sweet ...",
+        "source": "mnd13:10.4_10"
+    },
+    {
+        "source_sentence": "pamādassa …",
+        "translation": "negligence ...",
+        "source": "mnd13:10.4_11"
+    },
+    {
+        "source_sentence": "sabbakilesānaṁ …",
+        "translation": "so that all defilements are given up ...",
+        "source": "mnd13:10.4_12"
+    },
+    {
+        "source_sentence": "sabbaduccaritānaṁ …",
+        "translation": "For all bad conduct ...",
+        "source": "mnd13:10.4_13"
+    },
+    {
+        "source_sentence": "sabbadarathānaṁ …",
+        "translation": "everyone,",
+        "source": "mnd13:10.4_14"
+    },
+    {
+        "source_sentence": "sabbapariḷāhānaṁ …",
+        "translation": "complete understanding ...",
+        "source": "mnd13:10.4_15"
+    },
+    {
+        "source_sentence": "sabbasantāpānaṁ …",
+        "translation": "everyone,",
+        "source": "mnd13:10.4_16"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārānaṁ samāya upasamāya vūpasamāya nibbānāya paṭinissaggāya paṭipassaddhiyāti—",
+        "translation": "for the stilling of all unskillful intentions, with the stilling of all activities, the letting go of all attachments, the ending of extinguishment.",
+        "source": "mnd13:10.4_17"
+    },
+    {
+        "source_sentence": "appañhi etaṁ na alaṁ samāya.",
+        "translation": "For this is not enough for me to put on.",
+        "source": "mnd13:10.5_0"
+    },
+    {
+        "source_sentence": "**Duve vivādassa phalāni brūmī**ti.",
+        "translation": "That’s the fruit of the tree, I declare.",
+        "source": "mnd13:11.1_0"
+    },
+    {
+        "source_sentence": "Diṭṭhikalahassa diṭṭhibhaṇḍanassa diṭṭhiviggahassa diṭṭhivivādassa diṭṭhimedhagassa dve phalāni honti—",
+        "translation": "Staying in regard to a view of someone who has failed in view, or for two reasons:",
+        "source": "mnd13:11.2_0"
+    },
+    {
+        "source_sentence": "jayaparājayo hoti, lābhālābho hoti, yasāyaso hoti, nindāpasaṁso hoti, sukhadukkhaṁ hoti, somanassadomanassaṁ hoti, iṭṭhāniṭṭhaṁ hoti, anunayapaṭighaṁ hoti, ugghātinigghāti hoti, anurodhavirodho hoti.",
+        "translation": "They get these things.",
+        "source": "mnd13:11.3_0"
+    },
+    {
+        "source_sentence": "Atha vā taṁ kammaṁ nirayasaṁvattanikaṁ, tiracchānayonisaṁvattanikaṁ, pettivisayasaṁvattanikanti brūmi ācikkhāmi desemi paññapemi paṭṭhapemi vivarāmi vibhajāmi uttānīkaromi pakāsemīti—",
+        "translation": "But I explain to you that hell, the animal realm, and the ghost realm.",
+        "source": "mnd13:11.4_0"
+    },
+    {
+        "source_sentence": "duve vivādassa phalāni brūmi.",
+        "translation": "I declare this to the difficult person:",
+        "source": "mnd13:11.5_0"
+    },
+    {
+        "source_sentence": "**Etampi disvā na vivādayethā**ti.",
+        "translation": "Seeing this, arguing,",
+        "source": "mnd13:12.1_0"
+    },
+    {
+        "source_sentence": "**Etampi disvā**ti etaṁ ādīnavaṁ disvā passitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā diṭṭhikalahesu diṭṭhibhaṇḍanesu diṭṭhiviggahesu diṭṭhivivādesu diṭṭhimedhagesūti—",
+        "translation": "Seeing this. And after seeing the drawbacks, they’ve lost their views and realised convictions.",
+        "source": "mnd13:12.2_0"
+    },
+    {
+        "source_sentence": "etampi disvā.",
+        "translation": "after seeing them,",
+        "source": "mnd13:12.3_0"
+    },
+    {
+        "source_sentence": "**Na vivādayethā**ti na kalahaṁ kareyya, na bhaṇḍanaṁ kareyya, na viggahaṁ kareyya, na vivādaṁ kareyya, na medhagaṁ kareyya, kalahaṁ bhaṇḍanaṁ viggahaṁ vivādaṁ medhagaṁ pajaheyya vinodeyya byantiṁ kareyya anabhāvaṁ gameyya, kalahā bhaṇḍanā viggahā vivādā medhagā ārato assa virato paṭivirato nikkhanto nissaṭo vippamutto visaññutto vimariyādikatena cetasā vihareyyāti—",
+        "translation": "If I were to quarrel, you wouldn’t get into arguments, quarrels, fights, wounds, or get rid of quarrels, and inspires confidence in me.",
+        "source": "mnd13:12.4_0"
+    },
+    {
+        "source_sentence": "etampi disvā na vivādayetha.",
+        "translation": "Since this is not so,",
+        "source": "mnd13:12.5_0"
+    },
+    {
+        "source_sentence": "**Khemābhipassaṁ avivādabhūmin**ti.",
+        "translation": "Khemā, who doesn’t ignorant,",
+        "source": "mnd13:13.1_0"
+    },
+    {
+        "source_sentence": "**Avivādabhūmiṁ** vuccati amataṁ nibbānaṁ.",
+        "translation": "speak of the truth of Nibbāna is what is meant.",
+        "source": "mnd13:13.2_0"
+    },
+    {
+        "source_sentence": "Yo so sabbasaṅkhārasamatho sabbūpadhipaṭinissaggo taṇhakkhayo virāgo nirodho nibbānaṁ.",
+        "translation": "It’s the ending of all activities, the letting go of all attachments, the ending of craving, fading away, cessation, extinguishment.’",
+        "source": "mnd13:13.3_0"
+    },
+    {
+        "source_sentence": "Etaṁ avivādabhūmiṁ khemato tāṇato leṇato saraṇato abhayato accutato amatato nibbānato passanto dakkhanto olokento nijjhāyanto upaparikkhantoti—",
+        "translation": "Since this is so,",
+        "source": "mnd13:13.4_0"
+    },
+    {
+        "source_sentence": "khemābhipassaṁ avivādabhūmiṁ.",
+        "translation": "Vipassī, the speaker of the truth,",
+        "source": "mnd13:13.5_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:14.1_0"
+    },
+    {
+        "source_sentence": "“Appañhi etaṁ na alaṁ samāya,",
+        "translation": "“It’s enough, it’s not enough for you to feel",
+        "source": "mnd13:15.1_0"
+    },
+    {
+        "source_sentence": "Duve vivādassa phalāni brūmi;",
+        "translation": "I declare this to the difficult person:",
+        "source": "mnd13:15.2_0"
+    },
+    {
+        "source_sentence": "Etampi disvā na vivādayetha,",
+        "translation": "Since this is not so,",
+        "source": "mnd13:15.3_0"
+    },
+    {
+        "source_sentence": "Khemābhipassaṁ avivādabhūmin”ti.",
+        "translation": "who doesn’t truly know the sanctuary.”",
+        "source": "mnd13:15.4_0"
+    },
+    {
+        "source_sentence": "**Yā kācimā sammutiyo puthujjā,**",
+        "translation": "Whatever many beings there are,",
+        "source": "mnd13:16.1_0"
+    },
+    {
+        "source_sentence": "**Sabbāva etā na upeti vidvā;**",
+        "translation": "Understanding all these, arguing.",
+        "source": "mnd13:16.2_0"
+    },
+    {
+        "source_sentence": "**Anūpayo so upayaṁ kimeyya,**",
+        "translation": "would miserable,",
+        "source": "mnd13:16.3_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhe sute khantimakubbamāno.**",
+        "translation": "seeing what is seen, heard, and sensed,",
+        "source": "mnd13:16.4_0"
+    },
+    {
+        "source_sentence": "**Yā kācimā sammutiyo puthujjā**ti.",
+        "translation": "Whatever many are found there are—",
+        "source": "mnd13:17.1_0"
+    },
+    {
+        "source_sentence": "**Yā kācī**ti sabbena sabbaṁ sabbathā sabbaṁ asesaṁ nissesaṁ pariyādiyanavacanametaṁ—",
+        "translation": "And they are all terms for the rest of sensuality, namely,",
+        "source": "mnd13:17.2_0"
+    },
+    {
+        "source_sentence": "yā kācīti.",
+        "translation": "Whatever is given,",
+        "source": "mnd13:17.3_0"
+    },
+    {
+        "source_sentence": "**Sammutiyo**ti.",
+        "translation": "But even though they’re confused:",
+        "source": "mnd13:17.4_0"
+    },
+    {
+        "source_sentence": "Sammutiyo vuccanti dvāsaṭṭhi diṭṭhigatāni diṭṭhisammutiyo.",
+        "translation": "These are called the sixty-two misconceptions regarding views.",
+        "source": "mnd13:17.5_0"
+    },
+    {
+        "source_sentence": "**Puthujjā**ti puthujjanehi janitā sammutiyoti puthujjā, puthu nānājanehi janitā vā sammutiyoti puthujjāti—",
+        "translation": "Blames it arrogant people, amongst many people, who are disturbed, converted, and many people, all of them.",
+        "source": "mnd13:17.6_0"
+    },
+    {
+        "source_sentence": "yā kācimā sammutiyo puthujjā.",
+        "translation": "Whatever many beings there are,",
+        "source": "mnd13:17.7_0"
+    },
+    {
+        "source_sentence": "**Sabbāva etā na upeti vidvā**ti.",
+        "translation": "Understanding all these,",
+        "source": "mnd13:18.1_0"
+    },
+    {
+        "source_sentence": "Vidvā vijjāgato ñāṇī vibhāvī medhāvī.",
+        "translation": "knowledge, wisdom, and insight.",
+        "source": "mnd13:18.2_0"
+    },
+    {
+        "source_sentence": "Sabbāva etā diṭṭhisammutiyo neti na upeti na upagacchati na gaṇhāti na parāmasati nābhinivisatīti—",
+        "translation": "In this way they’re not reborn in a place of loss, and don’t grab them by saying,",
+        "source": "mnd13:18.3_0"
+    },
+    {
+        "source_sentence": "sabbāva etā na upeti vidvā.",
+        "translation": "Understanding all these, arguing.",
+        "source": "mnd13:18.4_0"
+    },
+    {
+        "source_sentence": "**Anūpayo so upayaṁ kimeyyā**ti.",
+        "translation": "How would they find no fault?",
+        "source": "mnd13:19.1_0"
+    },
+    {
+        "source_sentence": "**Upayo**ti dve upayā—",
+        "translation": "Standing at Upavāṇa,",
+        "source": "mnd13:19.2_0"
+    },
+    {
+        "source_sentence": "taṇhūpayo ca diṭṭhūpayo ca …pe…",
+        "translation": "Craving is seen and heard ...",
+        "source": "mnd13:19.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ taṇhūpayo …pe…",
+        "translation": "This is the ending of craving. ...",
+        "source": "mnd13:19.4_0"
+    },
+    {
+        "source_sentence": "ayaṁ diṭṭhūpayo.",
+        "translation": "this is the seen to be seen.",
+        "source": "mnd13:19.5_0"
+    },
+    {
+        "source_sentence": "Tassa taṇhūpayo pahīno, diṭṭhūpayo paṭinissaṭṭho;",
+        "translation": "who has given up craving and repulsion,",
+        "source": "mnd13:19.6_0"
+    },
+    {
+        "source_sentence": "taṇhūpayassa pahīnattā, diṭṭhūpayassa paṭinissaṭṭhattā anūpayo puggalo kiṁ rūpaṁ upeyya upagaccheyya gaṇheyya parāmaseyya abhiniveseyya attā meti.",
+        "translation": "When craving was given up and eliminated, what would they like to go for refuge?",
+        "source": "mnd13:19.7_0"
+    },
+    {
+        "source_sentence": "Kiṁ vedanaṁ …",
+        "translation": "What is feeling ...",
+        "source": "mnd13:19.8_0"
+    },
+    {
+        "source_sentence": "kiṁ saññaṁ …",
+        "translation": "perception ...",
+        "source": "mnd13:19.9_0"
+    },
+    {
+        "source_sentence": "kiṁ saṅkhāre …",
+        "translation": "‘What are choices ...’",
+        "source": "mnd13:19.10_0"
+    },
+    {
+        "source_sentence": "kiṁ viññāṇaṁ …",
+        "translation": "‘What is consciousness ...’",
+        "source": "mnd13:19.11_0"
+    },
+    {
+        "source_sentence": "kiṁ gatiṁ …",
+        "translation": "Why do you think ...",
+        "source": "mnd13:19.12_0"
+    },
+    {
+        "source_sentence": "kiṁ upapattiṁ …",
+        "translation": "what? ...",
+        "source": "mnd13:19.13_0"
+    },
+    {
+        "source_sentence": "kiṁ paṭisandhiṁ …",
+        "translation": "Overflowing Merit ...",
+        "source": "mnd13:19.14_0"
+    },
+    {
+        "source_sentence": "kiṁ bhavaṁ …",
+        "translation": "What is the source of what? ...",
+        "source": "mnd13:19.15_0"
+    },
+    {
+        "source_sentence": "kiṁ saṁsāraṁ …",
+        "translation": "transmigration ...",
+        "source": "mnd13:19.16_0"
+    },
+    {
+        "source_sentence": "kiṁ vaṭṭaṁ upeyya upagaccheyya gaṇheyya parāmaseyya abhiniveseyyāti—",
+        "translation": "Could an enclosure to the courtesan, and insistence insistence,",
+        "source": "mnd13:19.17_0"
+    },
+    {
+        "source_sentence": "anūpayo so upayaṁ kimeyya.",
+        "translation": "would miserable,",
+        "source": "mnd13:19.18_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhe sute khantimakubbamāno**ti.",
+        "translation": "seeing what is seen, heard, and suspected.",
+        "source": "mnd13:20.1_0"
+    },
+    {
+        "source_sentence": "Diṭṭhe vā diṭṭhasuddhiyā vā sute vā sutasuddhiyā vā mute vā mutasuddhiyā vā khantiṁ akubbamāno chandaṁ akubbamāno pemaṁ akubbamāno rāgaṁ akubbamāno ajanayamāno asañjanayamāno anibbattayamāno anabhinibbattayamānoti—",
+        "translation": "Someone who is seen or heard of purification by view or what is seen and what is heard from someone who is not seen and heard. From being disturbed, from fear, ghost, and temporary. continued existence they make a discarded and discarded.",
+        "source": "mnd13:20.2_0"
+    },
+    {
+        "source_sentence": "diṭṭhe sute khantimakubbamāno.",
+        "translation": "seeing what is seen, heard, and sensed,",
+        "source": "mnd13:20.3_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:21.1_0"
+    },
+    {
+        "source_sentence": "“Yā kācimā sammutiyo puthujjā,",
+        "translation": "“All the world’s streams have been shutted,",
+        "source": "mnd13:22.1_0"
+    },
+    {
+        "source_sentence": "Sabbāva etā na upeti vidvā;",
+        "translation": "Understanding all these, arguing.",
+        "source": "mnd13:22.2_0"
+    },
+    {
+        "source_sentence": "Anūpayo so upayaṁ kimeyya,",
+        "translation": "would miserable,",
+        "source": "mnd13:22.3_0"
+    },
+    {
+        "source_sentence": "Diṭṭhe sute khantimakubbamāno”ti.",
+        "translation": "some delight in what is seen and heard” .",
+        "source": "mnd13:22.4_0"
+    },
+    {
+        "source_sentence": "**Sīluttamā saññamenāhu suddhiṁ,**",
+        "translation": "I who was supreme of virtue, who had practiced",
+        "source": "mnd13:23.1_0"
+    },
+    {
+        "source_sentence": "**Vataṁ samādāya upaṭṭhitāse;**",
+        "translation": "You should undertake and follow that:",
+        "source": "mnd13:23.2_0"
+    },
+    {
+        "source_sentence": "**Idheva sikkhema athassa suddhiṁ,**",
+        "translation": "were to train in this very life,",
+        "source": "mnd13:23.3_0"
+    },
+    {
+        "source_sentence": "**Bhavūpanītā kusalāvadānā.**",
+        "translation": "profitable rebirth, they are reborn in a lower realm.",
+        "source": "mnd13:23.4_0"
+    },
+    {
+        "source_sentence": "**Sīluttamā saññamenāhu suddhin**ti.",
+        "translation": "One who has virtue, whose self-control is pure,",
+        "source": "mnd13:24.1_0"
+    },
+    {
+        "source_sentence": "Santeke samaṇabrāhmaṇā sīluttamavādā;",
+        "translation": "There are some ascetics and brahmins who teach the supreme ethics.",
+        "source": "mnd13:24.2_0"
+    },
+    {
+        "source_sentence": "te sīlamattena saññamamattena saṁvaramattena avītikkamamattena suddhiṁ visuddhiṁ parivisuddhiṁ, muttiṁ vimuttiṁ parivimuttiṁ āhaṁsu vadanti kathenti bhaṇanti dīpayanti voharanti.",
+        "translation": "They call themselves ‘life-deliverance’ means purification through ethics, freedom, or the purity of freedom. They choice in order to purify ourselves. And they said,",
+        "source": "mnd13:24.3_0"
+    },
+    {
+        "source_sentence": "Samaṇamuṇḍikāputto evamāha—",
+        "translation": "The ascetic Maṇḍikā said to him,",
+        "source": "mnd13:25.1_0"
+    },
+    {
+        "source_sentence": "“catūhi kho ahaṁ, gahapati, dhammehi samannāgataṁ purisapuggalaṁ paññapemi sampannakusalaṁ paramakusalaṁ uttamapattipattaṁ samaṇaṁ ayojjhaṁ.",
+        "translation": "“Householder, when an individual has four qualities I describe them as an invincible ascetic—accomplished in the skillful, excelling in the skillful, attained to the highest attainment.",
+        "source": "mnd13:25.2_0"
+    },
+    {
+        "source_sentence": "Katamehi catūhi?",
+        "translation": "What four?",
+        "source": "mnd13:25.3_0"
+    },
+    {
+        "source_sentence": "Idha, gahapati, na kāyena pāpakammaṁ karoti, na pāpikaṁ vācaṁ bhāsati, na pāpakaṁ saṅkappaṁ saṅkappeti, na pāpakaṁ ājīvaṁ ājīvati.",
+        "translation": "It’s when they do no bad deeds with their body; speak no bad words; think no bad thoughts; and don’t earn a living by bad livelihood.",
+        "source": "mnd13:25.4_0"
+    },
+    {
+        "source_sentence": "Imehi kho ahaṁ, gahapati, catūhi dhammehi samannāgataṁ purisapuggalaṁ paññapemi sampannakusalaṁ paramakusalaṁ uttamapattipattaṁ samaṇaṁ ayojjhaṁ;",
+        "translation": "When an individual has these four qualities I describe them, an invincible ascetic—accomplished in the skillful, excelling in the skillful, attained to the highest attainment.",
+        "source": "mnd13:25.5_0"
+    },
+    {
+        "source_sentence": "evamevaṁ santeke samaṇabrāhmaṇā sīluttamavādā;",
+        "translation": "In the same way, there are some ascetics and brahmins who teach ethics.",
+        "source": "mnd13:25.6_0"
+    },
+    {
+        "source_sentence": "te sīlamattena saññamamattena saṁvaramattena avītikkamamattena suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttiṁ āhaṁsu vadanti kathenti bhaṇanti dīpayanti voharantī”ti—",
+        "translation": "They merely stubborn merely by comparison within purity. With purified virtue and cleansing freedom, they say, ‘Purity’ and pure in freedom.”",
+        "source": "mnd13:25.7_0"
+    },
+    {
+        "source_sentence": "sīluttamā saññamenāhu suddhiṁ.",
+        "translation": "I who was supreme of virtue, who had practiced",
+        "source": "mnd13:25.8_0"
+    },
+    {
+        "source_sentence": "**Vataṁ samādāya upaṭṭhitāse**ti.",
+        "translation": "You should undertake and follow that:",
+        "source": "mnd13:26.1_0"
+    },
+    {
+        "source_sentence": "**Vatan**ti hatthivataṁ vā assavataṁ vā govataṁ vā kukkuravataṁ vā kākavataṁ vā vāsudevavataṁ vā baladevavataṁ vā puṇṇabhaddavataṁ vā maṇibhaddavataṁ vā aggivataṁ vā nāgavataṁ vā supaṇṇavataṁ vā yakkhavataṁ vā asuravataṁ vā gandhabbavataṁ vā mahārājavataṁ vā candavataṁ vā sūriyavataṁ vā indavataṁ vā brahmavataṁ vā devavataṁ vā disāvataṁ vā ādāya samādāya ādiyitvā samādiyitvā gaṇhitvā parāmasitvā abhinivisitvā upaṭṭhitā paccupaṭṭhitā allīnā upagatā ajjhositā adhimuttāti—",
+        "translation": "Take the case of the elephants, horses, and chariots, or deer-stills. Dragons, having undertaken a vow, hollows, and hung a branches or trampled, or tawny—shen the moon and sun, so as well as the stars of a spirit, grain, or a finger-snaponds.",
+        "source": "mnd13:26.2_0"
+    },
+    {
+        "source_sentence": "vataṁ samādāya upaṭṭhitāse.",
+        "translation": "You should undertake and follow that:",
+        "source": "mnd13:26.3_0"
+    },
+    {
+        "source_sentence": "**Idheva sikkhema athassa suddhin**ti.",
+        "translation": "are pure in this very life;",
+        "source": "mnd13:27.1_0"
+    },
+    {
+        "source_sentence": "**Idhā**ti sakāya diṭṭhiyā sakāya khantiyā sakāya ruciyā sakāya laddhiyā.",
+        "translation": "Who here once more than the Sakyans’ views, insist on their own views, and devotion to their own views.",
+        "source": "mnd13:27.2_0"
+    },
+    {
+        "source_sentence": "**Sikkhemā**ti sikkhema ācarema samācarema samādāya vattemāti—",
+        "translation": "We should train in the training according to the training rules. We should undertake and follow good conduct.",
+        "source": "mnd13:27.3_0"
+    },
+    {
+        "source_sentence": "idheva sikkhema.",
+        "translation": "We should train ourselves here in this life,",
+        "source": "mnd13:27.4_0"
+    },
+    {
+        "source_sentence": "**Athassa suddhin**ti athassa suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttinti—",
+        "translation": "Then Suddhodana, free of pure freedom, free of pure freedom, bright, and free of freedom.",
+        "source": "mnd13:27.5_0"
+    },
+    {
+        "source_sentence": "idheva sikkhema athassa suddhiṁ.",
+        "translation": "were to train in this very life,",
+        "source": "mnd13:27.6_0"
+    },
+    {
+        "source_sentence": "**Bhavūpanītā kusalāvadānā**ti.",
+        "translation": "They’re skilled in profitable states,",
+        "source": "mnd13:28.1_0"
+    },
+    {
+        "source_sentence": "**Bhavūpanītā**ti bhavūpanītā bhavūpagatā bhavajjhositā bhavādhimuttāti—",
+        "translation": "Continued existence is attached to rebirth. Rebirth is attained through rebirth.",
+        "source": "mnd13:28.2_0"
+    },
+    {
+        "source_sentence": "bhavūpanītā.",
+        "translation": "Continued existence is a condition for rebirth.",
+        "source": "mnd13:28.3_0"
+    },
+    {
+        "source_sentence": "**Kusalāvadānā**ti kusalavādā paṇḍitavādā thiravādā ñāyavādā hetuvādā lakkhaṇavādā kāraṇavādā ṭhānavādā sakāya laddhiyāti—",
+        "translation": "He eradicates the doctrines of others, and philosophy. He teachs the earth to Others.",
+        "source": "mnd13:28.4_0"
+    },
+    {
+        "source_sentence": "bhavūpanītā kusalāvadānā.",
+        "translation": "profitable rebirth, they are reborn in a lower realm.",
+        "source": "mnd13:28.5_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:29.1_0"
+    },
+    {
+        "source_sentence": "“Sīluttamā saññamenāhu suddhiṁ,",
+        "translation": "“Virtuous conduct is supreme,",
+        "source": "mnd13:30.1_0"
+    },
+    {
+        "source_sentence": "Vataṁ samādāya upaṭṭhitāse;",
+        "translation": "You should undertake and follow that:",
+        "source": "mnd13:30.2_0"
+    },
+    {
+        "source_sentence": "Idheva sikkhema athassa suddhiṁ,",
+        "translation": "were to train in this very life,",
+        "source": "mnd13:30.3_0"
+    },
+    {
+        "source_sentence": "Bhavūpanītā kusalāvadānā”ti.",
+        "translation": "loved by continued existence.”",
+        "source": "mnd13:30.4_0"
+    },
+    {
+        "source_sentence": "**Sace cuto sīlavatato hoti,**",
+        "translation": "When there is passing away,",
+        "source": "mnd13:31.1_0"
+    },
+    {
+        "source_sentence": "**Pavedhatī kamma virādhayitvā;**",
+        "translation": "bearing waters the dispensation,",
+        "source": "mnd13:31.2_0"
+    },
+    {
+        "source_sentence": "**Pajappatī patthayatī ca suddhiṁ,**",
+        "translation": "Protector and purity.",
+        "source": "mnd13:31.3_0"
+    },
+    {
+        "source_sentence": "**Satthāva hīno pavasaṁ gharamhā.**",
+        "translation": "Respect the Teacher was entering the house,",
+        "source": "mnd13:31.4_0"
+    },
+    {
+        "source_sentence": "**Sace cuto sīlavatato hotī**ti.",
+        "translation": "If there is restraint, one who thinks:",
+        "source": "mnd13:32.1_0"
+    },
+    {
+        "source_sentence": "Dvīhi kāraṇehi sīlavatato cavati—",
+        "translation": "Two grounds for furniture.",
+        "source": "mnd13:32.2_0"
+    },
+    {
+        "source_sentence": "paravicchindanāya vā cavati, anabhisambhuṇanto vā cavati.",
+        "translation": "Having cut off the bonds of others, or when bent down, he does not scare away.",
+        "source": "mnd13:32.3_0"
+    },
+    {
+        "source_sentence": "Kathaṁ paravicchindanāya cavati?",
+        "translation": "How do they resort to others?",
+        "source": "mnd13:32.4_0"
+    },
+    {
+        "source_sentence": "Paro vicchindati so satthā na sabbaññū, dhammo na svākkhāto, gaṇo na suppaṭipanno, diṭṭhi na bhaddikā, paṭipadā na supaññattā, maggo na niyyāniko, natthettha suddhi vā visuddhi vā parisuddhi vā, mutti vā vimutti vā parimutti vā, natthettha sujjhanti vā visujjhanti vā parisujjhanti vā, muccanti vā vimuccanti vā, parimuccanti vā, hīnā nihīnā omakā lāmakā chatukkā parittāti.",
+        "translation": "Other teacher doesn’t look after the Teacher, the teaching, the Saṅgha, and the practice that leads to their purity. Nor do they make it clear in their view. It is not pure because of this. They don’t bright result in order to purify their purity, or the path are freed by wisdom. And they don’t comprehend them theoretically.",
+        "source": "mnd13:32.5_0"
+    },
+    {
+        "source_sentence": "Evaṁ paro vicchindati.",
+        "translation": "so looks down on others’.",
+        "source": "mnd13:32.6_0"
+    },
+    {
+        "source_sentence": "Evaṁ vicchindiyamāno satthārā cavati, dhammakkhānā cavati, gaṇā cavati, diṭṭhiyā cavati, paṭipadāya cavati, maggato cavati.",
+        "translation": "So, being expounded in this way, the teacher summons him, and the way meets and the practices to a view. And they proceed to the path and the practice that leads to their own view.",
+        "source": "mnd13:32.7_0"
+    },
+    {
+        "source_sentence": "Evaṁ paravicchindanāya cavati.",
+        "translation": "that’s how they cut the bonds of others.",
+        "source": "mnd13:32.8_0"
+    },
+    {
+        "source_sentence": "Kathaṁ anabhisambhuṇanto cavati?",
+        "translation": "How do you not, dissatisfaction,",
+        "source": "mnd13:32.9_0"
+    },
+    {
+        "source_sentence": "Sīlaṁ anabhisambhuṇanto sīlato cavati, vataṁ anabhisambhuṇanto vatato cavati, sīlabbataṁ anabhisambhuṇanto sīlabbatato cavati.",
+        "translation": "My ethical conduct is not managing to be ethical, nor do they fall under the sway of ethical conduct.",
+        "source": "mnd13:32.10_0"
+    },
+    {
+        "source_sentence": "Evaṁ anabhisambhuṇanto cavatīti—",
+        "translation": "so there is no dissatisfaction with them:",
+        "source": "mnd13:32.11_0"
+    },
+    {
+        "source_sentence": "sace cuto sīlavatato hoti.",
+        "translation": "When there is passing away,",
+        "source": "mnd13:32.12_0"
+    },
+    {
+        "source_sentence": "**Pavedhati kamma virādhayitvā**ti.",
+        "translation": "having washed and cut the outer robe,",
+        "source": "mnd13:33.1_0"
+    },
+    {
+        "source_sentence": "**Pavedhatī**ti sīlaṁ vā vataṁ vā sīlabbataṁ vā “viraddhaṁ mayā, aparaddhaṁ mayā, khalitaṁ mayā, galitaṁ mayā, aññāya aparaddho ahan”ti vedhati pavedhati sampavedhatīti—",
+        "translation": "I’ve done this, whether it’s the sweat of ethical conduct or posture.",
+        "source": "mnd13:33.2_0"
+    },
+    {
+        "source_sentence": "pavedhati.",
+        "translation": "cutting off.",
+        "source": "mnd13:33.3_0"
+    },
+    {
+        "source_sentence": "**Kamma virādhayitvā**ti puññābhisaṅkhāraṁ vā apuññābhisaṅkhāraṁ vā āneñjābhisaṅkhāraṁ vā “viraddhaṁ mayā, aparaddhaṁ mayā, khalitaṁ mayā, galitaṁ mayā, aññāya aparaddho ahan”ti vedhati pavedhati sampavedhatīti—",
+        "translation": "I choose to make merit, having made much merit. It has thoroughly violence. It’s beenracticed by me, I declared: “They’ve finished eating.”",
+        "source": "mnd13:33.4_0"
+    },
+    {
+        "source_sentence": "pavedhati kamma virādhayitvā.",
+        "translation": "she grows disillusioned and dispassionate towards herself.",
+        "source": "mnd13:33.5_0"
+    },
+    {
+        "source_sentence": "**Pajappatī patthayatī ca suddhin**ti.",
+        "translation": "They attain right praise and pure,",
+        "source": "mnd13:34.1_0"
+    },
+    {
+        "source_sentence": "**Pajappatī**ti sīlaṁ vā jappati, vataṁ vā jappati, sīlabbataṁ vā jappati pajappati abhijappatīti—",
+        "translation": "They give up disturbance, ethics, or wisdom.",
+        "source": "mnd13:34.2_0"
+    },
+    {
+        "source_sentence": "pajappati.",
+        "translation": "they’re measured against negligence.",
+        "source": "mnd13:34.3_0"
+    },
+    {
+        "source_sentence": "**Patthayatī ca suddhin**ti sīlasuddhiṁ vā pattheti, vatasuddhiṁ vā pattheti, sīlabbatasuddhiṁ vā pattheti piheti abhijappatīti—",
+        "translation": "And he drops the bowl of purification in ethics or view. It is owing to purification or ethics.",
+        "source": "mnd13:34.4_0"
+    },
+    {
+        "source_sentence": "pajappatī patthayatī ca suddhiṁ.",
+        "translation": "Protector and purity.",
+        "source": "mnd13:34.5_0"
+    },
+    {
+        "source_sentence": "**Satthāva hīno pavasaṁ gharamhā**ti.",
+        "translation": "Respect the Teacher was brought away from the house,",
+        "source": "mnd13:35.1_0"
+    },
+    {
+        "source_sentence": "Yathā puriso gharato nikkhanto satthena pavasaṁ vasanto satthā ohīno, taṁ vā satthaṁ anubandhati sakaṁ vā gharaṁ paccāgacchati;",
+        "translation": "Suppose a man leaves the house with a sword in his own hand, so that the Teacher comes back to his own place.",
+        "source": "mnd13:35.2_0"
+    },
+    {
+        "source_sentence": "evamevaṁ so diṭṭhigatiko taṁ vā satthāraṁ gaṇhāti aññaṁ vā satthāraṁ gaṇhāti, taṁ vā dhammakkhānaṁ gaṇhāti aññaṁ vā dhammakkhānaṁ gaṇhāti, taṁ vā gaṇaṁ gaṇhāti aññaṁ vā gaṇaṁ gaṇhāti, taṁ vā diṭṭhiṁ gaṇhāti aññaṁ vā diṭṭhiṁ gaṇhāti, taṁ vā paṭipadaṁ gaṇhāti aññaṁ vā paṭipadaṁ gaṇhāti, taṁ vā maggaṁ gaṇhāti aññaṁ vā maggaṁ gaṇhāti parāmasati abhinivisatīti—",
+        "translation": "In the same way, he takes hold of that view, the Teacher, the teacher, the view, the belief, the. He seizes another group, or else a group or one another. He makes another recipients him, or the group, and the gotstory.",
+        "source": "mnd13:35.3_0"
+    },
+    {
+        "source_sentence": "satthāva hīno pavasaṁ gharamhā.",
+        "translation": "Respect the Teacher was entering the house,",
+        "source": "mnd13:35.4_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:36.1_0"
+    },
+    {
+        "source_sentence": "“Sace cuto sīlavatato hoti,",
+        "translation": "“Do you become ethical when your passing away,",
+        "source": "mnd13:37.1_0"
+    },
+    {
+        "source_sentence": "Pavedhatī kamma virādhayitvā;",
+        "translation": "bearing waters the dispensation,",
+        "source": "mnd13:37.2_0"
+    },
+    {
+        "source_sentence": "Pajappatī patthayatī ca suddhiṁ,",
+        "translation": "Protector and purity.",
+        "source": "mnd13:37.3_0"
+    },
+    {
+        "source_sentence": "Satthāva hīno pavasaṁ gharamhā”ti.",
+        "translation": "I’ve finished report to the Teacher.”",
+        "source": "mnd13:37.4_0"
+    },
+    {
+        "source_sentence": "**Sīlabbataṁ vāpi pahāya sabbaṁ,**",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "mnd13:38.1_0"
+    },
+    {
+        "source_sentence": "**Kammañca sāvajjanavajjametaṁ;**",
+        "translation": "blameworthy and blameless.",
+        "source": "mnd13:38.2_0"
+    },
+    {
+        "source_sentence": "**Suddhiṁ asuddhinti apatthayāno,**",
+        "translation": "Without pure purity,",
+        "source": "mnd13:38.3_0"
+    },
+    {
+        "source_sentence": "**Virato care santimanuggahāya.**",
+        "translation": "living near to him, leaving behind.",
+        "source": "mnd13:38.4_0"
+    },
+    {
+        "source_sentence": "**Sīlabbataṁ vāpi pahāya sabban**ti.",
+        "translation": "heard, or sensed and virtue and practices.",
+        "source": "mnd13:39.1_0"
+    },
+    {
+        "source_sentence": "Sabbā sīlasuddhiyo pahāya pajahitvā vinodetvā byantiṁ karitvā anabhāvaṁ gametvā, sabbā vatasuddhiyo pahāya pajahitvā vinodetvā byantiṁ karitvā anabhāvaṁ gametvā, sabbā sīlabbatasuddhiyo pahāya pajahitvā vinodetvā byantiṁ karitvā anabhāvaṁ gametvāti—",
+        "translation": "After giving up all purity and ethical conduct, they gave up themselves, get rid of, eliminate it, and obliterate it. Then they surely, purification them, and make their purification. Then they gave up all defilements,",
+        "source": "mnd13:39.2_0"
+    },
+    {
+        "source_sentence": "sīlabbataṁ vāpi pahāya sabbaṁ.",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "mnd13:39.3_0"
+    },
+    {
+        "source_sentence": "**Kammañca sāvajjanavajjametan**ti.",
+        "translation": "avoiding work—",
+        "source": "mnd13:40.1_0"
+    },
+    {
+        "source_sentence": "Sāvajjakammaṁ vuccati—",
+        "translation": "doctor of condemnation,",
+        "source": "mnd13:40.2_0"
+    },
+    {
+        "source_sentence": "kaṇhaṁ kaṇhavipākaṁ.",
+        "translation": "dark results of dark deeds.",
+        "source": "mnd13:40.3_0"
+    },
+    {
+        "source_sentence": "Anavajjakammaṁ vuccati—",
+        "translation": "and blameless—",
+        "source": "mnd13:40.4_0"
+    },
+    {
+        "source_sentence": "sukkaṁ sukkavipākaṁ.",
+        "translation": "bright deeds with bright results;",
+        "source": "mnd13:40.5_0"
+    },
+    {
+        "source_sentence": "Sāvajjañca kammaṁ anavajjañca kammaṁ pahāya pajahitvā vinodetvā byantiṁ karitvā anabhāvaṁ gametvāti—",
+        "translation": "Giving up ignorance, they give up blameless deeds.",
+        "source": "mnd13:40.6_0"
+    },
+    {
+        "source_sentence": "kammañca sāvajjanavajjametaṁ.",
+        "translation": "blameworthy and blameless.",
+        "source": "mnd13:40.7_0"
+    },
+    {
+        "source_sentence": "**Suddhiṁ asuddhinti apatthayāno**ti.",
+        "translation": "Without pure purity:",
+        "source": "mnd13:41.1_0"
+    },
+    {
+        "source_sentence": "**Asuddhin**ti asuddhiṁ patthenti, akusale dhamme patthenti.",
+        "translation": "They scrutinize their purity by way of body, speech, and mind.",
+        "source": "mnd13:41.2_0"
+    },
+    {
+        "source_sentence": "**Suddhin**ti suddhiṁ patthenti, pañca kāmaguṇe patthenti;",
+        "translation": "who practices pureliness, free from the five kinds of sensual stimulation,",
+        "source": "mnd13:41.3_0"
+    },
+    {
+        "source_sentence": "asuddhiṁ patthenti, akusale dhamme patthenti, pañca kāmaguṇe patthenti;",
+        "translation": "They proclaim the purity of unskillful qualities to be pure in mind.",
+        "source": "mnd13:41.4_0"
+    },
+    {
+        "source_sentence": "suddhiṁ patthenti, dvāsaṭṭhi diṭṭhigatāni patthenti, asuddhiṁ patthenti, akusale dhamme patthenti, pañca kāmaguṇe patthenti, dvāsaṭṭhi diṭṭhigatāni patthenti;",
+        "translation": "They pass away from purification through the view. Protectors, the teachers, and the five kinds of sensual stimulation, sixty, five, ten, twenty, thirty, forty, fifty, and a hundred and fifty view.",
+        "source": "mnd13:41.5_0"
+    },
+    {
+        "source_sentence": "suddhiṁ patthenti;",
+        "translation": "With the pure and the virtuous (thinking):",
+        "source": "mnd13:41.6_0"
+    },
+    {
+        "source_sentence": "tedhātuke kusale dhamme patthenti, asuddhiṁ patthenti, akusale dhamme patthenti, pañca kāmaguṇe patthenti, dvāsaṭṭhi diṭṭhigatāni patthenti, tedhātuke kusale dhamme patthenti;",
+        "translation": "Sometimes they drench the element of skillful qualities composed by the degree of the skillful, unskillful qualities, and its view.",
+        "source": "mnd13:41.7_0"
+    },
+    {
+        "source_sentence": "suddhiṁ patthenti, puthujjanakalyāṇakā niyāmāvakkantiṁ patthenti.",
+        "translation": "They drivenk the lady purification, and they fall asleep.",
+        "source": "mnd13:41.8_0"
+    },
+    {
+        "source_sentence": "Sekkhā aggadhammaṁ arahattaṁ patthenti.",
+        "translation": "is said to be the best,",
+        "source": "mnd13:41.9_0"
+    },
+    {
+        "source_sentence": "Arahatte patte arahā neva akusale dhamme pattheti, napi pañca kāmaguṇe pattheti, napi dvāsaṭṭhi diṭṭhigatāni pattheti, napi tedhātuke kusale dhamme pattheti, napi niyāmāvakkantiṁ pattheti, napi aggadhammaṁ arahattaṁ pattheti.",
+        "translation": "perfection, on the best of those five kinds of sensual stimulation, or some people have attained perfection.",
+        "source": "mnd13:41.10_0"
+    },
+    {
+        "source_sentence": "Patthanā samatikkanto arahā vuddhipārihānivītivatto.",
+        "translation": "He grows disillusioned with the blessings, growth, drops on the lower world.",
+        "source": "mnd13:41.11_0"
+    },
+    {
+        "source_sentence": "So vuṭṭhavāso ciṇṇacaraṇo …pe…",
+        "translation": "Established in ear,",
+        "source": "mnd13:41.12_0"
+    },
+    {
+        "source_sentence": "jātijarāmaraṇasaṁsāro natthi tassa punabbhavoti—",
+        "translation": "Relishing rebirth, they don’t remember rebirth, there’s no further existence.",
+        "source": "mnd13:41.13_0"
+    },
+    {
+        "source_sentence": "suddhiṁ asuddhinti apatthayāno.",
+        "translation": "Without pure purity,",
+        "source": "mnd13:41.14_0"
+    },
+    {
+        "source_sentence": "**Virato care santimanuggahāyā**ti.",
+        "translation": "Inhabited drivers, dwellings,",
+        "source": "mnd13:42.1_0"
+    },
+    {
+        "source_sentence": "**Virato**ti suddhiasuddhiyā ārato assa virato paṭivirato nikkhanto nissaṭo vippamutto visaññutto, vimariyādikatena cetasā viharatīti—",
+        "translation": "Recollecting the purity of one who refrains from pure equanimity, free of limits and frees; for they purification, they meditate with a mind free of limits.",
+        "source": "mnd13:42.2_0"
+    },
+    {
+        "source_sentence": "virato.",
+        "translation": "refraining from discontent,",
+        "source": "mnd13:42.3_0"
+    },
+    {
+        "source_sentence": "**Care**ti careyya vicareyya vihareyya iriyeyya vatteyya pāleyya yapeyya yāpeyyāti—",
+        "translation": "‘May I live wandering indiscriminately, he should serve a regular monk.’",
+        "source": "mnd13:42.4_0"
+    },
+    {
+        "source_sentence": "virato care.",
+        "translation": "wandering indiscriminately,",
+        "source": "mnd13:42.5_0"
+    },
+    {
+        "source_sentence": "**Santimanuggahāyā**ti.",
+        "translation": "Independent, flattering on:",
+        "source": "mnd13:42.6_0"
+    },
+    {
+        "source_sentence": "Santiyo vuccanti dvāsaṭṭhi diṭṭhigatāni diṭṭhisantiyo agaṇhanto aparāmasanto anabhinivisantoti—",
+        "translation": "There are sixty-two misconceptions called a group of sixty-two misconceptions, and discontent insistences.",
+        "source": "mnd13:42.7_0"
+    },
+    {
+        "source_sentence": "virato care santimanuggahāya.",
+        "translation": "living near to him, leaving behind.",
+        "source": "mnd13:42.8_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:43.1_0"
+    },
+    {
+        "source_sentence": "“Sīlabbataṁ vāpi pahāya sabbaṁ,",
+        "translation": "“Even though they have given up all virtues,",
+        "source": "mnd13:44.1_0"
+    },
+    {
+        "source_sentence": "Kammañca sāvajjanavajjametaṁ;",
+        "translation": "blameworthy and blameless.",
+        "source": "mnd13:44.2_0"
+    },
+    {
+        "source_sentence": "Suddhiṁ asuddhinti apatthayāno,",
+        "translation": "Without pure purity,",
+        "source": "mnd13:44.3_0"
+    },
+    {
+        "source_sentence": "Virato care santimanuggahāyā”ti.",
+        "translation": "I live out of seclusion.”",
+        "source": "mnd13:44.4_0"
+    },
+    {
+        "source_sentence": "**Tamūpanissāya jigucchitaṁ vā,**",
+        "translation": "Speaker, detest,",
+        "source": "mnd13:45.1_0"
+    },
+    {
+        "source_sentence": "**Atha vāpi diṭṭhaṁ va sutaṁ mutaṁ vā;**",
+        "translation": "Or alternatively, what is seen or heard,",
+        "source": "mnd13:45.2_0"
+    },
+    {
+        "source_sentence": "**Uddhaṁsarā suddhimanutthunanti,**",
+        "translation": "purity of mind,",
+        "source": "mnd13:45.3_0"
+    },
+    {
+        "source_sentence": "**Avītataṇhāse bhavābhavesu.**",
+        "translation": "without craving, without attachment,",
+        "source": "mnd13:45.4_0"
+    },
+    {
+        "source_sentence": "**Tamūpanissāya jigucchitaṁ vā**ti.",
+        "translation": "The victor guilts in disgust of sin.",
+        "source": "mnd13:46.1_0"
+    },
+    {
+        "source_sentence": "Santeke samaṇabrāhmaṇā tapojigucchavādā tapojigucchasārā tapojigucchanissitā ānissitā allīnā upagatā ajjhositā adhimuttāti—",
+        "translation": "There are some ascetics and brahmins who teach mortification in disgust of sin—not regarding it as essential or clinging to it—are This is the mortification in disgust of sin.",
+        "source": "mnd13:46.2_0"
+    },
+    {
+        "source_sentence": "tamūpanissāya jigucchitaṁ vā.",
+        "translation": "Speaker, detest,",
+        "source": "mnd13:46.3_0"
+    },
+    {
+        "source_sentence": "**Atha vāpi diṭṭhaṁ va sutaṁ mutaṁ vā**ti.",
+        "translation": "Or alternatively, what is seen or what is heard,",
+        "source": "mnd13:47.1_0"
+    },
+    {
+        "source_sentence": "Diṭṭhaṁ vā diṭṭhasuddhiṁ vā sutaṁ vā sutasuddhiṁ vā mutaṁ vā mutasuddhiṁ vā nissāya upanissāya gaṇhitvā parāmasitvā abhinivisitvāti—",
+        "translation": "seen, heard, thought, or known something, and urine or excluded from the community. Then he strikes himself or seeks purity by sending away from it, and then,",
+        "source": "mnd13:47.2_0"
+    },
+    {
+        "source_sentence": "atha vāpi diṭṭhaṁ va sutaṁ mutaṁ vā.",
+        "translation": "Or alternatively, what is seen or heard,",
+        "source": "mnd13:47.3_0"
+    },
+    {
+        "source_sentence": "**Uddhaṁsarā suddhimanutthunantī**ti.",
+        "translation": "Remembering purity of mindfulness meditation.",
+        "source": "mnd13:48.1_0"
+    },
+    {
+        "source_sentence": "Santeke samaṇabrāhmaṇā uddhaṁsarāvādā.",
+        "translation": "There are some ascetics and brahmins who teach the ocean.",
+        "source": "mnd13:48.2_0"
+    },
+    {
+        "source_sentence": "Katame te samaṇabrāhmaṇā uddhaṁsarāvādā?",
+        "translation": "What are the ascetics and brahmins who teach?",
+        "source": "mnd13:48.3_0"
+    },
+    {
+        "source_sentence": "Ye te samaṇabrāhmaṇā accantasuddhikā, saṁsārasuddhikā, akiriyadiṭṭhikā, sassatavādā—",
+        "translation": "Those ascetics and brahmins who transmigration, and having reached the ultimate end,",
+        "source": "mnd13:48.4_0"
+    },
+    {
+        "source_sentence": "ime te samaṇabrāhmaṇā uddhaṁsarāvādā.",
+        "translation": "These are the ascetics and brahmins who teach Dhamma.",
+        "source": "mnd13:48.5_0"
+    },
+    {
+        "source_sentence": "Te saṁsāre suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttiṁ thunanti vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "They scorch the purity of freedom; they laughed with purified freedom; they speak with the purity of freedom; they choose absentence of the lamps.",
+        "source": "mnd13:48.6_0"
+    },
+    {
+        "source_sentence": "uddhaṁsarā suddhimanutthunanti.",
+        "translation": "purity of mind,",
+        "source": "mnd13:48.7_0"
+    },
+    {
+        "source_sentence": "**Avītataṇhāse bhavābhavesū**ti.",
+        "translation": "not rid of craving for rebirth in this or that state,",
+        "source": "mnd13:49.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti rūpataṇhā saddataṇhā gandhataṇhā rasataṇhā phoṭṭhabbataṇhā dhammataṇhā.",
+        "translation": "craving for sights, sounds, smells, tastes, touches, and thoughts.",
+        "source": "mnd13:49.2_0"
+    },
+    {
+        "source_sentence": "**Bhavābhavesū**ti bhavābhave kammabhave punabbhave kāmabhave, kammabhave kāmabhave punabbhave rūpabhave, kammabhave rūpabhave punabbhave arūpabhave, kammabhave arūpabhave punabbhave punappunabbhave punappunagatiyā punappunaupapattiyā punappunapaṭisandhiyā punappunaattabhāvābhinibbattiyā avītataṇhā avigatataṇhā acattataṇhā avantataṇhā amuttataṇhā appahīnataṇhā appaṭinissaṭṭhataṇhāti—",
+        "translation": "They don’t continue existence regarding future lives, rebirth in the realm of luminous form, feeling, perception, choices, and consciousness.",
+        "source": "mnd13:49.3_0"
+    },
+    {
+        "source_sentence": "avītataṇhāse bhavābhavesu.",
+        "translation": "without craving, without attachment,",
+        "source": "mnd13:49.4_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:50.1_0"
+    },
+    {
+        "source_sentence": "“Tamūpanissāya jigucchitaṁ vā,",
+        "translation": "“With regard to a vital condition, disgusting,",
+        "source": "mnd13:51.1_0"
+    },
+    {
+        "source_sentence": "Atha vāpi diṭṭhaṁ va sutaṁ mutaṁ vā;",
+        "translation": "Or alternatively, what is seen or heard,",
+        "source": "mnd13:51.2_0"
+    },
+    {
+        "source_sentence": "Uddhaṁsarā suddhimanutthunanti,",
+        "translation": "purity of mind,",
+        "source": "mnd13:51.3_0"
+    },
+    {
+        "source_sentence": "Avītataṇhāse bhavābhavesū”ti.",
+        "translation": "They’ve not transcended craving for continued existence.”",
+        "source": "mnd13:51.4_0"
+    },
+    {
+        "source_sentence": "**Patthayamānassa hi jappitāni,**",
+        "translation": "Because acquisition of meaning",
+        "source": "mnd13:52.1_0"
+    },
+    {
+        "source_sentence": "**Pavedhitaṁ vāpi pakappitesu;**",
+        "translation": "cutting off or in regard to such things as Dhamma;",
+        "source": "mnd13:52.2_0"
+    },
+    {
+        "source_sentence": "**Cutūpapāto idha yassa natthi,**",
+        "translation": "in this life they have no passing away and reappearing here,",
+        "source": "mnd13:52.3_0"
+    },
+    {
+        "source_sentence": "**Sa kena vedheyya kuhiṁ va jappe.**",
+        "translation": "He should attack a snake with a scorpion,",
+        "source": "mnd13:52.4_0"
+    },
+    {
+        "source_sentence": "**Patthayamānassa hi jappitānī**ti.",
+        "translation": "Because the burning one is burning flames,",
+        "source": "mnd13:53.1_0"
+    },
+    {
+        "source_sentence": "**Patthanā** vuccati taṇhā.",
+        "translation": "they’re said to be craving.",
+        "source": "mnd13:53.2_0"
+    },
+    {
+        "source_sentence": "Yo rāgo sārāgo …pe… abhijjhā lobho akusalamūlaṁ.",
+        "translation": "Greed ...",
+        "source": "mnd13:53.3_0"
+    },
+    {
+        "source_sentence": "**Patthayamānassā**ti patthayamānassa icchamānassa sādiyamānassa pihayamānassa abhijappamānassāti—",
+        "translation": "Rejecting your mind, desireing to be reborn, and gladdening them,",
+        "source": "mnd13:53.4_0"
+    },
+    {
+        "source_sentence": "patthayamānassa hi.",
+        "translation": "For the person who corrupts",
+        "source": "mnd13:53.5_0"
+    },
+    {
+        "source_sentence": "**Jappitānī**ti.",
+        "translation": "Brightness:",
+        "source": "mnd13:53.6_0"
+    },
+    {
+        "source_sentence": "**Jappanā** vuccati taṇhā.",
+        "translation": "craving is what is meant.",
+        "source": "mnd13:53.7_0"
+    },
+    {
+        "source_sentence": "Yo rāgo sārāgo …pe… abhijjhā lobho akusalamūlanti—",
+        "translation": "Greed, hate, and delusion.",
+        "source": "mnd13:53.8_0"
+    },
+    {
+        "source_sentence": "patthayamānassa hi jappitāni.",
+        "translation": "Because acquisition of meaning",
+        "source": "mnd13:53.9_0"
+    },
+    {
+        "source_sentence": "**Pavedhitaṁ vāpi pakappitesū**ti.",
+        "translation": "cuttings off, or rotten.",
+        "source": "mnd13:54.1_0"
+    },
+    {
+        "source_sentence": "**Pakappanā**ti dve pakappanā—",
+        "translation": "two kinds of diverse:",
+        "source": "mnd13:54.2_0"
+    },
+    {
+        "source_sentence": "taṇhāpakappanā ca diṭṭhipakappanā ca …pe…",
+        "translation": "Craving is totally given up. Seeking is produced by craving.",
+        "source": "mnd13:54.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ taṇhāpakappanā …pe…",
+        "translation": "This is the craving that leads to future lives. ...",
+        "source": "mnd13:54.4_0"
+    },
+    {
+        "source_sentence": "ayaṁ diṭṭhipakappanā.",
+        "translation": "This is the ground for views.",
+        "source": "mnd13:54.5_0"
+    },
+    {
+        "source_sentence": "**Pavedhitaṁ vāpi pakappitesū**ti.",
+        "translation": "cuttings off, or rotten.",
+        "source": "mnd13:54.6_0"
+    },
+    {
+        "source_sentence": "Pakappitaṁ vatthuṁ acchedasaṅkinopi vedhenti, acchijjantepi vedhenti, acchinnepi vedhenti;",
+        "translation": "The cloths that were cutting off, untied, and incorporating the borderlands, Vedehikāsa, and they were infected.",
+        "source": "mnd13:54.7_0"
+    },
+    {
+        "source_sentence": "pakappitaṁ vatthuṁ vipariṇāmasaṅkinopi vedhenti, vipariṇamantepi vedhenti, vipariṇatepi vedhenti pavedhenti sampavedhentīti—",
+        "translation": "They make a cloth like this:",
+        "source": "mnd13:54.8_0"
+    },
+    {
+        "source_sentence": "pavedhitaṁ vāpi pakappitesu.",
+        "translation": "cutting off or in regard to such things as Dhamma;",
+        "source": "mnd13:54.9_0"
+    },
+    {
+        "source_sentence": "**Cutūpapāto idha yassa natthī**ti.",
+        "translation": "When one has passed away and reappeared here,",
+        "source": "mnd13:55.1_0"
+    },
+    {
+        "source_sentence": "**Yassā**ti arahato khīṇāsavassa.",
+        "translation": "For the one who has ended the defilements,",
+        "source": "mnd13:55.2_0"
+    },
+    {
+        "source_sentence": "Yassa gamanaṁ āgamanaṁ gamanāgamanaṁ kālaṁ gati bhavābhavo cuti ca upapatti ca nibbatti ca bhedo ca jāti ca jarāmaraṇañca natthi na santi na saṁvijjanti nupalabbhanti, pahīnā samucchinnā vūpasantā paṭipassaddhā abhabbuppattikā ñāṇagginā daḍḍhāti—",
+        "translation": "For if coming and going, they were reborn in the realm of luminous movement, rebirth, old age, and death, from whose rebirth is old age and death, and from who has come to be the dissolution, nor do they make the voice of rebirth, old age, and death, toughing and death, or tormenting them?",
+        "source": "mnd13:55.3_0"
+    },
+    {
+        "source_sentence": "cutūpapāto idha yassa natthi.",
+        "translation": "in this life they have no passing away and reappearing here,",
+        "source": "mnd13:55.4_0"
+    },
+    {
+        "source_sentence": "**Sa kena vedheyya kuhiṁ va jappe**ti.",
+        "translation": "He should wound an angry person lose their way,",
+        "source": "mnd13:56.1_0"
+    },
+    {
+        "source_sentence": "So kena rāgena vedheyya, kena dosena vedheyya, kena mohena vedheyya, kena mānena vedheyya, kāya diṭṭhiyā vedheyya, kena uddhaccena vedheyya, kāya vicikicchāya vedheyya, kehi anusayehi vedheyya—",
+        "translation": "Greed by greed, hate, delusion, anger, hostility, disdain, contempt, jealousy, stinginess, and conceit.",
+        "source": "mnd13:56.2_0"
+    },
+    {
+        "source_sentence": "rattoti vā duṭṭhoti vā mūḷhoti vā vinibaddhoti vā parāmaṭṭhoti vā vikkhepagatoti vā aniṭṭhaṅgatoti vā thāmagatoti vā.",
+        "translation": "if he leaves because he’s been executed, saying: ‘This is a confused about,’ or ‘This is called a misfortune’ or ‘teady’ or ‘unction’.",
+        "source": "mnd13:56.3_0"
+    },
+    {
+        "source_sentence": "Te abhisaṅkhārā pahīnā;",
+        "translation": "When you’ve given up this,",
+        "source": "mnd13:56.4_0"
+    },
+    {
+        "source_sentence": "abhisaṅkhārānaṁ pahīnattā gatiyā kena vedheyya—",
+        "translation": "Compassion was given up by what was happening,",
+        "source": "mnd13:56.5_0"
+    },
+    {
+        "source_sentence": "nerayikoti vā tiracchānayonikoti vā pettivisayikoti vā manussoti vā devoti vā rūpīti vā arūpīti vā saññīti vā asaññīti vā nevasaññīnāsaññīti vā, so hetu natthi paccayo natthi kāraṇaṁ natthi yena vedheyya pavedheyya sampavedheyyāti—",
+        "translation": "It is no animal—ascetic, exempt from animal realm, ghost realm, or human form—which is a cause of loss, bad place, the underworld. There is no non-human or a recipient, or neither percipient nor non-percipient.",
+        "source": "mnd13:56.6_0"
+    },
+    {
+        "source_sentence": "sa kena vedheyya.",
+        "translation": "Someone attacks with a sword,",
+        "source": "mnd13:56.7_0"
+    },
+    {
+        "source_sentence": "**Kuhiṁva jappe**ti kuhiṁ vā jappeyya kimhi jappeyya, kattha jappeyya pajappeyya abhijappeyyāti—",
+        "translation": "Then they’d win a firewood, burn, blazing and glowing.",
+        "source": "mnd13:56.8_0"
+    },
+    {
+        "source_sentence": "sa kena vedheyya kuhiṁ va jappe.",
+        "translation": "He should attack a snake with a scorpion,",
+        "source": "mnd13:56.9_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:57.1_0"
+    },
+    {
+        "source_sentence": "“Patthayamānassa hi jappitāni,",
+        "translation": "“Whether fire is burning flames,",
+        "source": "mnd13:58.1_0"
+    },
+    {
+        "source_sentence": "Pavedhitaṁ vāpi pakappitesu;",
+        "translation": "cutting off or in regard to such things as Dhamma;",
+        "source": "mnd13:58.2_0"
+    },
+    {
+        "source_sentence": "Cutūpapāto idha yassa natthi,",
+        "translation": "in this life they have no passing away and reappearing here,",
+        "source": "mnd13:58.3_0"
+    },
+    {
+        "source_sentence": "Sa kena vedheyya kuhiṁ va jappe”ti.",
+        "translation": "get angry and blazing forth.”",
+        "source": "mnd13:58.4_0"
+    },
+    {
+        "source_sentence": "**Yamāhu dhammaṁ paramanti eke,**",
+        "translation": "That one thing, in the ultimate way,",
+        "source": "mnd13:59.1_0"
+    },
+    {
+        "source_sentence": "**Tameva hīnanti panāhu aññe;**",
+        "translation": "Here they were the only ones who say,",
+        "source": "mnd13:59.2_0"
+    },
+    {
+        "source_sentence": "**Sacco nu vādo katamo imesaṁ,**",
+        "translation": "What was it, Vāsiṭṭha, what was it?",
+        "source": "mnd13:59.3_0"
+    },
+    {
+        "source_sentence": "**Sabbeva hīme kusalāvadānā.**",
+        "translation": "all are wholesome roots,",
+        "source": "mnd13:59.4_0"
+    },
+    {
+        "source_sentence": "**Yamāhu dhammaṁ paramanti eke**ti.",
+        "translation": "That one thing, in the ultimate way,",
+        "source": "mnd13:60.1_0"
+    },
+    {
+        "source_sentence": "Yaṁ dhammaṁ diṭṭhiṁ paṭipadaṁ maggaṁ eke samaṇabrāhmaṇā “idaṁ paramaṁ aggaṁ seṭṭhaṁ visiṭṭhaṁ pāmokkhaṁ uttamaṁ pavaran”ti, evamāhaṁsu evaṁ kathenti evaṁ bhaṇanti evaṁ dīpayanti evaṁ voharantīti—",
+        "translation": "When one thing is the best of those ascetics and brahmins say this: “This is the best path, this is the best, this is the highest blessing, this is the highest blessing.”",
+        "source": "mnd13:60.2_0"
+    },
+    {
+        "source_sentence": "yamāhu dhammaṁ paramanti eke.",
+        "translation": "That one thing, in the ultimate way,",
+        "source": "mnd13:60.3_0"
+    },
+    {
+        "source_sentence": "**Tameva hīnanti panāhu aññe**ti tameva dhammaṁ diṭṭhiṁ paṭipadaṁ maggaṁ eke samaṇabrāhmaṇā “hīnaṁ etaṁ, nihīnaṁ etaṁ, omakaṁ etaṁ, lāmakaṁ etaṁ, chatukkaṁ etaṁ, parittakaṁ etan”ti, evamāhaṁsu evaṁ kathenti evaṁ bhaṇanti evaṁ dīpayanti evaṁ voharantīti—",
+        "translation": "But what is better and not the same thing?”",
+        "source": "mnd13:61.1_0"
+    },
+    {
+        "source_sentence": "tameva hīnanti panāhu aññe.",
+        "translation": "Here they were the only ones who say,",
+        "source": "mnd13:61.2_0"
+    },
+    {
+        "source_sentence": "**Sacco nu vādo katamo imesan**ti.",
+        "translation": "which are the truths, and which are theyate?",
+        "source": "mnd13:62.1_0"
+    },
+    {
+        "source_sentence": "Imesaṁ samaṇabrāhmaṇānaṁ vādo katamo sacco taccho tatho bhūto yāthāvo aviparītoti—",
+        "translation": "Which of these ascetics and brahmins is true, real, and accurate.",
+        "source": "mnd13:62.2_0"
+    },
+    {
+        "source_sentence": "sacco nu vādo katamo imesaṁ.",
+        "translation": "What was it, Vāsiṭṭha, what was it?",
+        "source": "mnd13:62.3_0"
+    },
+    {
+        "source_sentence": "**Sabbeva hīme kusalāvadānā**ti.",
+        "translation": "all are wholesome things.",
+        "source": "mnd13:63.1_0"
+    },
+    {
+        "source_sentence": "Sabbevime samaṇabrāhmaṇā kusalavādā paṇḍitavādā thiravādā ñāyavādā hetuvādā lakkhaṇavādā kāraṇavādā ṭhānavādā sakāya laddhiyāti—",
+        "translation": "(All these ascetics and brahmins) who teach the doctrines of others, who teach the efficacy of deeds. Outside of this there are deeds.",
+        "source": "mnd13:63.2_0"
+    },
+    {
+        "source_sentence": "sabbeva hīme kusalāvadānā.",
+        "translation": "all are wholesome roots,",
+        "source": "mnd13:63.3_0"
+    },
+    {
+        "source_sentence": "Tenāha so nimmito—",
+        "translation": "That monk was stored away.",
+        "source": "mnd13:64.1_0"
+    },
+    {
+        "source_sentence": "“Yamāhu dhammaṁ paramanti eke,",
+        "translation": "“It is because they say that the ultimate goal",
+        "source": "mnd13:65.1_0"
+    },
+    {
+        "source_sentence": "Tameva hīnanti panāhu aññe;",
+        "translation": "Here they were the only ones who say,",
+        "source": "mnd13:65.2_0"
+    },
+    {
+        "source_sentence": "Sacco nu vādo katamo imesaṁ,",
+        "translation": "What was it, Vāsiṭṭha, what was it?",
+        "source": "mnd13:65.3_0"
+    },
+    {
+        "source_sentence": "Sabbeva hīme kusalāvadānā”ti.",
+        "translation": "all skillful things.”",
+        "source": "mnd13:65.4_0"
+    },
+    {
+        "source_sentence": "**Sakañhi dhammaṁ paripuṇṇamāhu,**",
+        "translation": "for the sake of the Dhamma,",
+        "source": "mnd13:66.1_0"
+    },
+    {
+        "source_sentence": "**Aññassa dhammaṁ pana hīnamāhu;**",
+        "translation": "Through his teaching it is inferior.",
+        "source": "mnd13:66.2_0"
+    },
+    {
+        "source_sentence": "**Evampi viggayha vivādayanti,**",
+        "translation": "But even arguments,",
+        "source": "mnd13:66.3_0"
+    },
+    {
+        "source_sentence": "**Sakaṁ sakaṁ sammutimāhu saccaṁ.**",
+        "translation": "the Sakyans have come to the conclusion.",
+        "source": "mnd13:66.4_0"
+    },
+    {
+        "source_sentence": "**Sakañhi dhammaṁ paripuṇṇamāhū**ti sakaṁ dhammaṁ diṭṭhiṁ paṭipadaṁ maggaṁ eke samaṇabrāhmaṇā “idaṁ samattaṁ paripuṇṇaṁ anoman”ti, evamāhaṁsu …pe…",
+        "translation": "Because the Sakyans of the teaching are complete and the path, and they said, “This is the path to full and pure spiritual life.” ...",
+        "source": "mnd13:67.1_0"
+    },
+    {
+        "source_sentence": "evaṁ voharantīti—",
+        "translation": "Is looking after you",
+        "source": "mnd13:67.2_0"
+    },
+    {
+        "source_sentence": "sakañhi dhammaṁ paripuṇṇamāhu.",
+        "translation": "for the sake of the Dhamma,",
+        "source": "mnd13:67.3_0"
+    },
+    {
+        "source_sentence": "**Aññassa dhammaṁ pana hīnamāhū**ti.",
+        "translation": "But the Dhamma of another is inferior.",
+        "source": "mnd13:68.1_0"
+    },
+    {
+        "source_sentence": "Aññassa dhammaṁ diṭṭhiṁ paṭipadaṁ maggaṁ eke samaṇabrāhmaṇā “hīnaṁ etaṁ, nihīnaṁ etaṁ, omakaṁ etaṁ, lāmakaṁ etaṁ, chatukkaṁ etaṁ, parittakaṁ etan”ti, evamāhaṁsu evaṁ kathenti evaṁ bhaṇanti evaṁ dīpayanti evaṁ voharantīti—",
+        "translation": "some ascetics and brahmins who have practiced the way that leads to view, thinking, “We’re talking about the teachings,” “We’ll make this safeguard.”",
+        "source": "mnd13:68.2_0"
+    },
+    {
+        "source_sentence": "aññassa dhammaṁ pana hīnamāhu.",
+        "translation": "Through his teaching it is inferior.",
+        "source": "mnd13:68.3_0"
+    },
+    {
+        "source_sentence": "**Evampi viggayha vivādayantī**ti evaṁ gahetvā uggahetvā gaṇhitvā parāmasitvā abhinivisitvā vivādayanti, kalahaṁ karonti, bhaṇḍanaṁ karonti, viggahaṁ karonti, vivādaṁ karonti, medhagaṁ karonti—",
+        "translation": "But when quarrels started by saying, they take hold of it and put it onto an ocher robe, and then weed it, started quarrels, and disputes in the monastery, and then they change their quarrels.",
+        "source": "mnd13:69.1_0"
+    },
+    {
+        "source_sentence": "“na tvaṁ imaṁ dhammavinayaṁ ājānāsi …pe…",
+        "translation": "“You don’t understand this teaching and training ...",
+        "source": "mnd13:69.2_0"
+    },
+    {
+        "source_sentence": "nibbeṭhehi vā sace pahosī”ti—",
+        "translation": "or else you’re disillusioned.”",
+        "source": "mnd13:69.3_0"
+    },
+    {
+        "source_sentence": "evampi viggayha vivādayanti.",
+        "translation": "But even arguments,",
+        "source": "mnd13:69.4_0"
+    },
+    {
+        "source_sentence": "**Sakaṁ sakaṁ sammutimāhu saccan**ti.",
+        "translation": "“There are Sakyans which they realis in their own truth, say.",
+        "source": "mnd13:70.1_0"
+    },
+    {
+        "source_sentence": "“Sassato loko, idameva saccaṁ moghamaññan”ti—",
+        "translation": "“The cosmos is eternal.”",
+        "source": "mnd13:70.2_0"
+    },
+    {
+        "source_sentence": "sakaṁ sakaṁ sammutimāhu saccaṁ.",
+        "translation": "the Sakyans have come to the conclusion.",
+        "source": "mnd13:70.3_0"
+    },
+    {
+        "source_sentence": "“Asassato loko …pe…",
+        "translation": "“The cosmos is not eternal ...” ...",
+        "source": "mnd13:70.4_0"
+    },
+    {
+        "source_sentence": "neva hoti na na hoti tathāgato paraṁ maraṇā, idameva saccaṁ moghamaññan”ti—",
+        "translation": "‘A Realized One neither exists nor doesn’t exist after death. This is the only truth, other ideas are silly’?”",
+        "source": "mnd13:70.5_0"
+    },
+    {
+        "source_sentence": "sakaṁ sakaṁ sammutimāhu saccaṁ.",
+        "translation": "the Sakyans have come to the conclusion.",
+        "source": "mnd13:70.6_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:71.1_0"
+    },
+    {
+        "source_sentence": "“Sakañhi dhammaṁ paripuṇṇamāhu,",
+        "translation": "“I have memorized the teaching,",
+        "source": "mnd13:72.1_0"
+    },
+    {
+        "source_sentence": "Aññassa dhammaṁ pana hīnamāhu;",
+        "translation": "Through his teaching it is inferior.",
+        "source": "mnd13:72.2_0"
+    },
+    {
+        "source_sentence": "Evampi viggayha vivādayanti,",
+        "translation": "But even arguments,",
+        "source": "mnd13:72.3_0"
+    },
+    {
+        "source_sentence": "Sakaṁ sakaṁ sammutimāhu saccan”ti.",
+        "translation": "the Sakyans have arrived at their own conclusion.”",
+        "source": "mnd13:72.4_0"
+    },
+    {
+        "source_sentence": "**Parassa ce vambhayitena hīno,**",
+        "translation": "This one definitely regards others.",
+        "source": "mnd13:73.1_0"
+    },
+    {
+        "source_sentence": "**Na koci dhammesu visesi assa;**",
+        "translation": "no dreadlocking him at all.",
+        "source": "mnd13:73.2_0"
+    },
+    {
+        "source_sentence": "**Puthū hi aññassa vadanti dhammaṁ,**",
+        "translation": "For many of them speak to them.",
+        "source": "mnd13:73.3_0"
+    },
+    {
+        "source_sentence": "**Nihīnato samhi daḷhaṁ vadānā.**",
+        "translation": "inferior and superior, say:",
+        "source": "mnd13:73.4_0"
+    },
+    {
+        "source_sentence": "**Parassa ce vambhayitena hīno**ti parassa ce vambhayitakāraṇā ninditakāraṇā garahitakāraṇā upavaditakāraṇā paro bālo hoti hīno nihīno omako lāmako chatukko parittoti—",
+        "translation": "If the other’s fondness is destroyed when someone else excess it his six. This is the wounder of barriers thread. It is a fool, a foolish one who has fallen under the sway of fondness.",
+        "source": "mnd13:74.1_0"
+    },
+    {
+        "source_sentence": "parassa ce vambhayitena hīno.",
+        "translation": "This one definitely regards others.",
+        "source": "mnd13:74.2_0"
+    },
+    {
+        "source_sentence": "**Na koci dhammesu visesi assā**ti.",
+        "translation": "no-one else would use it.",
+        "source": "mnd13:75.1_0"
+    },
+    {
+        "source_sentence": "Dhammesu na koci aggo seṭṭho visiṭṭho pāmokkho uttamo pavaro assāti—",
+        "translation": "not anyone in the teachings, the foremost, best, chief, highest, and finest of all things.",
+        "source": "mnd13:75.2_0"
+    },
+    {
+        "source_sentence": "na koci dhammesu visesi assa.",
+        "translation": "no dreadlocking him at all.",
+        "source": "mnd13:75.3_0"
+    },
+    {
+        "source_sentence": "**Puthū hi aññassa vadanti dhammaṁ, nihīnato**ti.",
+        "translation": "For many of them speak in accordance with Dhamma,",
+        "source": "mnd13:76.1_0"
+    },
+    {
+        "source_sentence": "Bahukāpi bahūnaṁ dhammaṁ vadanti upavadanti nindanti garahanti hīnato nihīnato omakato lāmakato chatukkato parittato, bahukāpi ekassa dhammaṁ vadanti upavadanti nindanti garahanti hīnato nihīnato omakato lāmakato chatukkato parittato, ekopi bahūnaṁ dhammaṁ vadati upavadati nindati garahati hīnato nihīnato omakato lāmakato chatukkato parittato, ekopi ekassa dhammaṁ vadati upavadati nindati garahati hīnato nihīnato omakato lāmakato chatukkato parittatoti—",
+        "translation": "Many-Children people say: ‘Though the teaching is low, crushed, tastes, and touches are weak, they blameworthy, the lowestate, the creeper’s Dhamma, and the four kinds of flaws. They blamelessness, the average, and limited. They blameworthy, cooked, bright, and unclouded. And they grow disillusioned with that limited.",
+        "source": "mnd13:76.2_0"
+    },
+    {
+        "source_sentence": "puthū hi aññassa vadanti dhammaṁ.",
+        "translation": "For many of them speak to them.",
+        "source": "mnd13:76.3_0"
+    },
+    {
+        "source_sentence": "**Nihīnato samhi daḷhaṁ vadānā**ti.",
+        "translation": "tremble and strong, say,",
+        "source": "mnd13:77.1_0"
+    },
+    {
+        "source_sentence": "Dhammo sakāyanaṁ, diṭṭhi sakāyanaṁ, paṭipadā sakāyanaṁ, maggo sakāyanaṁ, sakāyane daḷhavādā thiravādā balikavādā aṭṭhitavādāti—",
+        "translation": "The path, the practice to conduce to their own views, the origin of suffering, the once to the whole side, and the practice that leads to the Sakyan?",
+        "source": "mnd13:77.2_0"
+    },
+    {
+        "source_sentence": "nihīnato samhi daḷhaṁ vadānā.",
+        "translation": "inferior and superior, say:",
+        "source": "mnd13:77.3_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:78.1_0"
+    },
+    {
+        "source_sentence": "“Parassa ce vambhayitena hīno,",
+        "translation": "“If he’s made by lowly powerful,",
+        "source": "mnd13:79.1_0"
+    },
+    {
+        "source_sentence": "Na koci dhammesu visesi assa;",
+        "translation": "no dreadlocking him at all.",
+        "source": "mnd13:79.2_0"
+    },
+    {
+        "source_sentence": "Puthū hi aññassa vadanti dhammaṁ,",
+        "translation": "For many of them speak to them.",
+        "source": "mnd13:79.3_0"
+    },
+    {
+        "source_sentence": "Nihīnato samhi daḷhaṁ vadānā”ti.",
+        "translation": "I say that slaughter is inferior.”",
+        "source": "mnd13:79.4_0"
+    },
+    {
+        "source_sentence": "**Saddhammapūjāpi nesaṁ tatheva,**",
+        "translation": "who know the true teaching and the same,",
+        "source": "mnd13:80.1_0"
+    },
+    {
+        "source_sentence": "**Yathā pasaṁsanti sakāyanāni;**",
+        "translation": "Just as they fall,",
+        "source": "mnd13:80.2_0"
+    },
+    {
+        "source_sentence": "**Sabbeva vādā tathiyā bhaveyyuṁ,**",
+        "translation": "were to annihilate such a doctrine,",
+        "source": "mnd13:80.3_0"
+    },
+    {
+        "source_sentence": "**Suddhī hi nesaṁ paccattameva.**",
+        "translation": "for those whose celebrate is pure,",
+        "source": "mnd13:80.4_0"
+    },
+    {
+        "source_sentence": "**Saddhammapūjāpi nesaṁ tathevā**ti.",
+        "translation": "(But) the true teaching and the guilt of the true teaching.",
+        "source": "mnd13:81.1_0"
+    },
+    {
+        "source_sentence": "Katamā saddhammapūjā?",
+        "translation": "What is the true teaching?",
+        "source": "mnd13:81.2_0"
+    },
+    {
+        "source_sentence": "Sakaṁ satthāraṁ sakkaroti garuṁ karoti māneti pūjeti “ayaṁ satthā sabbaññū”ti—",
+        "translation": "the Teacher honors, respects, esteems, and venerates them in every way.",
+        "source": "mnd13:81.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ saddhammapūjā.",
+        "translation": "This is the true teaching",
+        "source": "mnd13:81.4_0"
+    },
+    {
+        "source_sentence": "Sakaṁ dhammakkhānaṁ sakaṁ gaṇaṁ sakaṁ diṭṭhiṁ sakaṁ paṭipadaṁ sakaṁ maggaṁ sakkaroti garuṁ karoti māneti pūjeti “ayaṁ maggo niyyāniko”ti—",
+        "translation": "in accordance with the Teaching to his own views, and insist on the path, thinking, “This path is a Sakyan way leader, ‘This path,’ and leads out the",
+        "source": "mnd13:81.5_0"
+    },
+    {
+        "source_sentence": "ayaṁ saddhammapūjā.",
+        "translation": "This is the true teaching",
+        "source": "mnd13:81.6_0"
+    },
+    {
+        "source_sentence": "**Saddhammapūjāpi nesaṁ tathevā**ti saddhammapūjā tathā tacchā bhūtā yāthāvā aviparītāti—",
+        "translation": "They’re a true teaching, so long as the true teaching is for those who know the true teaching.",
+        "source": "mnd13:81.7_0"
+    },
+    {
+        "source_sentence": "saddhammapūjāpi nesaṁ tatheva.",
+        "translation": "who know the true teaching and the same,",
+        "source": "mnd13:81.8_0"
+    },
+    {
+        "source_sentence": "**Yathā pasaṁsanti sakāyanānī**ti.",
+        "translation": "Just as one is praised by the Sakyan:",
+        "source": "mnd13:82.1_0"
+    },
+    {
+        "source_sentence": "Dhammo sakāyanaṁ diṭṭhi sakāyanaṁ paṭipadā sakāyanaṁ maggo sakāyanaṁ, sakāyanāni pasaṁsanti thomenti kittenti vaṇṇentīti—",
+        "translation": "The path, the practice, and the practice that leads to their own views. They praise them, saying:",
+        "source": "mnd13:82.2_0"
+    },
+    {
+        "source_sentence": "yathā pasaṁsanti sakāyanāni.",
+        "translation": "Just as they fall,",
+        "source": "mnd13:82.3_0"
+    },
+    {
+        "source_sentence": "**Sabbeva vādā tathiyā bhaveyyun**ti sabbeva vādā tathā tacchā bhūtā yāthāvā aviparītā bhaveyyunti—",
+        "translation": "‘All those who teach Dhamma do not repeat what it is, and what is not the next.’ Thus they might be reborn in the next life.’",
+        "source": "mnd13:83.1_0"
+    },
+    {
+        "source_sentence": "sabbeva vādā tathiyā bhaveyyuṁ.",
+        "translation": "were to annihilate such a doctrine,",
+        "source": "mnd13:83.2_0"
+    },
+    {
+        "source_sentence": "**Suddhī hi nesaṁ paccattamevā**ti.",
+        "translation": "for the purest is just seven days.",
+        "source": "mnd13:84.1_0"
+    },
+    {
+        "source_sentence": "Paccattameva tesaṁ samaṇabrāhmaṇānaṁ suddhi visuddhi parisuddhi, mutti vimutti parimuttīti—",
+        "translation": "But it’s only because of purification that those ascetics and brahmins free of pure freedom.",
+        "source": "mnd13:84.2_0"
+    },
+    {
+        "source_sentence": "suddhī hi nesaṁ paccattameva.",
+        "translation": "for those whose celebrate is pure,",
+        "source": "mnd13:84.3_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:85.1_0"
+    },
+    {
+        "source_sentence": "“Saddhammapūjāpi nesaṁ tatheva,",
+        "translation": "“Not so the true teaching of those who know their own good,",
+        "source": "mnd13:86.1_0"
+    },
+    {
+        "source_sentence": "Yathā pasaṁsanti sakāyanāni;",
+        "translation": "Just as they fall,",
+        "source": "mnd13:86.2_0"
+    },
+    {
+        "source_sentence": "Sabbeva vādā tathiyā bhaveyyuṁ,",
+        "translation": "were to annihilate such a doctrine,",
+        "source": "mnd13:86.3_0"
+    },
+    {
+        "source_sentence": "Suddhī hi nesaṁ paccattamevā”ti.",
+        "translation": "for the pure spiritual life is pure.”",
+        "source": "mnd13:86.4_0"
+    },
+    {
+        "source_sentence": "**Na brāhmaṇassa paraneyyamatthi,**",
+        "translation": "Don’t harm another,",
+        "source": "mnd13:87.1_0"
+    },
+    {
+        "source_sentence": "**Dhammesu niccheyya samuggahītaṁ;**",
+        "translation": "to hear Dhamma.",
+        "source": "mnd13:87.2_0"
+    },
+    {
+        "source_sentence": "**Tasmā vivādāni upātivatto,**",
+        "translation": "Therefore it is called “contemplates”.",
+        "source": "mnd13:87.3_0"
+    },
+    {
+        "source_sentence": "**Na hi seṭṭhato passati dhammamaññaṁ.**",
+        "translation": "Not seeing the best,",
+        "source": "mnd13:87.4_0"
+    },
+    {
+        "source_sentence": "**Na brāhmaṇassa paraneyyamatthī**ti.",
+        "translation": "they wouldn’t harm him.’",
+        "source": "mnd13:88.1_0"
+    },
+    {
+        "source_sentence": "**Nā**ti paṭikkhepo.",
+        "translation": "neither dissipate nor too.",
+        "source": "mnd13:88.2_0"
+    },
+    {
+        "source_sentence": "**Brāhmaṇo**ti sattannaṁ dhammānaṁ bāhitattā brāhmaṇo …pe… asito tādi pavuccate sa brahmā.",
+        "translation": "Seven things were spoken to by Brahmā.",
+        "source": "mnd13:88.3_0"
+    },
+    {
+        "source_sentence": "**Na brāhmaṇassa paraneyyamatthī**ti brāhmaṇassa paraneyyatā natthi, brāhmaṇo na paraneyyo, na parapattiyo, na parapaccayo, na parapaṭibaddhagū jānāti passati asammūḷho sampajāno paṭissato.",
+        "translation": "“Brahmin, they wouldn’t have any such intentions as yourself, others.",
+        "source": "mnd13:88.4_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā aniccā”ti brāhmaṇassa paraneyyatā natthi, brāhmaṇo na paraneyyo, na parapattiyo, na parapaccayo, na parapaṭibaddhagū jānāti passati asammūḷho sampajāno paṭissato.",
+        "translation": "“All conditions are impermanent.” But they don’t know and see any other ascetic or brahmin, nor do they belong to someone else’s partner and his emotionally.",
+        "source": "mnd13:88.5_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā dukkhā”ti …pe…",
+        "translation": "All conditions are suffering. ...",
+        "source": "mnd13:88.6_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti brāhmaṇassa paraneyyatā natthi, brāhmaṇo na paraneyyo, na parapattiyo, na parapaccayo, na parapaṭibaddhagū jānāti passati asammūḷho sampajāno paṭissatoti—",
+        "translation": "“Anything that has a beginning has an end.”",
+        "source": "mnd13:88.7_0"
+    },
+    {
+        "source_sentence": "na brāhmaṇassa paraneyyamatthi.",
+        "translation": "Don’t harm another,",
+        "source": "mnd13:88.8_0"
+    },
+    {
+        "source_sentence": "**Dhammesu niccheyya samuggahītan**ti.",
+        "translation": "To strive:",
+        "source": "mnd13:89.1_0"
+    },
+    {
+        "source_sentence": "**Dhammesū**ti dvāsaṭṭhiyā diṭṭhigatesu.",
+        "translation": "Probation for those misconceptions",
+        "source": "mnd13:89.2_0"
+    },
+    {
+        "source_sentence": "**Niccheyyā**ti nicchinitvā vinicchinitvā vicinitvā pavicinitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "And after making an appropriate occasion:, instead of having destroyed his deportment, he fixed his deportment, investigated, and becoming awakened, he stated.",
+        "source": "mnd13:89.3_0"
+    },
+    {
+        "source_sentence": "**Samuggahītan**ti odhiggāho bilaggāho varaggāho koṭṭhāsaggāho uccayaggāho samuccayaggāho “idaṁ saccaṁ tathaṁ bhūtaṁ yāthāvaṁ aviparītan”ti gahitaṁ parāmaṭṭhaṁ abhiniviṭṭhaṁ ajjhositaṁ adhimuttaṁ natthi na santi na saṁvijjati nupalabbhati, pahīnaṁ samucchinnaṁ vūpasantaṁ paṭipassaddhaṁ abhabbuppattikaṁ ñāṇagginā daḍḍhanti—",
+        "translation": "When the receiver of the manage he holds the recipient, the recipient of the Thirty-Three, the receiver of the getting stressed on the ground, and the recipients have been cut off at the root, made like a palm stump, obliterated, and unable to arise in him?",
+        "source": "mnd13:89.4_0"
+    },
+    {
+        "source_sentence": "dhammesu niccheyya samuggahītaṁ.",
+        "translation": "to hear Dhamma.",
+        "source": "mnd13:89.5_0"
+    },
+    {
+        "source_sentence": "**Tasmā vivādāni upātivatto**ti.",
+        "translation": "Therefore it is called “ascetic”.",
+        "source": "mnd13:90.1_0"
+    },
+    {
+        "source_sentence": "**Tasmā**ti tasmā taṅkāraṇā taṁhetu tappaccayā taṁnidānā diṭṭhikalahāni diṭṭhibhaṇḍanāni diṭṭhiviggahāni diṭṭhivivādāni diṭṭhimedhagāni upātivatto atikkanto samatikkanto vītivattoti—",
+        "translation": "So the story of the clauses are conditions for that reason. And the views of that misconception is attached to a view of insistence that view is attached to it, exasperated by the views of views.",
+        "source": "mnd13:90.2_0"
+    },
+    {
+        "source_sentence": "tasmā vivādāni upātivatto.",
+        "translation": "Therefore it is called “contemplates”.",
+        "source": "mnd13:90.3_0"
+    },
+    {
+        "source_sentence": "**Na hi seṭṭhato passati dhammamaññan**ti.",
+        "translation": "Not seeing the best, they see the best.",
+        "source": "mnd13:91.1_0"
+    },
+    {
+        "source_sentence": "Aññaṁ satthāraṁ dhammakkhānaṁ gaṇaṁ diṭṭhiṁ paṭipadaṁ maggaṁ aññatra satipaṭṭhānehi, aññatra sammappadhānehi, aññatra iddhipādehi, aññatra indriyehi, aññatra balehi, aññatra bojjhaṅgehi, aññatra ariyā aṭṭhaṅgikā maggā, aggaṁ seṭṭhaṁ visiṭṭhaṁ pāmokkhaṁ uttamaṁ pavaraṁ dhammaṁ na passati na dakkhati na oloketi na nijjhāyati na upaparikkhatīti—",
+        "translation": "A teacher comes to the view that is another thing, except, or if it is rightly explained, he sees the foremost, best, chief, highest, and finest of the noble eightfold path. And he doesn’t see any other thanknown in the world.",
+        "source": "mnd13:91.2_0"
+    },
+    {
+        "source_sentence": "na hi seṭṭhato passati dhammamaññaṁ.",
+        "translation": "Not seeing the best,",
+        "source": "mnd13:91.3_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:92.1_0"
+    },
+    {
+        "source_sentence": "“Na brāhmaṇassa paraneyyamatthi,",
+        "translation": "“There’s no idea for a brahmin",
+        "source": "mnd13:93.1_0"
+    },
+    {
+        "source_sentence": "Dhammesu niccheyya samuggahītaṁ;",
+        "translation": "to hear Dhamma.",
+        "source": "mnd13:93.2_0"
+    },
+    {
+        "source_sentence": "Tasmā vivādāni upātivatto,",
+        "translation": "Therefore it is called “contemplates”.",
+        "source": "mnd13:93.3_0"
+    },
+    {
+        "source_sentence": "Na hi seṭṭhato passati dhammamaññan”ti.",
+        "translation": "Therefore he sees the best and the teaching.”",
+        "source": "mnd13:93.4_0"
+    },
+    {
+        "source_sentence": "**Jānāmi passāmi tatheva etaṁ,**",
+        "translation": "they say, ‘I know, I see, that’s how it is’;",
+        "source": "mnd13:94.1_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhiyā eke paccenti suddhiṁ;**",
+        "translation": "and relying on one view.",
+        "source": "mnd13:94.2_0"
+    },
+    {
+        "source_sentence": "**Adakkhi ce kiñhi tumassa tena,**",
+        "translation": "why would you be able to free",
+        "source": "mnd13:94.3_0"
+    },
+    {
+        "source_sentence": "**Atisitvā aññena vadanti suddhiṁ.**",
+        "translation": "say that purity is through eating,",
+        "source": "mnd13:94.4_0"
+    },
+    {
+        "source_sentence": "**Jānāmi passāmi tatheva etan**ti.",
+        "translation": "they see, so they are.",
+        "source": "mnd13:95.1_0"
+    },
+    {
+        "source_sentence": "**Jānāmī**ti paracittañāṇena vā jānāmi, pubbenivāsānussatiñāṇena vā jānāmi.",
+        "translation": "Knowing this, I know or see or knowledge of another.",
+        "source": "mnd13:95.2_0"
+    },
+    {
+        "source_sentence": "**Passāmī**ti maṁsacakkhunā vā passāmi, dibbena cakkhunā vā passāmi.",
+        "translation": "I see or hear that my divine eye has been seen by way of vision.",
+        "source": "mnd13:95.3_0"
+    },
+    {
+        "source_sentence": "**Tatheva etan**ti etaṁ tathaṁ tacchaṁ bhūtaṁ yāthāvaṁ aviparītanti—",
+        "translation": "So too, the mortals are true, real, and accurate.",
+        "source": "mnd13:95.4_0"
+    },
+    {
+        "source_sentence": "jānāmi passāmi tatheva etaṁ.",
+        "translation": "they say, ‘I know, I see, that’s how it is’;",
+        "source": "mnd13:95.5_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhiyā eke paccenti suddhin**ti.",
+        "translation": "They split the view that is pure.",
+        "source": "mnd13:96.1_0"
+    },
+    {
+        "source_sentence": "Diṭṭhiyā eke samaṇabrāhmaṇā suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttiṁ paccenti.",
+        "translation": "There are some ascetics and brahmins who, free of purity and freedom from view.",
+        "source": "mnd13:96.2_0"
+    },
+    {
+        "source_sentence": "“Sassato loko, idameva saccaṁ moghamaññan”ti diṭṭhiyā eke samaṇabrāhmaṇā suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttiṁ paccenti.",
+        "translation": "“The cosmos is eternal.”",
+        "source": "mnd13:96.3_0"
+    },
+    {
+        "source_sentence": "“Asassato loko …pe…",
+        "translation": "“The cosmos is not eternal ...” ...",
+        "source": "mnd13:96.4_0"
+    },
+    {
+        "source_sentence": "neva hoti na na hoti tathāgato paraṁ maraṇā, idameva saccaṁ moghamaññan”ti diṭṭhiyā eke samaṇabrāhmaṇā suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttiṁ paccentīti—",
+        "translation": "‘A Realized One neither exists nor doesn’t exist after death. This is the only truth, other ideas are silly pure in view.’”",
+        "source": "mnd13:96.5_0"
+    },
+    {
+        "source_sentence": "diṭṭhiyā eke paccenti suddhiṁ.",
+        "translation": "and relying on one view.",
+        "source": "mnd13:96.6_0"
+    },
+    {
+        "source_sentence": "**Adakkhi ce kiñhi tumassa tenā**ti.",
+        "translation": "If it is unbroken, what is the content he?",
+        "source": "mnd13:97.1_0"
+    },
+    {
+        "source_sentence": "**Adakkhī**ti paracittañāṇena vā adakkhi, pubbenivāsānussatiñāṇena vā adakkhi, maṁsacakkhunā vā adakkhi, dibbena cakkhunā vā adakkhīti—",
+        "translation": "Mindfulness of the body or the mind; it will be stainless and unreliable.",
+        "source": "mnd13:97.2_0"
+    },
+    {
+        "source_sentence": "adakkhi ce.",
+        "translation": "unguarded,",
+        "source": "mnd13:97.3_0"
+    },
+    {
+        "source_sentence": "**Kiñhi tumassa tenā**ti.",
+        "translation": "How then do you get it?",
+        "source": "mnd13:97.4_0"
+    },
+    {
+        "source_sentence": "Tassa tena dassanena kiṁ kataṁ?",
+        "translation": "What is that even-minded person?",
+        "source": "mnd13:97.5_0"
+    },
+    {
+        "source_sentence": "Na dukkhapariññā atthi, na samudayassa pahānaṁ atthi, na maggabhāvanā atthi, na phalasacchikiriyā atthi, na rāgassa samucchedapahānaṁ atthi, na dosassa samucchedapahānaṁ atthi, na mohassa samucchedapahānaṁ atthi, na kilesānaṁ samucchedapahānaṁ atthi, na saṁsāravaṭṭassa upacchedo atthīti—",
+        "translation": "There is no origin, no cessation, or the path.",
+        "source": "mnd13:97.6_0"
+    },
+    {
+        "source_sentence": "adakkhi ce kiñhi tumassa tena.",
+        "translation": "why would you be able to free",
+        "source": "mnd13:97.7_0"
+    },
+    {
+        "source_sentence": "**Atisitvā aññena vadanti suddhin**ti te titthiyā suddhimaggaṁ visuddhimaggaṁ parisuddhimaggaṁ vodātamaggaṁ parivodātamaggaṁ atikkamitvā samatikkamitvā vītivattitvā aññatra satipaṭṭhānehi, aññatra sammappadhānehi, aññatra iddhipādehi, aññatra indriyehi, aññatra balehi, aññatra bojjhaṅgehi, aññatra ariyā aṭṭhaṅgikā maggā suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti.",
+        "translation": "Saying: “Sometimes they’re pure, bright, flawless, rid of corruptions, pliable, workable, steady, and imperturbable, and imperturbable, having transcended the path with my purity and mindfulness meditation. Then they go beyond the noble eightfold path and pure spiritual life, apart from the purity of mindfulness and freedom.",
+        "source": "mnd13:98.1_0"
+    },
+    {
+        "source_sentence": "Evampi atisitvā aññena vadanti suddhiṁ.",
+        "translation": "say that purity is throughout having killed,",
+        "source": "mnd13:98.2_0"
+    },
+    {
+        "source_sentence": "Atha vā buddhā ca buddhasāvakā ca paccekabuddhā ca tesaṁ titthiyānaṁ asuddhimaggaṁ avisuddhimaggaṁ aparisuddhimaggaṁ avodātamaggaṁ aparivodātamaggaṁ atikkamitvā samatikkamitvā vītivattitvā catūhi satipaṭṭhānehi catūhi sammappadhānehi catūhi iddhipādehi pañcahi indriyehi pañcahi balehi sattahi bojjhaṅgehi ariyena aṭṭhaṅgikena maggena suddhiṁ visuddhiṁ parisuddhiṁ, muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "Or alternatively, they’ve been awakened to the Buddha, and the purification of the path. Then they practice in order to purify their pure spiritual path and immediately after examining their minds, set out the four kinds of mindfulness meditation.",
+        "source": "mnd13:99.1_0"
+    },
+    {
+        "source_sentence": "evampi atisitvā aññena vadanti suddhiṁ.",
+        "translation": "say that purity is throughout having killed,",
+        "source": "mnd13:99.2_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:100.1_0"
+    },
+    {
+        "source_sentence": "“Jānāmi passāmi tatheva etaṁ,",
+        "translation": "“I know, I see, that’s how it is’s",
+        "source": "mnd13:101.1_0"
+    },
+    {
+        "source_sentence": "Diṭṭhiyā eke paccenti suddhiṁ;",
+        "translation": "and relying on one view.",
+        "source": "mnd13:101.2_0"
+    },
+    {
+        "source_sentence": "Adakkhi ce kiñhi tumassa tena,",
+        "translation": "why would you be able to free",
+        "source": "mnd13:101.3_0"
+    },
+    {
+        "source_sentence": "Atisitvā aññena vadanti suddhin”ti.",
+        "translation": "say that purity is through excessive.”",
+        "source": "mnd13:101.4_0"
+    },
+    {
+        "source_sentence": "**Passaṁ naro dakkhati nāmarūpaṁ,**",
+        "translation": "seeing name and form.",
+        "source": "mnd13:102.1_0"
+    },
+    {
+        "source_sentence": "**Disvāna vā ñassati tānimeva;**",
+        "translation": "those transgresses,",
+        "source": "mnd13:102.2_0"
+    },
+    {
+        "source_sentence": "**Kāmaṁ bahuṁ passatu appakaṁ vā,**",
+        "translation": "See the sensual pleasures of the good,",
+        "source": "mnd13:102.3_0"
+    },
+    {
+        "source_sentence": "**Na hi tena suddhiṁ kusalā vadanti.**",
+        "translation": "Experts say that those who wish for purity",
+        "source": "mnd13:102.4_0"
+    },
+    {
+        "source_sentence": "**Passaṁ naro dakkhati nāmarūpan**ti passaṁ naro dakkhati paracittañāṇena vā passanto, pubbenivāsānussatiñāṇena vā passanto, maṁsacakkhunā vā passanto, dibbena cakkhunā vā passanto nāmarūpaṁyeva dakkhati niccato sukhato attato, na tesaṁ dhammānaṁ samudayaṁ vā atthaṅgamaṁ vā assādaṁ vā ādīnavaṁ vā nissaraṇaṁ vā dakkhatīti—",
+        "translation": "Seeking, one doesn’t see forms. They don’t see the origin of form, feeling, perception, choices, or consciousness. And they don’t see sentient beings passing away or being reborn.",
+        "source": "mnd13:103.1_0"
+    },
+    {
+        "source_sentence": "passaṁ naro dakkhati nāmarūpaṁ.",
+        "translation": "seeing name and form.",
+        "source": "mnd13:103.2_0"
+    },
+    {
+        "source_sentence": "**Disvāna vā ñassati tānimevā**ti.",
+        "translation": "they settle on, thinking:",
+        "source": "mnd13:104.1_0"
+    },
+    {
+        "source_sentence": "**Disvā**ti paracittañāṇena vā disvā, pubbenivāsānussatiñāṇena vā disvā, maṁsacakkhunā vā disvā, dibbena cakkhunā vā disvā, nāmarūpaṁyeva disvā ñassati niccato sukhato attato, na tesaṁ dhammānaṁ samudayaṁ vā atthaṅgamaṁ vā assādaṁ vā ādīnavaṁ vā nissaraṇaṁ vā ñassatīti—",
+        "translation": "Having seen this with the eye of another, one whose eyes are phenomena, or one who sees them. And seeing them pleasant, painful, or neutral feeling that arises conditioned by eye:",
+        "source": "mnd13:104.2_0"
+    },
+    {
+        "source_sentence": "disvāna vā ñassati tānimeva.",
+        "translation": "those transgresses,",
+        "source": "mnd13:104.3_0"
+    },
+    {
+        "source_sentence": "**Kāmaṁ bahuṁ passatu appakaṁ vā**ti.",
+        "translation": "See the sensual realm, let alone those who don’t want,",
+        "source": "mnd13:105.1_0"
+    },
+    {
+        "source_sentence": "Kāmaṁ bahukaṁ vā passanto nāmarūpaṁ appakaṁ vā niccato sukhato attatoti—",
+        "translation": "Someone who sees sensual pleasures as permanent, happiness, or self.",
+        "source": "mnd13:105.2_0"
+    },
+    {
+        "source_sentence": "kāmaṁ bahuṁ passatu appakaṁ vā.",
+        "translation": "See the sensual pleasures of the good,",
+        "source": "mnd13:105.3_0"
+    },
+    {
+        "source_sentence": "**Na hi tena suddhiṁ kusalā vadantī**ti.",
+        "translation": "Experts say that those who wish for purity",
+        "source": "mnd13:106.1_0"
+    },
+    {
+        "source_sentence": "**Kusalā**ti ye te khandhakusalā dhātukusalā āyatanakusalā paṭiccasamuppādakusalā satipaṭṭhānakusalā sammappadhānakusalā iddhipādakusalā indriyakusalā balakusalā bojjhaṅgakusalā maggakusalā phalakusalā nibbānakusalā, te kusalā paracittañāṇena vā pubbenivāsānussatiñāṇena vā maṁsacakkhunā vā dibbena cakkhunā vā nāmarūpadassanena suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ na vadanti na kathenti na bhaṇanti na dīpayanti na voharantīti—",
+        "translation": "Those who are skilled in the sense fields, in the sense fields, and in the six sense fields, in the multiplication of the bases of psychic power, skilled in the case of the skillful, the unskillful aggregates, the sense restraint, the worry, the skillful, the unskillful, or the establishing in knowledge and vision of freedom. And they don’t disposed by clairvoyance that is purified and superhuman, they say:",
+        "source": "mnd13:106.2_0"
+    },
+    {
+        "source_sentence": "na hi tena suddhiṁ kusalā vadanti.",
+        "translation": "Experts say that those who wish for purity",
+        "source": "mnd13:106.3_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:107.1_0"
+    },
+    {
+        "source_sentence": "“Passaṁ naro dakkhati nāmarūpaṁ,",
+        "translation": "“Seeing, name and form are not seen",
+        "source": "mnd13:108.1_0"
+    },
+    {
+        "source_sentence": "Disvāna vā ñassati tānimeva;",
+        "translation": "those transgresses,",
+        "source": "mnd13:108.2_0"
+    },
+    {
+        "source_sentence": "Kāmaṁ bahuṁ passatu appakaṁ vā,",
+        "translation": "See the sensual pleasures of the good,",
+        "source": "mnd13:108.3_0"
+    },
+    {
+        "source_sentence": "Na hi tena suddhiṁ kusalā vadantī”ti.",
+        "translation": "Experts say that those who wish.”",
+        "source": "mnd13:108.4_0"
+    },
+    {
+        "source_sentence": "**Nivissavādī na hi subbināyo,**",
+        "translation": "For in those who speak falsely did not know,",
+        "source": "mnd13:109.1_0"
+    },
+    {
+        "source_sentence": "**Pakappitā diṭṭhipurakkharāno;**",
+        "translation": "have expert in the highest view.",
+        "source": "mnd13:109.2_0"
+    },
+    {
+        "source_sentence": "**Yaṁ nissito tattha subhaṁ vadāno,**",
+        "translation": "Whatever very beautiful you say is good,",
+        "source": "mnd13:109.3_0"
+    },
+    {
+        "source_sentence": "**Suddhiṁ vado tattha tathaddasā so.**",
+        "translation": "of the pure abode of death, he said:",
+        "source": "mnd13:109.4_0"
+    },
+    {
+        "source_sentence": "**Nivissavādī na hi subbināyo**ti.",
+        "translation": "For those who speak well are depraved, not hatred;",
+        "source": "mnd13:110.1_0"
+    },
+    {
+        "source_sentence": "“Sassato loko, idameva saccaṁ moghamaññan”ti nivissavādī,",
+        "translation": "“The cosmos is eternal.”",
+        "source": "mnd13:110.2_0"
+    },
+    {
+        "source_sentence": "“asassato loko …pe…",
+        "translation": "“The cosmos is not eternal ...” ...",
+        "source": "mnd13:110.3_0"
+    },
+    {
+        "source_sentence": "neva hoti na na hoti tathāgato paraṁ maraṇā, idameva saccaṁ moghamaññan”ti—",
+        "translation": "‘A Realized One neither exists nor doesn’t exist after death. This is the only truth, other ideas are silly’?”",
+        "source": "mnd13:110.4_0"
+    },
+    {
+        "source_sentence": "nivissavādī.",
+        "translation": "the one who speaks falsely.",
+        "source": "mnd13:110.5_0"
+    },
+    {
+        "source_sentence": "**Na hi subbināyo**ti.",
+        "translation": "for sustance is not easy.",
+        "source": "mnd13:110.6_0"
+    },
+    {
+        "source_sentence": "Nivissavādī dubbinayo duppaññāpayo dunnijjhāpayo duppekkhāpayo duppasādayoti—",
+        "translation": "It’s hard for someone who speaks badly, including to acceptance of two things.",
+        "source": "mnd13:110.7_0"
+    },
+    {
+        "source_sentence": "nivissavādī na hi subbināyo.",
+        "translation": "For in those who speak falsely did not know,",
+        "source": "mnd13:110.8_0"
+    },
+    {
+        "source_sentence": "**Pakappitā diṭṭhipurakkharāno**ti.",
+        "translation": "have expelled views,",
+        "source": "mnd13:111.1_0"
+    },
+    {
+        "source_sentence": "Kappitā pakappitā abhisaṅkhatā saṇṭhapitā diṭṭhiṁ purekkhato katvā carati.",
+        "translation": "doing what is allowable and activity to make one announcement, and defecating it in the future.",
+        "source": "mnd13:111.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhidhajo diṭṭhiketu diṭṭhādhipateyyo diṭṭhiyā parivārito caratīti—",
+        "translation": "An astute person accomplished in view and conduct.",
+        "source": "mnd13:111.3_0"
+    },
+    {
+        "source_sentence": "pakappitā diṭṭhipurakkharāno.",
+        "translation": "have expert in the highest view.",
+        "source": "mnd13:111.4_0"
+    },
+    {
+        "source_sentence": "**Yaṁ nissito tattha subhaṁ vadāno**ti.",
+        "translation": "What he’s lying there is beautiful, he speaks well.",
+        "source": "mnd13:112.1_0"
+    },
+    {
+        "source_sentence": "**Yaṁ nissito**ti yaṁ satthāraṁ dhammakkhānaṁ gaṇaṁ diṭṭhiṁ paṭipadaṁ maggaṁ nissito ānissito allīno upagato ajjhosito adhimuttoti—",
+        "translation": "the Teacher is saving along the path, has clinging to the Teacher, using its way, cling to it, holding it, and attached to it.",
+        "source": "mnd13:112.2_0"
+    },
+    {
+        "source_sentence": "yaṁ nissito.",
+        "translation": "that’s what they’ve stored up.",
+        "source": "mnd13:112.3_0"
+    },
+    {
+        "source_sentence": "**Tatthā**ti sakāya diṭṭhiyā sakāya khantiyā sakāya ruciyā sakāya laddhiyā.",
+        "translation": "(Only): “Remotionality, what is once it means to its own view, and what belongs to your own view.",
+        "source": "mnd13:112.4_0"
+    },
+    {
+        "source_sentence": "**Subhaṁ vadāno**ti subhavādo sobhanavādo paṇḍitavādo thiravādo ñāyavādo hetuvādo lakkhaṇavādo kāraṇavādo ṭhānavādo sakāya laddhiyāti—",
+        "translation": "The Doctrine, the wise man, who speaks well, and is very learned, remembering the tradition of the people in the doctrine of others, and He produces the word to be done.",
+        "source": "mnd13:112.5_0"
+    },
+    {
+        "source_sentence": "yaṁ nissito tattha subhaṁ vadāno.",
+        "translation": "Whatever very beautiful you say is good,",
+        "source": "mnd13:112.6_0"
+    },
+    {
+        "source_sentence": "**Suddhiṁ vado tattha tathaddasā so**ti.",
+        "translation": "About pure abiding in that, speaking the truth.",
+        "source": "mnd13:113.1_0"
+    },
+    {
+        "source_sentence": "Suddhivādo visuddhivādo parisuddhivādo vodātavādo parivodātavādo.",
+        "translation": "(The purity of) purity, was pure, bright, and pure, to speak contrary to the Teaching.",
+        "source": "mnd13:113.2_0"
+    },
+    {
+        "source_sentence": "Atha vā suddhidassano visuddhidassano parisuddhidassano vodātadassano parivodātadassanoti—",
+        "translation": "Suddhodana, pure, bright, and without seeing this.",
+        "source": "mnd13:113.3_0"
+    },
+    {
+        "source_sentence": "suddhiṁ vādo.",
+        "translation": "or any other folk.",
+        "source": "mnd13:113.4_0"
+    },
+    {
+        "source_sentence": "**Tatthā**ti sakāya diṭṭhiyā sakāya khantiyā sakāya ruciyā sakāya laddhiyā tathaṁ tacchaṁ bhūtaṁ yāthāvaṁ aviparītanti addassa adakkhi apassi paṭivijjhīti—",
+        "translation": "Their view: “Repulsiveness of the Sakyans with its own hands, fit for use, and scorn, and accumulating each other, not discovering whether transgressed or not.”",
+        "source": "mnd13:113.5_0"
+    },
+    {
+        "source_sentence": "suddhiṁ vādo tattha tathaddasā so.",
+        "translation": "A pure white lotus pond on it,",
+        "source": "mnd13:113.6_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:114.1_0"
+    },
+    {
+        "source_sentence": "“Nivissavādī na hi subbināyo,",
+        "translation": "“That’s not easy, good sir,",
+        "source": "mnd13:115.1_0"
+    },
+    {
+        "source_sentence": "Pakappitā diṭṭhipurakkharāno;",
+        "translation": "have expert in the highest view.",
+        "source": "mnd13:115.2_0"
+    },
+    {
+        "source_sentence": "Yaṁ nissito tattha subhaṁ vadāno,",
+        "translation": "Whatever very beautiful you say is good,",
+        "source": "mnd13:115.3_0"
+    },
+    {
+        "source_sentence": "Suddhiṁ vado tattha tathaddasā so”ti.",
+        "translation": "About pure adversity, speakers of truth.”",
+        "source": "mnd13:115.4_0"
+    },
+    {
+        "source_sentence": "**Na brāhmaṇo kappamupeti saṅkhā,**",
+        "translation": "Only brahmins are not defined by the intervals.",
+        "source": "mnd13:116.1_0"
+    },
+    {
+        "source_sentence": "**Na diṭṭhisārī napi ñāṇabandhu;**",
+        "translation": "nor views,",
+        "source": "mnd13:116.2_0"
+    },
+    {
+        "source_sentence": "**Ñatvā ca so sammutiyo puthujjā,**",
+        "translation": "Having understood the many different realms,",
+        "source": "mnd13:116.3_0"
+    },
+    {
+        "source_sentence": "**Upekkhatī uggahaṇanti maññe.**",
+        "translation": "who learns with equanimity, it seems to me.",
+        "source": "mnd13:116.4_0"
+    },
+    {
+        "source_sentence": "**Na brāhmaṇo kappamupeti saṅkhā**ti.",
+        "translation": "and does not appraisal.",
+        "source": "mnd13:117.1_0"
+    },
+    {
+        "source_sentence": "**Nā**ti paṭikkhepo.",
+        "translation": "neither dissipate nor too.",
+        "source": "mnd13:117.2_0"
+    },
+    {
+        "source_sentence": "**Brāhmaṇo**ti sattannaṁ dhammānaṁ bāhitattā brāhmaṇo …pe… asito tādi pavuccate sa brahmā.",
+        "translation": "Seven things were spoken to by Brahmā.",
+        "source": "mnd13:117.3_0"
+    },
+    {
+        "source_sentence": "**Kappā**ti dve kappā—",
+        "translation": "there are two eons:",
+        "source": "mnd13:117.4_0"
+    },
+    {
+        "source_sentence": "taṇhākappo ca diṭṭhikappo ca …pe…",
+        "translation": "Craving for craving and view.",
+        "source": "mnd13:117.5_0"
+    },
+    {
+        "source_sentence": "ayaṁ taṇhākappo …pe…",
+        "translation": "This is the craving that leads to craving. ...",
+        "source": "mnd13:117.6_0"
+    },
+    {
+        "source_sentence": "ayaṁ diṭṭhikappo.",
+        "translation": "This Shrine of views.",
+        "source": "mnd13:117.7_0"
+    },
+    {
+        "source_sentence": "Saṅkhā vuccati ñāṇaṁ.",
+        "translation": "knowledge has been conditioned.",
+        "source": "mnd13:117.8_0"
+    },
+    {
+        "source_sentence": "Yā paññā pajānanā …pe… amoho dhammavicayo sammādiṭṭhi.",
+        "translation": "Understanding as understanding of principles, right view, and right thought.",
+        "source": "mnd13:117.9_0"
+    },
+    {
+        "source_sentence": "**Na brāhmaṇo kappamupeti saṅkhā**ti.",
+        "translation": "and does not appraisal.",
+        "source": "mnd13:117.10_0"
+    },
+    {
+        "source_sentence": "Brāhmaṇo saṅkhāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "After being reckoned as the brahmin, and having destroyed the Tusita abode, he gave (to her).",
+        "source": "mnd13:117.11_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā aniccā …",
+        "translation": "“All conditions are impermanent. ...”",
+        "source": "mnd13:117.12_0"
+    },
+    {
+        "source_sentence": "sabbe saṅkhārā dukkhā …pe…",
+        "translation": "All conditions are suffering. ...",
+        "source": "mnd13:117.13_0"
+    },
+    {
+        "source_sentence": "yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti saṅkhāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā taṇhākappaṁ vā diṭṭhikappaṁ vā neti na upeti na upagacchati na gaṇhāti na parāmasati nābhinivisatīti—",
+        "translation": "And when someone liable to originates all things, they understand that their origin, ending, gratification, drawback, and escape. They don’t approve of this view, or keep themselves broken and damaged. They don’t rely on inferential or surge them, or they don’t rely on in this way.",
+        "source": "mnd13:117.14_0"
+    },
+    {
+        "source_sentence": "na brāhmaṇo kappamupeti saṅkhā.",
+        "translation": "Only brahmins are not defined by the intervals.",
+        "source": "mnd13:117.15_0"
+    },
+    {
+        "source_sentence": "**Na diṭṭhisārī napi ñāṇabandhū**ti.",
+        "translation": "and their views are not bound by knowledge.",
+        "source": "mnd13:118.1_0"
+    },
+    {
+        "source_sentence": "Tassa dvāsaṭṭhi diṭṭhigatāni pahīnāni samucchinnāni vūpasantāni paṭipassaddhāni abhabbuppattikāni ñāṇagginā daḍḍhāni.",
+        "translation": "And while those sixty-two misconceptions have been given up, cut off, and engaged in making pours of the offerings.",
+        "source": "mnd13:118.2_0"
+    },
+    {
+        "source_sentence": "So diṭṭhiyā na yāyati na nīyati na vuyhati na saṁharīyati napi taṁ diṭṭhigataṁ sārato pacceti na paccāgacchatīti—",
+        "translation": "They don’t keep themselves broken and damaged. They don’t go to that view, or reject it. And they don’t rely on that view is raised up to heaven.",
+        "source": "mnd13:118.3_0"
+    },
+    {
+        "source_sentence": "na diṭṭhisārī.",
+        "translation": "one who doesn’t need to be attached to views,",
+        "source": "mnd13:118.4_0"
+    },
+    {
+        "source_sentence": "**Napi ñāṇabandhū**ti aṭṭhasamāpattiñāṇena vā pañcābhiññāñāṇena vā taṇhābandhuṁ vā diṭṭhibandhuṁ vā na karoti na janeti na sañjaneti na nibbatteti nābhinibbattetīti—",
+        "translation": "And they don’t make them into the eight important knowledges.",
+        "source": "mnd13:118.5_0"
+    },
+    {
+        "source_sentence": "na diṭṭhisārī napi ñāṇabandhu.",
+        "translation": "nor views,",
+        "source": "mnd13:118.6_0"
+    },
+    {
+        "source_sentence": "**Ñatvā ca so sammutiyo puthujjā**ti.",
+        "translation": "for one who has ever foundations.",
+        "source": "mnd13:119.1_0"
+    },
+    {
+        "source_sentence": "**Ñatvā**ti ñatvā jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "Having understood (that), he founded and exclaimed (it).",
+        "source": "mnd13:119.2_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā aniccā”ti ñatvā jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā,",
+        "translation": "Having understood that “(volitional) processes,” and knowing that they were allayed, he despised and perished,",
+        "source": "mnd13:119.3_0"
+    },
+    {
+        "source_sentence": "“sabbe saṅkhārā dukkhā”ti …pe…",
+        "translation": "All conditions are suffering. ...",
+        "source": "mnd13:119.4_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti ñatvā jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvāti—",
+        "translation": "They did so.",
+        "source": "mnd13:119.5_0"
+    },
+    {
+        "source_sentence": "ñatvā ca so.",
+        "translation": "Having understood the King,",
+        "source": "mnd13:119.6_0"
+    },
+    {
+        "source_sentence": "**Sammutiyo** vuccanti dvāsaṭṭhi diṭṭhigatāni diṭṭhisammutiyo.",
+        "translation": "These are called the sixty-two misconceptions regarding views.",
+        "source": "mnd13:119.7_0"
+    },
+    {
+        "source_sentence": "**Puthujjā**ti puthujjanehi janitā vā tā sammutiyoti—",
+        "translation": "Many people are attached to their folk or those people.",
+        "source": "mnd13:119.8_0"
+    },
+    {
+        "source_sentence": "puthujjā.",
+        "translation": "Broad, they are many.",
+        "source": "mnd13:119.9_0"
+    },
+    {
+        "source_sentence": "Puthu nānājanehi janitā vā sammutiyoti puthujjāti—",
+        "translation": "Most of people come from various countries:",
+        "source": "mnd13:119.10_0"
+    },
+    {
+        "source_sentence": "ñatvā ca so sammutiyo puthujjā.",
+        "translation": "Having understood the many different realms,",
+        "source": "mnd13:119.11_0"
+    },
+    {
+        "source_sentence": "**Upekkhatī uggahaṇanti maññe**ti.",
+        "translation": "He learns with equanimity.",
+        "source": "mnd13:120.1_0"
+    },
+    {
+        "source_sentence": "Aññe taṇhāvasena diṭṭhivasena gaṇhanti parāmasanti abhinivisanti.",
+        "translation": "Others to say that by craving, by straying with one’s views,",
+        "source": "mnd13:120.2_0"
+    },
+    {
+        "source_sentence": "Arahā upekkhati na gaṇhāti na parāmasati nābhinivisatīti—",
+        "translation": "They don’t take care of themselves, nor don’t grab them.",
+        "source": "mnd13:120.3_0"
+    },
+    {
+        "source_sentence": "upekkhatī uggahaṇanti maññe.",
+        "translation": "who learns with equanimity, it seems to me.",
+        "source": "mnd13:120.4_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:121.1_0"
+    },
+    {
+        "source_sentence": "“Na brāhmaṇo kappamupeti saṅkhā,",
+        "translation": "“It’s not allowable for a brahmin.",
+        "source": "mnd13:122.1_0"
+    },
+    {
+        "source_sentence": "Na diṭṭhisārī napi ñāṇabandhu;",
+        "translation": "nor views,",
+        "source": "mnd13:122.2_0"
+    },
+    {
+        "source_sentence": "Ñatvā ca so sammutiyo puthujjā,",
+        "translation": "Having understood the many different realms,",
+        "source": "mnd13:122.3_0"
+    },
+    {
+        "source_sentence": "Upekkhatī uggahaṇanti maññe”ti.",
+        "translation": "who learns with equanimity as if they seem.”",
+        "source": "mnd13:122.4_0"
+    },
+    {
+        "source_sentence": "**Vissajja ganthāni munīdha loke,**",
+        "translation": "The world’s head and fragrant,",
+        "source": "mnd13:123.1_0"
+    },
+    {
+        "source_sentence": "**Vivādajātesu na vaggasārī;**",
+        "translation": "You shouldn’t joints all kinds of unlucky,",
+        "source": "mnd13:123.2_0"
+    },
+    {
+        "source_sentence": "**Santo asantesu upekkhako so,**",
+        "translation": "peaceful and steadfast, he dwells equanimous,",
+        "source": "mnd13:123.3_0"
+    },
+    {
+        "source_sentence": "**Anuggaho uggahaṇanti maññe.**",
+        "translation": "they’re like the teacher of learned,",
+        "source": "mnd13:123.4_0"
+    },
+    {
+        "source_sentence": "**Vissajja ganthāni munīdha loke**ti.",
+        "translation": "The world has no strings in this world,",
+        "source": "mnd13:124.1_0"
+    },
+    {
+        "source_sentence": "**Ganthā**ti cattāro ganthā—",
+        "translation": "ties:",
+        "source": "mnd13:124.2_0"
+    },
+    {
+        "source_sentence": "abhijjhā kāyagantho, byāpādo kāyagantho, sīlabbataparāmāso kāyagantho, idaṁsaccābhiniveso kāyagantho.",
+        "translation": "the personal ties to covetousness, ill will, misapprehension of precepts and observances, and the insistence that this is the only truth.",
+        "source": "mnd13:124.3_0"
+    },
+    {
+        "source_sentence": "Attano diṭṭhiyā rāgo abhijjhā kāyagantho, paravādesu āghāto appaccayo byāpādo kāyagantho, attano sīlaṁ vā vataṁ vā sīlabbataṁ vā parāmasati sīlabbataparāmāso kāyagantho, attano diṭṭhi idaṁsaccābhiniveso kāyagantho.",
+        "translation": "That view of self-knowledge, covetousness, ill will, misapprehension of precepts and observances, and the insistence that leads to view.",
+        "source": "mnd13:124.4_0"
+    },
+    {
+        "source_sentence": "**Vissajjā**ti ganthe vossajjitvā vissajja.",
+        "translation": "Then after sending away: having been given away, during the day of night,",
+        "source": "mnd13:124.5_0"
+    },
+    {
+        "source_sentence": "Atha vā ganthe gathite ganthite bandhe vibandhe ābandhe lagge laggite palibuddhe bandhane phoṭayitvā vissajja.",
+        "translation": "Then, when the sky was bound together, he bound together by the neck and ropes on the banks of the river Nerañjarā, and scolded it away.",
+        "source": "mnd13:124.6_0"
+    },
+    {
+        "source_sentence": "Yathā vayhaṁ vā rathaṁ vā sakaṭaṁ vā sandamānikaṁ vā sajjaṁ vissajjaṁ karonti vikopenti;",
+        "translation": "Just as a carriage or a cart-pole drill-sticker, wherever it distributes,",
+        "source": "mnd13:124.7_0"
+    },
+    {
+        "source_sentence": "evamevaṁ ganthe vossajjitvā vissajja.",
+        "translation": "so when you died",
+        "source": "mnd13:124.8_0"
+    },
+    {
+        "source_sentence": "Atha vā ganthe gathite gaṇṭhite bandhe vibandhe ābandhe lagge laggite palibuddhe bandhane phoṭayitvā vissajja.",
+        "translation": "Then when the tiger was bound by the wind, he bound them in a separated bound with a binding pot, and he bound them together with the Buddha.",
+        "source": "mnd13:124.9_0"
+    },
+    {
+        "source_sentence": "**Munī**ti.",
+        "translation": "his momentary wife:",
+        "source": "mnd13:124.10_0"
+    },
+    {
+        "source_sentence": "**Monaṁ** vuccati ñāṇaṁ …pe… saṅgajālamaticca so muni.",
+        "translation": "Knowledge of delusion ...",
+        "source": "mnd13:124.11_0"
+    },
+    {
+        "source_sentence": "**Idhā**ti imissā diṭṭhiyā …pe…",
+        "translation": "Take a view here. ...",
+        "source": "mnd13:124.12_0"
+    },
+    {
+        "source_sentence": "imasmiṁ manussaloketi—",
+        "translation": "Because of this human body:",
+        "source": "mnd13:124.13_0"
+    },
+    {
+        "source_sentence": "vissajja ganthāni munīdha loke.",
+        "translation": "The world’s head and fragrant,",
+        "source": "mnd13:124.14_0"
+    },
+    {
+        "source_sentence": "**Vivādajātesu na vaggasārī**ti.",
+        "translation": "Arguing towards a dispute.",
+        "source": "mnd13:125.1_0"
+    },
+    {
+        "source_sentence": "Vivādajātesu sañjātesu nibbattesu abhinibbattesu pātubhūtesu chandāgatiṁ gacchantesu dosāgatiṁ gacchantesu bhayāgatiṁ gacchantesu mohāgatiṁ gacchantesu na chandāgatiṁ gacchati, na dosāgatiṁ gacchati, na bhayāgatiṁ gacchati, na mohāgatiṁ gacchati, na rāgavasena gacchati, na dosavasena gacchati, na mohavasena gacchati, na mānavasena gacchati, na diṭṭhivasena gacchati, na uddhaccavasena gacchati, na vicikicchāvasena gacchati, na anusayavasena gacchati, na vaggehi dhammehi yāyati nīyati vuyhati saṁharīyatīti—",
+        "translation": "When greed, hate, and delusion come to be. When they’re reborn in the kind of becoming produced by fondness and dissipated, they don’t go away with greed, hate, and delusion. As they walk, they don’t go away.",
+        "source": "mnd13:125.2_0"
+    },
+    {
+        "source_sentence": "vivādajātesu na vaggasārī.",
+        "translation": "You shouldn’t joints all kinds of unlucky,",
+        "source": "mnd13:125.3_0"
+    },
+    {
+        "source_sentence": "**Santo asantesu upekkhako so**ti.",
+        "translation": "peaceful and unattached, praised.",
+        "source": "mnd13:126.1_0"
+    },
+    {
+        "source_sentence": "**Santo**ti rāgassa santattā santo, dosassa santattā santo, mohassa santattā santo …pe…",
+        "translation": "Since they’re peaceful, greed, hate, and delusion, and delusion.",
+        "source": "mnd13:126.2_0"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārānaṁ santattā samitattā vūpasamitattā vijjhātattā nibbutattā vigatattā paṭipassaddhattā santo upasanto vūpasanto nibbuto paṭipassaddhoti—",
+        "translation": "And when he has done so, with the stilling of the settling of intentional activities, he becomes fully extinguished.",
+        "source": "mnd13:126.2_1"
+    },
+    {
+        "source_sentence": "santo.",
+        "translation": "peaceful and stabilized,",
+        "source": "mnd13:126.3_0"
+    },
+    {
+        "source_sentence": "**Asantesū**ti asantesu anupasantesu avūpasantesu anibbutesu appaṭipassaddhesūti—",
+        "translation": "When there is no appointment for them, they’re not quenched.",
+        "source": "mnd13:126.4_0"
+    },
+    {
+        "source_sentence": "santo asantesu.",
+        "translation": "peaceful and stable,",
+        "source": "mnd13:126.5_0"
+    },
+    {
+        "source_sentence": "**Upekkhako so**ti arahā chaḷaṅgupekkhāya samannāgato cakkhunā rūpaṁ disvā neva sumano hoti na dummano upekkhako viharati sato sampajāno.",
+        "translation": "equanimity.",
+        "source": "mnd13:126.6_0"
+    },
+    {
+        "source_sentence": "Sotena saddaṁ sutvā …pe…",
+        "translation": "When you hear a sound with your ears ...",
+        "source": "mnd13:126.7_0"
+    },
+    {
+        "source_sentence": "kālaṁ kaṅkhati bhāvito sa dantoti—",
+        "translation": "dies, he droves on:",
+        "source": "mnd13:126.8_0"
+    },
+    {
+        "source_sentence": "santo asantesu upekkhako so.",
+        "translation": "peaceful and steadfast, he dwells equanimous,",
+        "source": "mnd13:126.9_0"
+    },
+    {
+        "source_sentence": "**Anuggaho uggahaṇanti maññe**ti.",
+        "translation": "they’re followed by the astute",
+        "source": "mnd13:127.1_0"
+    },
+    {
+        "source_sentence": "Aññe taṇhāvasena diṭṭhivasena gaṇhante parāmasante abhinivisante.",
+        "translation": "Others it is known as craving because it causes by other craving,",
+        "source": "mnd13:127.2_0"
+    },
+    {
+        "source_sentence": "Arahā upekkhati na gaṇhāti na parāmasati nābhinivisatīti—",
+        "translation": "They don’t take care of themselves, nor don’t grab them.",
+        "source": "mnd13:127.3_0"
+    },
+    {
+        "source_sentence": "anuggaho uggahaṇanti maññe.",
+        "translation": "they’re like the teacher of learned,",
+        "source": "mnd13:127.4_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:128.1_0"
+    },
+    {
+        "source_sentence": "“Vissajja ganthāni munīdha loke,",
+        "translation": "“There’s no ties in the world,",
+        "source": "mnd13:129.1_0"
+    },
+    {
+        "source_sentence": "Vivādajātesu na vaggasārī;",
+        "translation": "You shouldn’t joints all kinds of unlucky,",
+        "source": "mnd13:129.2_0"
+    },
+    {
+        "source_sentence": "Santo asantesu upekkhako so,",
+        "translation": "peaceful and steadfast, he dwells equanimous,",
+        "source": "mnd13:129.3_0"
+    },
+    {
+        "source_sentence": "Anuggaho uggahaṇanti maññe”ti.",
+        "translation": "Do you think he’s learned?”",
+        "source": "mnd13:129.4_0"
+    },
+    {
+        "source_sentence": "**Pubbāsave hitvā nave akubbaṁ,**",
+        "translation": "Having never transgressed the position,",
+        "source": "mnd13:130.1_0"
+    },
+    {
+        "source_sentence": "**Na chandagū nopi nivissavādī;**",
+        "translation": "No-one who speaks falsely.",
+        "source": "mnd13:130.2_0"
+    },
+    {
+        "source_sentence": "**Sa vippamutto diṭṭhigatehi dhīro,**",
+        "translation": "The Wise One, liberated ones,",
+        "source": "mnd13:130.3_0"
+    },
+    {
+        "source_sentence": "**Na limpati loke anattagarahī.**",
+        "translation": "Who doesn’t tremble at the world,",
+        "source": "mnd13:130.4_0"
+    },
+    {
+        "source_sentence": "**Pubbāsave hitvā nave akubban**ti.",
+        "translation": "Having never stopped pushed them eventually,",
+        "source": "mnd13:131.1_0"
+    },
+    {
+        "source_sentence": "**Pubbāsavā** vuccanti atītā rūpavedanāsaññāsaṅkhāraviññāṇā.",
+        "translation": "(which is) called “a past in the past, future and present” are said to be foremost.",
+        "source": "mnd13:131.2_0"
+    },
+    {
+        "source_sentence": "Atīte saṅkhāre ārabbha ye kilesā uppajjeyyuṁ te kilese hitvā cajitvā pariccajitvā pajahitvā vinodetvā byantiṁ karitvā anabhāvaṁ gametvāti—",
+        "translation": "In the past, when those choices were to dispel their defilements, they’d give up corruption and give them up, get rid of them, eliminate them, and obliterate them.",
+        "source": "mnd13:131.3_0"
+    },
+    {
+        "source_sentence": "pubbāsave hitvā.",
+        "translation": "Having pushed him,",
+        "source": "mnd13:131.4_0"
+    },
+    {
+        "source_sentence": "**Nave akubban**ti **navā** vuccanti paccuppannā rūpavedanāsaññāsaṅkhāraviññāṇā.",
+        "translation": "These are not diverse. They are called formless.",
+        "source": "mnd13:131.5_0"
+    },
+    {
+        "source_sentence": "Paccuppanne saṅkhāre ārabbha chandaṁ akubbamāno pemaṁ akubbamāno rāgaṁ akubbamāno ajanayamāno asañjanayamāno anibbattayamāno anabhinibbattayamānoti—",
+        "translation": "When you don’t in the present yourselves residue, you don’t ensure it, you’re not reborn in hell.",
+        "source": "mnd13:131.6_0"
+    },
+    {
+        "source_sentence": "pubbāsave hitvā nave akubbaṁ.",
+        "translation": "Having never transgressed the position,",
+        "source": "mnd13:131.7_0"
+    },
+    {
+        "source_sentence": "**Na chandagū nopi nivissavādī**ti.",
+        "translation": "No-one who speaks falsely.",
+        "source": "mnd13:132.1_0"
+    },
+    {
+        "source_sentence": "Na chandāgatiṁ gacchati, na dosāgatiṁ gacchati, na mohāgatiṁ gacchati, na bhayāgatiṁ gacchati, na rāgavasena gacchati, na dosavasena gacchati, na mohavasena gacchati, na mānavasena gacchati, na diṭṭhivasena gacchati, na uddhaccavasena gacchati, na vicikicchāvasena gacchati, na anusayavasena gacchati, na vaggehi dhammehi yāyati nīyati vuyhati na saṁharīyatīti—",
+        "translation": "They don’t make decisions prejudiced by favoritism, hostility, stupidity, and cowardice. They don’t go to heaven. And they’re not called ‘conception’tent’.",
+        "source": "mnd13:132.2_0"
+    },
+    {
+        "source_sentence": "na chandagū.",
+        "translation": "nor does desire for anything.",
+        "source": "mnd13:132.3_0"
+    },
+    {
+        "source_sentence": "**Nopi nivissavādī**ti “sassato loko, idameva saccaṁ moghamaññan”ti na nivissavādī …pe…",
+        "translation": "‘The cosmos is eternal. This is the only truth, other ideas are silly.’ ...",
+        "source": "mnd13:132.4_0"
+    },
+    {
+        "source_sentence": "“neva hoti na na hoti tathāgato paraṁ maraṇā, idameva saccaṁ moghamaññan”ti na nivissavādīti—",
+        "translation": "“A Realized One neither exists nor doesn’t exist after death.”",
+        "source": "mnd13:132.5_0"
+    },
+    {
+        "source_sentence": "na chandagū nopi nivissavādī.",
+        "translation": "No-one who speaks falsely.",
+        "source": "mnd13:132.6_0"
+    },
+    {
+        "source_sentence": "**Sa vippamutto diṭṭhigatehi dhīro**ti tassa dvāsaṭṭhi diṭṭhigatāni pahīnāni samucchinnāni vūpasantāni paṭipassaddhāni abhabbuppattikāni ñāṇagginā daḍḍhāni.",
+        "translation": "The Hero, quite free from defilement by his views, his sixty-two misconceptions, his sixty misconceptions, expounded inheritance, and in realization of the sexual misconduct.",
+        "source": "mnd13:133.1_0"
+    },
+    {
+        "source_sentence": "So diṭṭhigatehi vippamutto visaññutto vimariyādikatena cetasā viharati.",
+        "translation": "They live with a heart free of these things.",
+        "source": "mnd13:133.2_0"
+    },
+    {
+        "source_sentence": "**Dhīro**ti dhīro paṇḍito paññavā buddhimā ñāṇī vibhāvī medhāvīti—",
+        "translation": "He is wise, clever, wise, and learned. He is intelligent, fully awakened.",
+        "source": "mnd13:133.3_0"
+    },
+    {
+        "source_sentence": "sa vippamutto diṭṭhigatehi dhīro.",
+        "translation": "The Wise One, liberated ones,",
+        "source": "mnd13:133.4_0"
+    },
+    {
+        "source_sentence": "**Na limpati loke anattagarahī**ti.",
+        "translation": "Not trembles at the world,",
+        "source": "mnd13:134.1_0"
+    },
+    {
+        "source_sentence": "**Lepā**ti dve lepā—",
+        "translation": "There are two kinds of plastering:",
+        "source": "mnd13:134.2_0"
+    },
+    {
+        "source_sentence": "taṇhālepo ca diṭṭhilepo ca …pe…",
+        "translation": "Craving, Etc. ...",
+        "source": "mnd13:134.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ taṇhālepo …pe…",
+        "translation": "This is the shelter of craving. ...",
+        "source": "mnd13:134.4_0"
+    },
+    {
+        "source_sentence": "ayaṁ diṭṭhilepo.",
+        "translation": "This view is the idiot of view.",
+        "source": "mnd13:134.5_0"
+    },
+    {
+        "source_sentence": "Tassa taṇhālepo pahīno, diṭṭhilepo paṭinissaṭṭho;",
+        "translation": "Their craving is given up, cut off at the root, made a palm stump,",
+        "source": "mnd13:134.6_0"
+    },
+    {
+        "source_sentence": "tassa taṇhālepassa pahīnattā, diṭṭhilepassa paṭinissaṭṭhattā apāyaloke na limpati, manussaloke na limpati, devaloke na limpati, khandhaloke na limpati, dhātuloke na limpati, āyatanaloke na limpati na palimpati na upalimpati, alitto apalitto anupalitto nikkhanto nissaṭo vippamutto visaññutto vimariyādikatena cetasā viharatīti—",
+        "translation": "And it’s when they’ve given up the view that craving, clinging to the human realm, no human being, no impediments supramundanetive, and don’t get rid of reappearing. They don’t fall in the sky or shovel of a human realm.",
+        "source": "mnd13:134.7_0"
+    },
+    {
+        "source_sentence": "na limpati loke.",
+        "translation": "The world does not cling to me,",
+        "source": "mnd13:134.8_0"
+    },
+    {
+        "source_sentence": "**Anattagarahī**ti dvīhi kāraṇehi attānaṁ garahati—",
+        "translation": "two kinds of people destinies:",
+        "source": "mnd13:135.1_0"
+    },
+    {
+        "source_sentence": "katattā ca akatattā ca.",
+        "translation": "Because they’ve done what was done,",
+        "source": "mnd13:135.2_0"
+    },
+    {
+        "source_sentence": "Kathaṁ katattā ca akatattā ca attānaṁ garahati?",
+        "translation": "And how are they criticized and denigrate?",
+        "source": "mnd13:135.3_0"
+    },
+    {
+        "source_sentence": "“Kataṁ me kāyaduccaritaṁ, akataṁ me kāyasucaritan”ti attānaṁ garahati.",
+        "translation": "“I do bad things by way of body, speech, and mind.”",
+        "source": "mnd13:135.4_0"
+    },
+    {
+        "source_sentence": "“Kataṁ me vacīduccaritaṁ …pe…",
+        "translation": "“I do bad things by way of body, speech, and mind. ...”",
+        "source": "mnd13:135.5_0"
+    },
+    {
+        "source_sentence": "kataṁ me manoduccaritaṁ …",
+        "translation": "‘I’ve done bad things by way of body, speech, and mind.’ ...",
+        "source": "mnd13:135.6_0"
+    },
+    {
+        "source_sentence": "kato me pāṇātipāto …pe…",
+        "translation": "he killed living creatures ...",
+        "source": "mnd13:135.7_0"
+    },
+    {
+        "source_sentence": "katā me micchādiṭṭhi, akatā me sammādiṭṭhī”ti attānaṁ garahati.",
+        "translation": "I have done enough.”",
+        "source": "mnd13:135.8_0"
+    },
+    {
+        "source_sentence": "Evaṁ katattā ca akatattā ca attānaṁ garahati.",
+        "translation": "So they criticize those who haven’t done what was done,",
+        "source": "mnd13:135.9_0"
+    },
+    {
+        "source_sentence": "Atha vā “sīlesumhi na paripūrakārī”ti attānaṁ garahati.",
+        "translation": "Or alternatively, he does not deprive it.",
+        "source": "mnd13:136.1_0"
+    },
+    {
+        "source_sentence": "“Indriyesumhi aguttadvāro”ti …",
+        "translation": "“I’m practicing wrong.”",
+        "source": "mnd13:136.2_0"
+    },
+    {
+        "source_sentence": "“bhojanemhi amattaññū”ti …",
+        "translation": "... “I know the deathless.” ...",
+        "source": "mnd13:136.3_0"
+    },
+    {
+        "source_sentence": "“jāgariyamhi ananuyutto”ti …",
+        "translation": "that I abstain from sexuality ...",
+        "source": "mnd13:136.4_0"
+    },
+    {
+        "source_sentence": "“na satisampajaññenāmhi samannāgato”ti …",
+        "translation": "“I have mindfulness and situational awareness” ...",
+        "source": "mnd13:136.5_0"
+    },
+    {
+        "source_sentence": "“abhāvitā me cattāro satipaṭṭhānā”ti …",
+        "translation": "... “I have developed the four kinds of mindfulness meditation.” ...",
+        "source": "mnd13:136.6_0"
+    },
+    {
+        "source_sentence": "“abhāvitā me cattāro sammappadhānā”ti …",
+        "translation": "... “I attained the four right efforts ...",
+        "source": "mnd13:136.7_0"
+    },
+    {
+        "source_sentence": "“abhāvitā me cattāro iddhipādā”ti …",
+        "translation": "... “I have developed the four bases of psychic power” ...",
+        "source": "mnd13:136.8_0"
+    },
+    {
+        "source_sentence": "“abhāvitāni me pañcindriyānī”ti …",
+        "translation": "... “I attained the five faculties,” ...",
+        "source": "mnd13:136.9_0"
+    },
+    {
+        "source_sentence": "“abhāvitāni me pañca balānī”ti …",
+        "translation": "... “I’m powerful,” ...",
+        "source": "mnd13:136.10_0"
+    },
+    {
+        "source_sentence": "“abhāvitā me satta bojjhaṅgā”ti …",
+        "translation": "... “I’ve developed the seven awakening factors.” ...",
+        "source": "mnd13:136.11_0"
+    },
+    {
+        "source_sentence": "“abhāvito me ariyo aṭṭhaṅgiko maggo”ti …",
+        "translation": "“I’ve developed the noble eightfold path ...”",
+        "source": "mnd13:136.12_0"
+    },
+    {
+        "source_sentence": "“dukkhaṁ me apariññātan”ti …",
+        "translation": "saying that I haven’t completely understood suffering,",
+        "source": "mnd13:136.13_0"
+    },
+    {
+        "source_sentence": "“dukkhasamudayo me appahīno”ti …",
+        "translation": "“‘I haven’t given up suffering’ ...",
+        "source": "mnd13:136.14_0"
+    },
+    {
+        "source_sentence": "“maggo me abhāvito”ti …",
+        "translation": "... “I’ve developed the noble eightfold path.” ...",
+        "source": "mnd13:136.15_0"
+    },
+    {
+        "source_sentence": "“nirodho me asacchikato”ti attānaṁ garahati.",
+        "translation": "When I’ve heard these things, I criticize them.",
+        "source": "mnd13:136.16_0"
+    },
+    {
+        "source_sentence": "Evaṁ katattā ca akatattā ca attānaṁ garahati.",
+        "translation": "So they criticize those who haven’t done what was done,",
+        "source": "mnd13:136.17_0"
+    },
+    {
+        "source_sentence": "Evaṁ attagarahī.",
+        "translation": "So too the one delights in self,",
+        "source": "mnd13:136.18_0"
+    },
+    {
+        "source_sentence": "Tayidaṁ kammaṁ akubbamāno ajanayamāno asañjanayamāno anibbattayamāno anabhinibbattayamāno anattagarahīti—",
+        "translation": "But when they don’t accumulate a violent and sound—convinced and discontent, they continue to be reborn—",
+        "source": "mnd13:136.19_0"
+    },
+    {
+        "source_sentence": "na limpati loke anattagarahī.",
+        "translation": "Who doesn’t tremble at the world,",
+        "source": "mnd13:136.20_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:137.1_0"
+    },
+    {
+        "source_sentence": "“Pubbāsave hitvā nave akubbaṁ,",
+        "translation": "“Firstly, after giving up the pushing,",
+        "source": "mnd13:138.1_0"
+    },
+    {
+        "source_sentence": "Na chandagū nopi nivissavādī;",
+        "translation": "No-one who speaks falsely.",
+        "source": "mnd13:138.2_0"
+    },
+    {
+        "source_sentence": "Sa vippamutto diṭṭhigatehi dhīro,",
+        "translation": "The Wise One, liberated ones,",
+        "source": "mnd13:138.3_0"
+    },
+    {
+        "source_sentence": "Na limpati loke anattagarahī”ti.",
+        "translation": "they’re not attached to anything in the world.”",
+        "source": "mnd13:138.4_0"
+    },
+    {
+        "source_sentence": "**Sa sabbadhammesu visenibhūto,**",
+        "translation": "When they’re driven out all things,",
+        "source": "mnd13:139.1_0"
+    },
+    {
+        "source_sentence": "**Yaṁ kiñci diṭṭhaṁ va sutaṁ mutaṁ vā;**",
+        "translation": "Such a one does not take anything",
+        "source": "mnd13:139.2_0"
+    },
+    {
+        "source_sentence": "**Sa pannabhāro muni vippamutto,**",
+        "translation": "With speech like the sage, he is free from oppression.",
+        "source": "mnd13:139.3_0"
+    },
+    {
+        "source_sentence": "**Na kappiyo nūparato na patthiyo.**",
+        "translation": "Neither in a lake, Nor through the bowls,",
+        "source": "mnd13:139.4_0"
+    },
+    {
+        "source_sentence": "(Iti bhagavā.)",
+        "translation": "said the Buddha,",
+        "source": "mnd13:139.5_0"
+    },
+    {
+        "source_sentence": "**Sa sabbadhammesu visenibhūto yaṁ kiñci diṭṭhaṁ va sutaṁ mutaṁ vā**ti.",
+        "translation": "when all things are seen, what is heard, ~ or void,",
+        "source": "mnd13:140.1_0"
+    },
+    {
+        "source_sentence": "**Senā** vuccati mārasenā.",
+        "translation": "said to Māra’s sovereignty.",
+        "source": "mnd13:140.2_0"
+    },
+    {
+        "source_sentence": "Kāyaduccaritaṁ mārasenā, vacīduccaritaṁ mārasenā, manoduccaritaṁ mārasenā, rāgo … doso … moho … kodho …",
+        "translation": "Māra’s army ...",
+        "source": "mnd13:140.3_0"
+    },
+    {
+        "source_sentence": "upanāho … makkho … paḷāso … issā …",
+        "translation": "hostility ...",
+        "source": "mnd13:140.3_1"
+    },
+    {
+        "source_sentence": "macchariyaṁ … māyā …",
+        "translation": "stinginess ...",
+        "source": "mnd13:140.3_2"
+    },
+    {
+        "source_sentence": "sāṭheyyaṁ …",
+        "translation": "deviousness ...",
+        "source": "mnd13:140.3_3"
+    },
+    {
+        "source_sentence": "thambho …",
+        "translation": "obstinacy ...",
+        "source": "mnd13:140.3_4"
+    },
+    {
+        "source_sentence": "sārambho … māno …",
+        "translation": "aggression ...",
+        "source": "mnd13:140.3_5"
+    },
+    {
+        "source_sentence": "atimāno … mado … pamādo …",
+        "translation": "negligence ...",
+        "source": "mnd13:140.3_6"
+    },
+    {
+        "source_sentence": "sabbe kilesā …",
+        "translation": "all defilements ...",
+        "source": "mnd13:140.3_7"
+    },
+    {
+        "source_sentence": "sabbe duccaritā …",
+        "translation": "all of them have a bad conduct.",
+        "source": "mnd13:140.3_8"
+    },
+    {
+        "source_sentence": "sabbe darathā …",
+        "translation": "all of them ...",
+        "source": "mnd13:140.3_9"
+    },
+    {
+        "source_sentence": "sabbe pariḷāhā …",
+        "translation": "all of them ...",
+        "source": "mnd13:140.3_10"
+    },
+    {
+        "source_sentence": "sabbe santāpā …",
+        "translation": "all of them ...",
+        "source": "mnd13:140.3_11"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārā mārasenā.",
+        "translation": "(Having) wholesome intentions, who are skilled in Māra’s power,",
+        "source": "mnd13:140.3_12"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "mnd13:141.1_0"
+    },
+    {
+        "source_sentence": "“Kāmā te paṭhamā senā,",
+        "translation": "“Don’t army, first of those people",
+        "source": "mnd13:142.1_0"
+    },
+    {
+        "source_sentence": "dutiyā arati vuccati;",
+        "translation": "they are said to be perfected.",
+        "source": "mnd13:142.2_0"
+    },
+    {
+        "source_sentence": "…pe…",
+        "translation": "... “I attained ...",
+        "source": "mnd13:142.3_0"
+    },
+    {
+        "source_sentence": "Na naṁ asūro jināti,",
+        "translation": "If you’re not a disease",
+        "source": "mnd13:142.4_0"
+    },
+    {
+        "source_sentence": "jetvāva labhate sukhan”ti.",
+        "translation": "having vanquished you, may you find happiness.”",
+        "source": "mnd13:142.5_0"
+    },
+    {
+        "source_sentence": "Yato catūhi ariyamaggehi sabbā ca mārasenā sabbe ca paṭisenikarā kilesā jitā ca parājitā ca bhaggā vippaluggā parammukhā—",
+        "translation": "There’s this four noble paths, all victorious Māra’s army, with no trouble or difficulty, disdain and conquerortion.",
+        "source": "mnd13:143.1_0"
+    },
+    {
+        "source_sentence": "so vuccati visenibhūto.",
+        "translation": "they’re said to be in training.",
+        "source": "mnd13:143.2_0"
+    },
+    {
+        "source_sentence": "So diṭṭhe visenibhūto,",
+        "translation": "have seen the distinctions between.",
+        "source": "mnd13:143.3_0"
+    },
+    {
+        "source_sentence": "sute …",
+        "translation": "expanded ...",
+        "source": "mnd13:143.4_0"
+    },
+    {
+        "source_sentence": "mute …",
+        "translation": "emptiness ...",
+        "source": "mnd13:143.5_0"
+    },
+    {
+        "source_sentence": "viññāte visenibhūtoti—",
+        "translation": "they independent,",
+        "source": "mnd13:143.6_0"
+    },
+    {
+        "source_sentence": "sa sabbadhammesu visenibhūto, yaṁ kiñci diṭṭhaṁ va sutaṁ mutaṁ vā.",
+        "translation": "when (the Dhamma) is destroyed, he is seen, heard, thought,",
+        "source": "mnd13:143.7_0"
+    },
+    {
+        "source_sentence": "**Sa pannabhāro muni vippamutto**ti.",
+        "translation": "With speech like the sage, he is free from oppression.",
+        "source": "mnd13:144.1_0"
+    },
+    {
+        "source_sentence": "**Bhārā**ti tayo bhārā—",
+        "translation": "Three burdens:",
+        "source": "mnd13:144.2_0"
+    },
+    {
+        "source_sentence": "khandhabhāro, kilesabhāro, abhisaṅkhārabhāro.",
+        "translation": "but the aggregates are high priest-fall.",
+        "source": "mnd13:144.3_0"
+    },
+    {
+        "source_sentence": "Katamo khandhabhāro?",
+        "translation": "What is the chapter on offenses?",
+        "source": "mnd13:144.4_0"
+    },
+    {
+        "source_sentence": "Paṭisandhiyā rūpaṁ vedanā saññā saṅkhārā viññāṇaṁ—",
+        "translation": "Relishing form, feeling, perception, choices, and consciousness.",
+        "source": "mnd13:144.5_0"
+    },
+    {
+        "source_sentence": "ayaṁ khandhabhāro.",
+        "translation": "This is the chapter on offenses.",
+        "source": "mnd13:144.6_0"
+    },
+    {
+        "source_sentence": "Katamo kilesabhāro?",
+        "translation": "What is defilement?",
+        "source": "mnd13:144.7_0"
+    },
+    {
+        "source_sentence": "Rāgo doso moho …pe…",
+        "translation": "greed, hate, and delusion.",
+        "source": "mnd13:144.8_0"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārā—",
+        "translation": "all unskillful intentions:",
+        "source": "mnd13:144.9_0"
+    },
+    {
+        "source_sentence": "ayaṁ kilesabhāro.",
+        "translation": "this is its defilements.",
+        "source": "mnd13:144.10_0"
+    },
+    {
+        "source_sentence": "Katamo abhisaṅkhārabhāro?",
+        "translation": "What is requisites?",
+        "source": "mnd13:144.11_0"
+    },
+    {
+        "source_sentence": "Puññābhisaṅkhāro apuññābhisaṅkhāro āneñjābhisaṅkhāro—",
+        "translation": "(There is) a meritorious (volitional) process, a demeritorious (volitional) process, an imperturbable (volitional) process.",
+        "source": "mnd13:144.12_0"
+    },
+    {
+        "source_sentence": "ayaṁ abhisaṅkhārabhāro.",
+        "translation": "this is the burdensome light.",
+        "source": "mnd13:144.13_0"
+    },
+    {
+        "source_sentence": "Yato khandhabhāro ca kilesabhāro ca abhisaṅkhārabhāro ca pahīnā honti ucchinnamūlā tālāvatthukatā anabhāvaṅkatā āyatiṁ anuppādadhammā, so vuccati pannabhāro patitabhāro oropitabhāro samoropitabhāro nikkhittabhāro paṭipassaddhabhāro.",
+        "translation": "Since he is called an ‘aggregate’, a ‘cquisition’, absent’, or a ‘provided’, he’s unable to reappear in the future’, is called ‘unknown’.",
+        "source": "mnd13:144.14_0"
+    },
+    {
+        "source_sentence": "**Munī**ti monaṁ vuccati ñāṇaṁ.",
+        "translation": "the knowledge of release is what is meant.",
+        "source": "mnd13:145.1_0"
+    },
+    {
+        "source_sentence": "Yā paññā pajānanā vicayo pavicayo dhammavicayo sallakkhaṇā upalakkhaṇā paccupalakkhaṇā, paṇḍiccaṁ kosallaṁ nepuññaṁ vebhabyā cintā upaparikkhā bhūri medhā parināyikā vipassanā sampajaññaṁ patodo paññā paññindriyaṁ paññābalaṁ paññāsatthaṁ paññāpāsādo paññāāloko paññāobhāso paññāpajjoto paññāratanaṁ amoho dhammavicayo sammādiṭṭhi.",
+        "translation": "wisdom, which is founded on View, liberating, examining, and contemptible investigation of (the nature of) the constituent, the enlightenment, the power of wisdom, the faculties, wisdom, and right view.",
+        "source": "mnd13:145.2_0"
+    },
+    {
+        "source_sentence": "Tena ñāṇena samannāgato muni monappatto.",
+        "translation": "by that sage he had knowledge of delusion,",
+        "source": "mnd13:145.3_0"
+    },
+    {
+        "source_sentence": "Tīṇi moneyyāni—",
+        "translation": "Three kinds of sagacity:",
+        "source": "mnd13:146.1_0"
+    },
+    {
+        "source_sentence": "kāyamoneyyaṁ, vacīmoneyyaṁ, manomoneyyaṁ.",
+        "translation": "Sagacity of body, speech, and mind.",
+        "source": "mnd13:146.2_0"
+    },
+    {
+        "source_sentence": "Katamaṁ kāyamoneyyaṁ?",
+        "translation": "What is sagacity of body?",
+        "source": "mnd13:146.3_0"
+    },
+    {
+        "source_sentence": "Tividhānaṁ kāyaduccaritānaṁ pahānaṁ kāyamoneyyaṁ, tividhaṁ kāyasucaritaṁ kāyamoneyyaṁ, kāyārammaṇe ñāṇaṁ kāyamoneyyaṁ, kāyapariññā kāyamoneyyaṁ, pariññāsahagato maggo kāyamoneyyaṁ, kāye chandarāgassa pahānaṁ kāyamoneyyaṁ, kāyasaṅkhāranirodho catutthajjhānasamāpatti kāyamoneyyaṁ—",
+        "translation": "Physical bodily conduct, verbal, and mental conduct as condition: body, speech, and mind. Avoiding physical contact with three kinds of body, speech, and mind, knowledge of the cessation of physical contact, the path, the practice that leads to the cessation of physical contact.",
+        "source": "mnd13:146.4_0"
+    },
+    {
+        "source_sentence": "idaṁ kāyamoneyyaṁ.",
+        "translation": "this body, speech, and mind.",
+        "source": "mnd13:146.5_0"
+    },
+    {
+        "source_sentence": "Katamaṁ vacīmoneyyaṁ?",
+        "translation": "What is sagacity of speech?",
+        "source": "mnd13:147.1_0"
+    },
+    {
+        "source_sentence": "Catubbidhānaṁ vacīduccaritānaṁ pahānaṁ vacīmoneyyaṁ, catubbidhaṁ vacīsucaritaṁ vacīmoneyyaṁ, vācārammaṇe ñāṇaṁ vacīmoneyyaṁ, vācāpariññā vacīmoneyyaṁ, pariññāsahagato maggo vacīmoneyyaṁ, vācāya chandarāgassa pahānaṁ vacīmoneyyaṁ, vacīsaṅkhāranirodho dutiyajjhānasamāpatti vacīmoneyyaṁ—",
+        "translation": "fourfold by way of speech, speech, and mind.",
+        "source": "mnd13:147.2_0"
+    },
+    {
+        "source_sentence": "idaṁ vacīmoneyyaṁ.",
+        "translation": "this is purity of speech.",
+        "source": "mnd13:147.3_0"
+    },
+    {
+        "source_sentence": "Katamaṁ manomoneyyaṁ?",
+        "translation": "What is sagacity of mind?",
+        "source": "mnd13:148.1_0"
+    },
+    {
+        "source_sentence": "Tividhānaṁ manoduccaritānaṁ pahānaṁ manomoneyyaṁ, tividhaṁ manosucaritaṁ manomoneyyaṁ, cittārammaṇe ñāṇaṁ manomoneyyaṁ, cittapariññā manomoneyyaṁ, pariññāsahagato maggo manomoneyyaṁ, citte chandarāgassa pahānaṁ manomoneyyaṁ, cittasaṅkhāranirodho saññāvedayitanirodhasamāpatti manomoneyyaṁ—",
+        "translation": "Knowledge of misconduct ...",
+        "source": "mnd13:148.2_0"
+    },
+    {
+        "source_sentence": "idaṁ manomoneyyaṁ.",
+        "translation": "this is sagacity of mind.",
+        "source": "mnd13:148.3_0"
+    },
+    {
+        "source_sentence": "“Kāyamuniṁ vācāmuniṁ,",
+        "translation": "“A sage in body, a sage in speech,",
+        "source": "mnd13:149.1_0"
+    },
+    {
+        "source_sentence": "manomunimanāsavaṁ;",
+        "translation": "a sage undefiled in mind;",
+        "source": "mnd13:149.2_0"
+    },
+    {
+        "source_sentence": "Muniṁ moneyyasampannaṁ,",
+        "translation": "a sage, blessed with sagacity,",
+        "source": "mnd13:149.3_0"
+    },
+    {
+        "source_sentence": "āhu sabbappahāyinaṁ.",
+        "translation": "he has given up everything, they say.",
+        "source": "mnd13:149.4_0"
+    },
+    {
+        "source_sentence": "Kāyamuniṁ vācāmuniṁ,",
+        "translation": "sages in body, speech, and mind.",
+        "source": "mnd13:150.1_0"
+    },
+    {
+        "source_sentence": "manomunimanāsavaṁ;",
+        "translation": "a sage undefiled in mind;",
+        "source": "mnd13:150.2_0"
+    },
+    {
+        "source_sentence": "Muniṁ moneyyasampannaṁ,",
+        "translation": "a sage, blessed with sagacity,",
+        "source": "mnd13:150.3_0"
+    },
+    {
+        "source_sentence": "āhu ninhātapāpakan”ti.",
+        "translation": "has washed off all bad things, they say.”",
+        "source": "mnd13:150.4_0"
+    },
+    {
+        "source_sentence": "Imehi tīhi moneyyehi dhammehi samannāgatā cha munino—",
+        "translation": "Six kinds of sagacity:",
+        "source": "mnd13:151.1_0"
+    },
+    {
+        "source_sentence": "agāramunino, anagāramunino, sekhamunino, asekhamunino, paccekamunino, munimuninoti.",
+        "translation": "For the one who is delighted, pleasing to the way that is a trainee,",
+        "source": "mnd13:151.2_0"
+    },
+    {
+        "source_sentence": "Katame agāramunino?",
+        "translation": "What are the delightful?",
+        "source": "mnd13:151.3_0"
+    },
+    {
+        "source_sentence": "Ye te agārikā diṭṭhapadā viññātasāsanā—",
+        "translation": "And those that haven’t seen, heard, or suspected that.",
+        "source": "mnd13:151.4_0"
+    },
+    {
+        "source_sentence": "ime agāramunino.",
+        "translation": "these are the delightful ones.",
+        "source": "mnd13:151.5_0"
+    },
+    {
+        "source_sentence": "Katame anagāramunino?",
+        "translation": "What’s the one who’s happy?",
+        "source": "mnd13:151.6_0"
+    },
+    {
+        "source_sentence": "Ye te pabbajitā diṭṭhapadā viññātasāsanā—",
+        "translation": "Those who have gone forth seen that How should be known, thinking,",
+        "source": "mnd13:151.7_0"
+    },
+    {
+        "source_sentence": "ime anagāramunino.",
+        "translation": "these are the ignoble ones.",
+        "source": "mnd13:151.8_0"
+    },
+    {
+        "source_sentence": "Satta sekhā sekhamunino, arahanto asekhamunino.",
+        "translation": "Seven trainees, the perfected ones, the fully awakened Buddhas;",
+        "source": "mnd13:151.9_0"
+    },
+    {
+        "source_sentence": "Paccekabuddhā paccekamunino.",
+        "translation": "Paccekabuddhas, and Buddhas awakened for themselves,",
+        "source": "mnd13:151.10_0"
+    },
+    {
+        "source_sentence": "Munimunino vuccanti tathāgatā arahanto sammāsambuddhā.",
+        "translation": "they are called ‘a sage’.",
+        "source": "mnd13:151.11_0"
+    },
+    {
+        "source_sentence": "“Na monena munī hoti,",
+        "translation": "“You don’t become a sage by silence,",
+        "source": "mnd13:152.1_0"
+    },
+    {
+        "source_sentence": "mūḷharūpo aviddasu;",
+        "translation": "while still confused and ignorant.",
+        "source": "mnd13:152.2_0"
+    },
+    {
+        "source_sentence": "Yo ca tulaṁva paggayha,",
+        "translation": "The astute one holds up the scales,",
+        "source": "mnd13:152.3_0"
+    },
+    {
+        "source_sentence": "varamādāya paṇḍito.",
+        "translation": "taking only the best,",
+        "source": "mnd13:152.4_0"
+    },
+    {
+        "source_sentence": "Pāpāni parivajjeti,",
+        "translation": "and rejecting the bad;",
+        "source": "mnd13:153.1_0"
+    },
+    {
+        "source_sentence": "sa munī tena so muni;",
+        "translation": "the sage who grieves",
+        "source": "mnd13:153.2_0"
+    },
+    {
+        "source_sentence": "Yo munāti ubho loke,",
+        "translation": "One who measures good and bad in the world,",
+        "source": "mnd13:153.3_0"
+    },
+    {
+        "source_sentence": "muni tena pavuccati.",
+        "translation": "therefore this is called a sage.",
+        "source": "mnd13:153.4_0"
+    },
+    {
+        "source_sentence": "Asatañca satañca ñatvā dhammaṁ,",
+        "translation": "Knowing the virtuous and the wicked,",
+        "source": "mnd13:154.1_0"
+    },
+    {
+        "source_sentence": "Ajjhattaṁ bahiddhā ca sabbaloke;",
+        "translation": "and (the whole world) with its gods.",
+        "source": "mnd13:154.2_0"
+    },
+    {
+        "source_sentence": "Devamanussehi pūjito yo,",
+        "translation": "I’m honoured by gods and men,",
+        "source": "mnd13:154.3_0"
+    },
+    {
+        "source_sentence": "Saṅgajālamaticca so muni”.",
+        "translation": "they’ve escaped their chains.”",
+        "source": "mnd13:154.4_0"
+    },
+    {
+        "source_sentence": "**Vippamutto**ti munino rāgā cittaṁ muttaṁ vimuttaṁ suvimuttaṁ;",
+        "translation": "liberated, free from passion, his mind is freed, freed, and well freed.",
+        "source": "mnd13:155.1_0"
+    },
+    {
+        "source_sentence": "dosā cittaṁ …",
+        "translation": "They understand mind with hate ...",
+        "source": "mnd13:155.2_0"
+    },
+    {
+        "source_sentence": "mohā cittaṁ muttaṁ vimuttaṁ suvimuttaṁ …pe…",
+        "translation": "freed mind ...",
+        "source": "mnd13:155.3_0"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārehi cittaṁ muttaṁ vimuttaṁ suvimuttanti—",
+        "translation": "All unskillful covetousness is well freed—",
+        "source": "mnd13:155.4_0"
+    },
+    {
+        "source_sentence": "sa pannabhāro muni vippamutto.",
+        "translation": "With speech like the sage, he is free from oppression.",
+        "source": "mnd13:155.5_0"
+    },
+    {
+        "source_sentence": "**Na kappiyo nūparato na patthiyoti bhagavā**ti.",
+        "translation": "Nor in the world does he surround the bowl,",
+        "source": "mnd13:156.1_0"
+    },
+    {
+        "source_sentence": "**Kappā**ti dve kappā—",
+        "translation": "there are two eons:",
+        "source": "mnd13:156.2_0"
+    },
+    {
+        "source_sentence": "taṇhākappo ca diṭṭhikappo ca …pe…",
+        "translation": "Craving for craving and view.",
+        "source": "mnd13:156.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ taṇhākappo …pe…",
+        "translation": "This is the craving that leads to craving. ...",
+        "source": "mnd13:156.4_0"
+    },
+    {
+        "source_sentence": "ayaṁ diṭṭhikappo.",
+        "translation": "This Shrine of views.",
+        "source": "mnd13:156.5_0"
+    },
+    {
+        "source_sentence": "Tassa taṇhākappo pahīno, diṭṭhikappo paṭinissaṭṭho;",
+        "translation": "The intention that leads to rebirth is given up, has given up, relinquished,",
+        "source": "mnd13:156.6_0"
+    },
+    {
+        "source_sentence": "taṇhākappassa pahīnattā diṭṭhikappassa paṭinissaṭṭhattā taṇhākappaṁ vā diṭṭhikappaṁ vā na kappeti na janeti na sañjaneti na nibbatteti nābhinibbattetīti—",
+        "translation": "When craving has been given up, they don’t reinforced by craving, nor do they rely on transgress it. They don’t rely on account of craving and views.",
+        "source": "mnd13:156.7_0"
+    },
+    {
+        "source_sentence": "na kappiyo.",
+        "translation": "Nor does she receptacle for an eon.",
+        "source": "mnd13:156.8_0"
+    },
+    {
+        "source_sentence": "**Nūparato**ti.",
+        "translation": "one not abstaining through fear.",
+        "source": "mnd13:156.9_0"
+    },
+    {
+        "source_sentence": "Sabbe bālaputhujjanā rajjanti, puthujjanakalyāṇakaṁ upādāya satta sekhā appattassa pattiyā anadhigatassa adhigamāya asacchikatassa sacchikiriyāya āramanti viramanti paṭiviramanti, arahā ārato virato paṭivirato nikkhanto nissaṭo vippamutto visaññutto vimariyādikatena cetasā viharatīti—",
+        "translation": "All these foolish ordinary persons, insignificant things, they’re free of limits ...",
+        "source": "mnd13:156.10_0"
+    },
+    {
+        "source_sentence": "na kappiyo nūparato.",
+        "translation": "not soiled by an eon.",
+        "source": "mnd13:156.11_0"
+    },
+    {
+        "source_sentence": "**Na patthiyo**ti.",
+        "translation": "but it is not possible for a almsbowl.",
+        "source": "mnd13:156.12_0"
+    },
+    {
+        "source_sentence": "**Patthanā** vuccati taṇhā.",
+        "translation": "they’re said to be craving.",
+        "source": "mnd13:156.13_0"
+    },
+    {
+        "source_sentence": "Yo rāgo sārāgo …pe… abhijjhā lobho akusalamūlaṁ.",
+        "translation": "Greed ...",
+        "source": "mnd13:156.14_0"
+    },
+    {
+        "source_sentence": "Yassesā patthanā taṇhā pahīnā samucchinnā vūpasantā paṭipassaddhā abhabbuppattikā ñāṇagginā daḍḍhā, so vuccati na patthiyo.",
+        "translation": "They have cut off craving and severed the bonds of rebirth, old age, and death, from the time they’re called ‘againstanding’.",
+        "source": "mnd13:156.15_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanaṁ.",
+        "translation": "from criticism to criticism.",
+        "source": "mnd13:157.1_0"
+    },
+    {
+        "source_sentence": "Api ca bhaggarāgoti bhagavā,",
+        "translation": "But even more lustful, Blessed One,",
+        "source": "mnd13:157.2_0"
+    },
+    {
+        "source_sentence": "bhaggadosoti bhagavā,",
+        "translation": "said the Buddha,",
+        "source": "mnd13:157.3_0"
+    },
+    {
+        "source_sentence": "bhaggamohoti bhagavā,",
+        "translation": "said the Buddha,",
+        "source": "mnd13:157.4_0"
+    },
+    {
+        "source_sentence": "bhaggamānoti bhagavā,",
+        "translation": "and the Fortunate One,",
+        "source": "mnd13:157.5_0"
+    },
+    {
+        "source_sentence": "bhaggadiṭṭhīti bhagavā,",
+        "translation": "The Buddha said,",
+        "source": "mnd13:157.6_0"
+    },
+    {
+        "source_sentence": "bhaggakaṇḍakoti bhagavā,",
+        "translation": "said,",
+        "source": "mnd13:157.7_0"
+    },
+    {
+        "source_sentence": "bhaggakilesoti bhagavā,",
+        "translation": "said the Buddha,",
+        "source": "mnd13:157.8_0"
+    },
+    {
+        "source_sentence": "bhaji vibhaji pavibhaji dhammaratananti bhagavā,",
+        "translation": "the Fortunate One, Bhaggava, the Fortunate One,",
+        "source": "mnd13:157.9_0"
+    },
+    {
+        "source_sentence": "bhavānaṁ antakaroti bhagavā,",
+        "translation": "For the Fortunate One is not worthy of",
+        "source": "mnd13:157.10_0"
+    },
+    {
+        "source_sentence": "bhāvitakāyo bhāvitasīlo bhāvitacitto bhāvitapaññoti bhagavā;",
+        "translation": "One developed in physical endurance, ethics, mind, and wisdom.",
+        "source": "mnd13:157.11_0"
+    },
+    {
+        "source_sentence": "bhaji vā bhagavā araññavanapatthāni pantāni senāsanāni appasaddāni appanigghosāni vijanavātāni manussarāhasseyyakāni paṭisallānasāruppānīti bhagavā,",
+        "translation": "The Buddha frequents remote lodgings in the wilderness and the forest that are quiet and still, far from the madding crowd, remote from human settlements, and fit for retreat.",
+        "source": "mnd13:157.12_0"
+    },
+    {
+        "source_sentence": "bhāgī vā bhagavā cīvarapiṇḍapātasenāsanagilānapaccayabhesajjaparikkhārānanti bhagavā,",
+        "translation": "The Buddha receives robes, alms-food, lodgings, and medicines and supplies for the sick.",
+        "source": "mnd13:157.13_0"
+    },
+    {
+        "source_sentence": "bhāgī vā bhagavā attharasassa dhammarasassa vimuttirasassa adhisīlassa adhicittassa adhipaññāyāti bhagavā,",
+        "translation": "And he discarded of the meaning, the teaching, the Saṅgha, and the ethics, the mind, and wisdom.",
+        "source": "mnd13:157.14_0"
+    },
+    {
+        "source_sentence": "bhāgī vā bhagavā catunnaṁ jhānānaṁ catunnaṁ appamaññānaṁ catunnaṁ arūpasamāpattīnanti bhagavā,",
+        "translation": "Whether four absorptions, the Buddha has attained the four absorptions, the immeasurable attainments,",
+        "source": "mnd13:157.15_0"
+    },
+    {
+        "source_sentence": "bhāgī vā bhagavā aṭṭhannaṁ vimokkhānaṁ aṭṭhannaṁ abhibhāyatanānaṁ navannaṁ anupubbavihārasamāpattīnanti bhagavā,",
+        "translation": "The Buddha taught him stages of the eight liberations.",
+        "source": "mnd13:157.16_0"
+    },
+    {
+        "source_sentence": "bhāgī vā bhagavā dasannaṁ saññābhāvanānaṁ dasannaṁ kasiṇasamāpattīnaṁ ānāpānassatisamādhissa asubhasamāpattiyāti bhagavā,",
+        "translation": "The Buddha has ten perceptions, ten perceptions, twenty perceptions, ten perceptions, foulness, and mindfulness of breathing.",
+        "source": "mnd13:157.17_0"
+    },
+    {
+        "source_sentence": "bhāgī vā bhagavā catunnaṁ satipaṭṭhānānaṁ catunnaṁ sammappadhānānaṁ catunnaṁ iddhipādānaṁ pañcannaṁ indriyānaṁ pañcannaṁ balānaṁ sattannaṁ bojjhaṅgānaṁ ariyassa aṭṭhaṅgikassa maggassāti bhagavā,",
+        "translation": "The Buddha has the four kinds of mindfulness meditation. ...",
+        "source": "mnd13:157.18_0"
+    },
+    {
+        "source_sentence": "bhāgī vā bhagavā dasannaṁ tathāgatabalānaṁ catunnaṁ vesārajjānaṁ catunnaṁ paṭisambhidānaṁ channaṁ abhiññānaṁ channaṁ buddhadhammānanti bhagavā,",
+        "translation": "The Buddhas of ten enlightenments, in accordance with the four discovers, the Buddhas, the very well-known know,",
+        "source": "mnd13:157.19_0"
+    },
+    {
+        "source_sentence": "bhagavāti netaṁ nāmaṁ mātarā kataṁ na pitarā kataṁ na bhātarā kataṁ na bhaginiyā kataṁ na mittāmaccehi kataṁ na ñātisālohitehi kataṁ na samaṇabrāhmaṇehi kataṁ na devatāhi kataṁ;",
+        "translation": "That Buddha wasn’t done by his mother, father, brother, or sister. It wasn’t done by friends and colleagues, by relatives and kin, by ascetics and brahmins, or by the deities.",
+        "source": "mnd13:157.20_0"
+    },
+    {
+        "source_sentence": "vimokkhantikametaṁ buddhānaṁ bhagavantānaṁ bodhiyā mūle saha sabbaññutaññāṇassa paṭilābhā sacchikā paññatti yadidaṁ bhagavāti—",
+        "translation": "It is impossible for the Buddhas to realize the root of the awakening factors that the Buddhas awakened for themselves—the omniscient knowledge of the truth, the Buddhas is considered:",
+        "source": "mnd13:157.21_0"
+    },
+    {
+        "source_sentence": "na kappiyo nūparato na patthiyo iti bhagavā.",
+        "translation": "the Fortunate One has attained a allowable bowl,",
+        "source": "mnd13:157.22_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "mnd13:158.1_0"
+    },
+    {
+        "source_sentence": "“Sa sabbadhammesu visenibhūto,",
+        "translation": "“Someone who is devoted to all things, who is mastered",
+        "source": "mnd13:159.1_0"
+    },
+    {
+        "source_sentence": "Yaṁ kiñci diṭṭhaṁ va sutaṁ mutaṁ vā;",
+        "translation": "Such a one does not take anything",
+        "source": "mnd13:159.2_0"
+    },
+    {
+        "source_sentence": "Sa pannabhāro muni vippamutto,",
+        "translation": "With speech like the sage, he is free from oppression.",
+        "source": "mnd13:159.3_0"
+    },
+    {
+        "source_sentence": "Na kappiyo nūparato na patthiyo”.",
+        "translation": "not socializing, nor is there a like an aeon.”",
+        "source": "mnd13:159.4_0"
+    },
+    {
+        "source_sentence": "(Iti bhagavāti.)",
+        "translation": "said the Buddha,",
+        "source": "mnd13:159.5_0"
+    },
+    {
+        "source_sentence": "Mahābyūhasuttaniddeso terasamo.",
+        "translation": "The Longer Discourse on Showns",
+        "source": "mnd13:160.1_0"
+    }
+]

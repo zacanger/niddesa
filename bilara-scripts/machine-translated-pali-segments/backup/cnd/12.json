@@ -1,0 +1,997 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd12:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavagganiddesa",
+        "translation": "Pārāyanavagganiddesa",
+        "source": "cnd12:0.2_0"
+    },
+    {
+        "source_sentence": "Pucchāniddesa",
+        "translation": "Pucchāniddesa",
+        "source": "cnd12:0.3_0"
+    },
+    {
+        "source_sentence": "8. Hemakamāṇavapucchāniddesa",
+        "translation": "8. Hemakamāṇavapucchāniddesa",
+        "source": "cnd12:0.4_0"
+    },
+    {
+        "source_sentence": "**Ye me pubbe viyākaṁsu,**",
+        "translation": "Those who explained (things) to me in the past,",
+        "source": "cnd12:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā hemako)",
+        "translation": "ʻNo doubt is so, venerable.",
+        "source": "cnd12:1.2_0"
+    },
+    {
+        "source_sentence": "**Huraṁ gotamasāsanā;**",
+        "translation": "Gotama’s intention.",
+        "source": "cnd12:1.3_0"
+    },
+    {
+        "source_sentence": "**Iccāsi iti bhavissati,**",
+        "translation": "there will be for one like that,",
+        "source": "cnd12:1.4_0"
+    },
+    {
+        "source_sentence": "**Sabbaṁ taṁ itihītihaṁ;**",
+        "translation": "it is all that was just hearing.",
+        "source": "cnd12:1.5_0"
+    },
+    {
+        "source_sentence": "**Sabbaṁ taṁ takkavaḍḍhanaṁ,**",
+        "translation": "all that just increased my thoughts.",
+        "source": "cnd12:1.6_0"
+    },
+    {
+        "source_sentence": "**Nāhaṁ tattha abhiramiṁ. **",
+        "translation": "I didn’t delight there.",
+        "source": "cnd12:1.7_0"
+    },
+    {
+        "source_sentence": "**Ye me pubbe viyākaṁsū**ti yo ca bāvarī brāhmaṇo ye caññe tassa ācariyā, te sakaṁ diṭṭhiṁ sakaṁ khantiṁ sakaṁ ruciṁ sakaṁ laddhiṁ sakaṁ ajjhāsayaṁ sakaṁ adhippāyaṁ byākaṁsu ācikkhiṁsu desayiṁsu paññapiṁsu paṭṭhapiṁsu vivariṁsu vibhajiṁsu uttānīakaṁsu pakāsesunti—",
+        "translation": "Those who explained (things) to me. They explained the same kind of teachers, and others asserted their own teachers.",
+        "source": "cnd12:2.1_0"
+    },
+    {
+        "source_sentence": "ye me pubbe viyākaṁsu.",
+        "translation": "Those who explained (things) to me in the past,",
+        "source": "cnd12:2.2_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā hemako**ti.",
+        "translation": "ʻVenerable, so long as he likes.’",
+        "source": "cnd12:2.3_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi …pe… padānupubbatāpetaṁ—",
+        "translation": "wishes ...",
+        "source": "cnd12:2.4_0"
+    },
+    {
+        "source_sentence": "iccāti.",
+        "translation": "Liberation:",
+        "source": "cnd12:2.5_0"
+    },
+    {
+        "source_sentence": "**Āyasmā**ti piyavacanaṁ …pe….",
+        "translation": "Venerable Piyaka ...",
+        "source": "cnd12:2.6_0"
+    },
+    {
+        "source_sentence": "**Hemako**ti tassa brāhmaṇassa nāmaṁ …pe… abhilāpoti—",
+        "translation": "His name is the same thing.",
+        "source": "cnd12:2.7_0"
+    },
+    {
+        "source_sentence": "iccāyasmā hemako.",
+        "translation": "ʻNo doubt is so, venerable.",
+        "source": "cnd12:2.8_0"
+    },
+    {
+        "source_sentence": "**Huraṁ gotamasāsanā**ti huraṁ gotamasāsanā paraṁ gotamasāsanā pure gotamasāsanā paṭhamataraṁ gotamasāsanā buddhasāsanā jinasāsanā tathāgatasāsanā arahantasāsanāti—",
+        "translation": "The Buddha’s dispensation, the teaching, and the Saṅgha, the practice that leads to peace.",
+        "source": "cnd12:3.1_0"
+    },
+    {
+        "source_sentence": "huraṁ gotamasāsanā.",
+        "translation": "Gotama’s intention.",
+        "source": "cnd12:3.2_0"
+    },
+    {
+        "source_sentence": "**Iccāsi iti bhavissatī**ti evaṁ kira āsi, evaṁ kira bhavissatīti—",
+        "translation": "thinking it seems that there will be such a thing!’",
+        "source": "cnd12:4.1_0"
+    },
+    {
+        "source_sentence": "iccāsi iti bhavissati.",
+        "translation": "there will be for one like that,",
+        "source": "cnd12:4.2_0"
+    },
+    {
+        "source_sentence": "**Sabbaṁ taṁ itihītihan**ti sabbaṁ taṁ itihītihaṁ itikirāya paraṁparāya piṭakasampadāya takkahetu nayahetu ākāraparivitakkena diṭṭhinijjhānakkhantiyā na sāmaṁ sayamabhiññātaṁ na attapaccakkhadhammaṁ kathayiṁsūti—",
+        "translation": "So it is all that is inferior. Love to that which is definitively, and I don’t go by lineage of testament, contemplation, or acceptance of hymns, or acceptance of a view after consideration.",
+        "source": "cnd12:5.1_0"
+    },
+    {
+        "source_sentence": "sabbaṁ taṁ itihītihaṁ.",
+        "translation": "it is all that was just hearing.",
+        "source": "cnd12:5.2_0"
+    },
+    {
+        "source_sentence": "**Sabbaṁ taṁ takkavaḍḍhanan**ti sabbaṁ taṁ takkavaḍḍhanaṁ vitakkavaḍḍhanaṁ saṅkappavaḍḍhanaṁ kāmavitakkavaḍḍhanaṁ byāpādavitakkavaḍḍhanaṁ vihiṁsāvitakkavaḍḍhanaṁ ñātivitakkavaḍḍhanaṁ janapadavitakkavaḍḍhanaṁ amarāvitakkavaḍḍhanaṁ parānudayatāpaṭisaṁyuttavitakkavaḍḍhanaṁ lābhasakkārasilokapaṭisaṁyuttavitakkavaḍḍhanaṁ anavaññattipaṭisaṁyuttavitakkavaḍḍhananti—",
+        "translation": "all that just increased by thoughts, and by the neck, namely, thoughts of renunciation, ill will, male and female bondservants, workers, and staff; and forces and forces. Grows wards downwards downwards and forces, wears strikes, and halfs.",
+        "source": "cnd12:6.1_0"
+    },
+    {
+        "source_sentence": "sabbaṁ taṁ takkavaḍḍhanaṁ.",
+        "translation": "all that just increased my thoughts.",
+        "source": "cnd12:6.2_0"
+    },
+    {
+        "source_sentence": "**Nāhaṁ tattha abhiramin**ti nāhaṁ tattha abhiramiṁ na vindiṁ nādhigacchiṁ na paṭilabhinti—",
+        "translation": "There I didn’t enjoy it here, and I don’t enjoy it.",
+        "source": "cnd12:7.1_0"
+    },
+    {
+        "source_sentence": "nāhaṁ tattha abhiramiṁ.",
+        "translation": "I didn’t delight there.",
+        "source": "cnd12:7.2_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "The brahmin then thought,",
+        "source": "cnd12:7.3_0"
+    },
+    {
+        "source_sentence": "“Ye me pubbe viyākaṁsu,",
+        "translation": "“Those who explained (things) to me in the past,",
+        "source": "cnd12:8.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā hemako)",
+        "translation": "ʻNo doubt is so, venerable.",
+        "source": "cnd12:8.2_0"
+    },
+    {
+        "source_sentence": "Huraṁ gotamasāsanā;",
+        "translation": "Gotama’s intention.",
+        "source": "cnd12:8.3_0"
+    },
+    {
+        "source_sentence": "Iccāsi iti bhavissati,",
+        "translation": "there will be for one like that,",
+        "source": "cnd12:8.4_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ taṁ itihītihaṁ;",
+        "translation": "it is all that was just hearing.",
+        "source": "cnd12:8.5_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ taṁ takkavaḍḍhanaṁ,",
+        "translation": "all that just increased my thoughts.",
+        "source": "cnd12:8.6_0"
+    },
+    {
+        "source_sentence": "Nāhaṁ tattha abhiramin”ti.",
+        "translation": "I don’t enjoy it here.”",
+        "source": "cnd12:8.7_0"
+    },
+    {
+        "source_sentence": "**Tvañca me dhammamakkhāhi,**",
+        "translation": "You must explain the Teaching to me,",
+        "source": "cnd12:9.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhānigghātanaṁ muni;**",
+        "translation": "the sage gone to the end of craving,",
+        "source": "cnd12:9.2_0"
+    },
+    {
+        "source_sentence": "**Yaṁ viditvā sato caraṁ,**",
+        "translation": "When a person understands the mindful and",
+        "source": "cnd12:9.3_0"
+    },
+    {
+        "source_sentence": "**Tare loke visattikaṁ. **",
+        "translation": "doesn’t cling to the world,",
+        "source": "cnd12:9.4_0"
+    },
+    {
+        "source_sentence": "**Tvañca me dhammamakkhāhī**ti.",
+        "translation": "You must explain the Teaching to me,",
+        "source": "cnd12:10.1_0"
+    },
+    {
+        "source_sentence": "**Tvan**ti bhagavantaṁ bhaṇati.",
+        "translation": "The Buddha is going to the charnel ground,",
+        "source": "cnd12:10.2_0"
+    },
+    {
+        "source_sentence": "**Dhammamakkhāhī**ti.",
+        "translation": "Remember the Teaching,",
+        "source": "cnd12:10.3_0"
+    },
+    {
+        "source_sentence": "**Dhamman**ti ādikalyāṇaṁ majjhekalyāṇaṁ pariyosānakalyāṇaṁ sātthaṁ sabyañjanaṁ kevalaparipuṇṇaṁ parisuddhaṁ brahmacariyaṁ, cattāro satipaṭṭhāne cattāro sammappadhāne cattāro iddhipāde pañcindriyāni pañca balāni satta bojjhaṅge ariyaṁ aṭṭhaṅgikaṁ maggaṁ nibbānañca nibbānagāminiñca paṭipadaṁ akkhāhi ācikkhāhi desehi paññapehi paṭṭhapehi vivarāhi vibhajāhi uttānīkarohi pakāsehīti—",
+        "translation": "These teachings are good in the beginning, good in the middle, and good in the end, meaningful and well-phrased, describing a spiritual practice that’s entirely full and pure. They are very learned in such teachings, remembering them, reinforcing them by recitation, mentally scrutinizing them, and comprehending theoretically.",
+        "source": "cnd12:10.4_0"
+    },
+    {
+        "source_sentence": "tvañca me dhammamakkhāhi.",
+        "translation": "You must explain the Teaching to me,",
+        "source": "cnd12:10.5_0"
+    },
+    {
+        "source_sentence": "**Taṇhānigghātanaṁ munī**ti.",
+        "translation": "the sage gone beyond craving,",
+        "source": "cnd12:11.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti—",
+        "translation": "Craving is a craving:",
+        "source": "cnd12:11.2_0"
+    },
+    {
+        "source_sentence": "rūpataṇhā …pe… dhammataṇhā.",
+        "translation": "craving for sights ...",
+        "source": "cnd12:11.3_0"
+    },
+    {
+        "source_sentence": "Taṇhānigghātanaṁ taṇhāpahānaṁ taṇhāvūpasamaṁ taṇhāpaṭinissaggaṁ taṇhāpaṭippassaddhiṁ amataṁ nibbānaṁ.",
+        "translation": "the stilling of craving, the stilling of craving, the letting go of craving, the ending of craving, extinguishment.",
+        "source": "cnd12:11.4_0"
+    },
+    {
+        "source_sentence": "**Munī**ti monaṁ vuccati ñāṇaṁ …pe… saṅgajālamaticca so munīti—",
+        "translation": "the renown is said to be the knowledge of the ending of confusion.",
+        "source": "cnd12:11.5_0"
+    },
+    {
+        "source_sentence": "taṇhānigghātanaṁ muni.",
+        "translation": "the sage gone to the end of craving,",
+        "source": "cnd12:11.6_0"
+    },
+    {
+        "source_sentence": "**Yaṁ viditvā sato caran**ti yaṁ viditaṁ katvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "When he knew the sentient beings, having understood the Human of the Snake, and saved, he gave (the money).",
+        "source": "cnd12:12.1_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā aniccā”ti viditaṁ katvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā,",
+        "translation": "After saying: “Perhaps intentionally,” and having destroyed (these) conditions, he developed insight, and destroyed (saying):",
+        "source": "cnd12:12.2_0"
+    },
+    {
+        "source_sentence": "“sabbe saṅkhārā dukkhā”ti …pe…",
+        "translation": "All conditions are suffering ...",
+        "source": "cnd12:12.3_0"
+    },
+    {
+        "source_sentence": "“sabbe dhammā anattā”ti …pe…",
+        "translation": "all things are not-self ...",
+        "source": "cnd12:12.4_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti viditaṁ katvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "“Anything that has a beginning has an end.” Then he developed insight in the way that Dhamma, having done away with him, he developed insight, and attained the way,",
+        "source": "cnd12:12.5_0"
+    },
+    {
+        "source_sentence": "**Sato**ti catūhi kāraṇehi sato—",
+        "translation": "Someone with four reasons:",
+        "source": "cnd12:12.6_0"
+    },
+    {
+        "source_sentence": "kāye kāyānupassanāsatipaṭṭhānaṁ bhāvento sato …pe…",
+        "translation": "Mindfulness of the body ...",
+        "source": "cnd12:12.7_0"
+    },
+    {
+        "source_sentence": "so vuccati sato.",
+        "translation": "is said to be mindful.",
+        "source": "cnd12:12.8_0"
+    },
+    {
+        "source_sentence": "**Caran**ti caranto viharanto iriyanto vattento pālento yapento yāpentoti—",
+        "translation": "Living in, they conducting themselves well and lives having during the noble ones.",
+        "source": "cnd12:12.9_0"
+    },
+    {
+        "source_sentence": "yaṁ viditvā sato caraṁ.",
+        "translation": "When they understand the mindful and the mindful,",
+        "source": "cnd12:12.10_0"
+    },
+    {
+        "source_sentence": "**Tare loke visattikan**ti visattikā vuccati taṇhā.",
+        "translation": "The in the world, making known, is what is called craving.",
+        "source": "cnd12:13.1_0"
+    },
+    {
+        "source_sentence": "Yo rāgo sārāgo …pe… abhijjhā lobho akusalamūlaṁ.",
+        "translation": "Greed is a root of greed ...",
+        "source": "cnd12:13.2_0"
+    },
+    {
+        "source_sentence": "**Visattikā**ti kenaṭṭhena visattikā …pe… visaṭā vitthatāti visattikā.",
+        "translation": "While she stands by herself, the sheet blocks off, the snapped on the head, the poison, the ropes, the functions, and the clauses.",
+        "source": "cnd12:13.3_0"
+    },
+    {
+        "source_sentence": "**Loke**ti apāyaloke manussaloke devaloke khandhaloke dhātuloke āyatanaloke.",
+        "translation": "in the world of the gods, expert in the world of the gods,",
+        "source": "cnd12:13.4_0"
+    },
+    {
+        "source_sentence": "**Tare loke visattikan**ti loke vesā visattikā loke vetaṁ visattikaṁ sato tareyyaṁ uttareyyaṁ patareyyaṁ samatikkameyyaṁ vītivatteyyanti—",
+        "translation": "Transmigrating for the world, enemying, and transmigration, transmigrating, may I have crossed over the world!",
+        "source": "cnd12:13.5_0"
+    },
+    {
+        "source_sentence": "tare loke visattikaṁ.",
+        "translation": "doesn’t cling to the world,",
+        "source": "cnd12:13.6_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "The brahmin then thought,",
+        "source": "cnd12:13.7_0"
+    },
+    {
+        "source_sentence": "“Tvañca me dhammamakkhāhi,",
+        "translation": "“You should explain the Teaching to me,",
+        "source": "cnd12:14.1_0"
+    },
+    {
+        "source_sentence": "taṇhānigghātanaṁ muni;",
+        "translation": "the sage gone to the end of craving,",
+        "source": "cnd12:14.2_0"
+    },
+    {
+        "source_sentence": "Yaṁ viditvā sato caraṁ,",
+        "translation": "When they understand the mindful and the mindful,",
+        "source": "cnd12:14.3_0"
+    },
+    {
+        "source_sentence": "tare loke visattikan”ti.",
+        "translation": "they’re crossed over clinging to the world.”",
+        "source": "cnd12:14.4_0"
+    },
+    {
+        "source_sentence": "**Idha diṭṭhasutamutaviññātesu,**",
+        "translation": "in regard to things that are seen, heard, sensed, or cognized,",
+        "source": "cnd12:15.1_0"
+    },
+    {
+        "source_sentence": "**Piyarūpesu hemaka;**",
+        "translation": "Embowls",
+        "source": "cnd12:15.2_0"
+    },
+    {
+        "source_sentence": "**Chandarāgavinodanaṁ,**",
+        "translation": "that gets rid of desire and greed.",
+        "source": "cnd12:15.3_0"
+    },
+    {
+        "source_sentence": "**Nibbānapadamaccutaṁ. **",
+        "translation": "the unsurpassed Dhamma.",
+        "source": "cnd12:15.4_0"
+    },
+    {
+        "source_sentence": "**Idha diṭṭhasutamutaviññātesū**ti.",
+        "translation": "in what is seen, heard, thought, and known:",
+        "source": "cnd12:16.1_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhan**ti cakkhunā diṭṭhaṁ;",
+        "translation": "seen with the eye.",
+        "source": "cnd12:16.2_0"
+    },
+    {
+        "source_sentence": "**sutan**ti sotena sutaṁ;",
+        "translation": "They heard the ear",
+        "source": "cnd12:16.3_0"
+    },
+    {
+        "source_sentence": "**mutan**ti ghānena ghāyitaṁ jivhāya sāyitaṁ kāyena phuṭṭhaṁ;",
+        "translation": "smelled with the nose, tasted with the tongue, touched with the body.",
+        "source": "cnd12:16.4_0"
+    },
+    {
+        "source_sentence": "**viññātan**ti manasā viññātanti—",
+        "translation": "Knowing this,",
+        "source": "cnd12:16.5_0"
+    },
+    {
+        "source_sentence": "idha diṭṭhasutamutaviññātesu.",
+        "translation": "in regard to things that are seen, heard, sensed, or cognized,",
+        "source": "cnd12:16.6_0"
+    },
+    {
+        "source_sentence": "**Piyarūpesu hemakā**ti kiñca loke piyarūpaṁ sātarūpaṁ?",
+        "translation": "In the world seems nice and pleasant, what is likeable and pleasing?",
+        "source": "cnd12:17.1_0"
+    },
+    {
+        "source_sentence": "Cakkhu loke piyarūpaṁ sātarūpaṁ, sotaṁ loke …pe…",
+        "translation": "In the world eye is likeable and pleasing -",
+        "source": "cnd12:17.2_0"
+    },
+    {
+        "source_sentence": "ghānaṁ loke …",
+        "translation": "The nose ...",
+        "source": "cnd12:17.2_1"
+    },
+    {
+        "source_sentence": "jivhā loke …",
+        "translation": "The ear ... nose ... tongue ... body ...",
+        "source": "cnd12:17.2_2"
+    },
+    {
+        "source_sentence": "kāyo loke …",
+        "translation": "body ...",
+        "source": "cnd12:17.2_3"
+    },
+    {
+        "source_sentence": "mano loke piyarūpaṁ sātarūpaṁ;",
+        "translation": "In the world the mind is likeable and pleasing -",
+        "source": "cnd12:17.2_4"
+    },
+    {
+        "source_sentence": "rūpā loke piyarūpaṁ sātarūpaṁ, saddā loke …",
+        "translation": "In the world sights ...",
+        "source": "cnd12:17.3_0"
+    },
+    {
+        "source_sentence": "gandhā loke …",
+        "translation": "smells ...",
+        "source": "cnd12:17.3_1"
+    },
+    {
+        "source_sentence": "rasā loke …",
+        "translation": "In the world tastes ...",
+        "source": "cnd12:17.3_2"
+    },
+    {
+        "source_sentence": "phoṭṭhabbā loke …",
+        "translation": "In the world touches ...",
+        "source": "cnd12:17.3_3"
+    },
+    {
+        "source_sentence": "dhammā loke piyarūpaṁ sātarūpaṁ;",
+        "translation": "In the world thoughts are likeable and pleasing -",
+        "source": "cnd12:17.3_4"
+    },
+    {
+        "source_sentence": "cakkhuviññāṇaṁ loke piyarūpaṁ sātarūpaṁ, sotaviññāṇaṁ loke piyarūpaṁ sātarūpaṁ, ghānaviññāṇaṁ loke …",
+        "translation": "In the world eye consciousness is likeable and pleasing -",
+        "source": "cnd12:17.4_0"
+    },
+    {
+        "source_sentence": "jivhāviññāṇaṁ loke …",
+        "translation": "tongue consciousness ...",
+        "source": "cnd12:17.4_1"
+    },
+    {
+        "source_sentence": "kāyaviññāṇaṁ loke …",
+        "translation": "body consciousness ...",
+        "source": "cnd12:17.4_2"
+    },
+    {
+        "source_sentence": "manoviññāṇaṁ loke piyarūpaṁ sātarūpaṁ, cakkhusamphasso loke …",
+        "translation": "mind consciousness ...",
+        "source": "cnd12:17.4_3"
+    },
+    {
+        "source_sentence": "sotasamphasso loke …",
+        "translation": "ear contact ...",
+        "source": "cnd12:17.4_4"
+    },
+    {
+        "source_sentence": "ghānasamphasso loke …",
+        "translation": "nose contact ...",
+        "source": "cnd12:17.4_5"
+    },
+    {
+        "source_sentence": "jivhāsamphasso loke …",
+        "translation": "tongue contact ...",
+        "source": "cnd12:17.4_6"
+    },
+    {
+        "source_sentence": "kāyasamphasso loke …",
+        "translation": "body contact ...",
+        "source": "cnd12:17.4_7"
+    },
+    {
+        "source_sentence": "manosamphasso loke piyarūpaṁ sātarūpaṁ;",
+        "translation": "In the world mind-contact is likeable and pleasing -",
+        "source": "cnd12:17.4_8"
+    },
+    {
+        "source_sentence": "cakkhusamphassajā vedanā loke piyarūpaṁ sātarūpaṁ …",
+        "translation": "feeling born of eye contact ...",
+        "source": "cnd12:17.5_0"
+    },
+    {
+        "source_sentence": "sotasamphassajā vedanā …",
+        "translation": "feeling born of ear contact ...",
+        "source": "cnd12:17.5_1"
+    },
+    {
+        "source_sentence": "ghānasamphassajā vedanā …",
+        "translation": "feeling born of nose contact ...",
+        "source": "cnd12:17.5_2"
+    },
+    {
+        "source_sentence": "jivhāsamphassajā vedanā …",
+        "translation": "feeling born of tongue contact ...",
+        "source": "cnd12:17.5_3"
+    },
+    {
+        "source_sentence": "kāyasamphassajā vedanā …",
+        "translation": "feeling born of body contact ...",
+        "source": "cnd12:17.5_4"
+    },
+    {
+        "source_sentence": "manosamphassajā vedanā loke piyarūpaṁ sātarūpaṁ;",
+        "translation": "In the world feeling born of mind-contact is likeable and pleasing -",
+        "source": "cnd12:17.5_5"
+    },
+    {
+        "source_sentence": "rūpasaññā loke …",
+        "translation": "Perception of sights ...",
+        "source": "cnd12:17.6_0"
+    },
+    {
+        "source_sentence": "saddasaññā loke …",
+        "translation": "perception of sounds ...",
+        "source": "cnd12:17.6_1"
+    },
+    {
+        "source_sentence": "gandhasaññā loke …",
+        "translation": "perception of smells ...",
+        "source": "cnd12:17.6_2"
+    },
+    {
+        "source_sentence": "rasasaññā loke …",
+        "translation": "perception of tastes ...",
+        "source": "cnd12:17.6_3"
+    },
+    {
+        "source_sentence": "phoṭṭhabbasaññā loke …",
+        "translation": "perception of touches ...",
+        "source": "cnd12:17.6_4"
+    },
+    {
+        "source_sentence": "dhammasaññā loke piyarūpaṁ sātarūpaṁ, rūpasañcetanā loke …",
+        "translation": "perception of thoughts ...",
+        "source": "cnd12:17.6_5"
+    },
+    {
+        "source_sentence": "saddasañcetanā loke …",
+        "translation": "intention regarding sounds ...",
+        "source": "cnd12:17.6_6"
+    },
+    {
+        "source_sentence": "gandhasañcetanā loke …",
+        "translation": "intention regarding smells ...",
+        "source": "cnd12:17.6_7"
+    },
+    {
+        "source_sentence": "rasasañcetanā loke …",
+        "translation": "intention regarding tastes ...",
+        "source": "cnd12:17.6_8"
+    },
+    {
+        "source_sentence": "phoṭṭhabbasañcetanā loke …",
+        "translation": "intention regarding touches ...",
+        "source": "cnd12:17.6_9"
+    },
+    {
+        "source_sentence": "dhammasañcetanā loke piyarūpaṁ sātarūpaṁ;",
+        "translation": "In the world intention in regard to thoughts is likeable and pleasing -",
+        "source": "cnd12:17.6_10"
+    },
+    {
+        "source_sentence": "rūpataṇhā loke …",
+        "translation": "craving for sights ...",
+        "source": "cnd12:17.7_0"
+    },
+    {
+        "source_sentence": "saddataṇhā loke …",
+        "translation": "craving for sounds ...",
+        "source": "cnd12:17.7_1"
+    },
+    {
+        "source_sentence": "gandhataṇhā loke …",
+        "translation": "craving for smells ...",
+        "source": "cnd12:17.7_2"
+    },
+    {
+        "source_sentence": "rasataṇhā loke …",
+        "translation": "craving for tastes ...",
+        "source": "cnd12:17.7_3"
+    },
+    {
+        "source_sentence": "phoṭṭhabbataṇhā loke …",
+        "translation": "craving for touches ...",
+        "source": "cnd12:17.7_4"
+    },
+    {
+        "source_sentence": "dhammataṇhā loke piyarūpaṁ sātarūpaṁ;",
+        "translation": "In the world craving for thoughts is likeable and pleasing -",
+        "source": "cnd12:17.7_5"
+    },
+    {
+        "source_sentence": "rūpavitakko loke …",
+        "translation": "Thoughts about sights ...",
+        "source": "cnd12:17.8_0"
+    },
+    {
+        "source_sentence": "saddavitakko loke …",
+        "translation": "thoughts about sounds ...",
+        "source": "cnd12:17.8_1"
+    },
+    {
+        "source_sentence": "gandhavitakko loke …",
+        "translation": "thoughts about smells ...",
+        "source": "cnd12:17.8_2"
+    },
+    {
+        "source_sentence": "rasavitakko loke …",
+        "translation": "thoughts about tastes ...",
+        "source": "cnd12:17.8_3"
+    },
+    {
+        "source_sentence": "phoṭṭhabbavitakko loke …",
+        "translation": "thoughts about touches ...",
+        "source": "cnd12:17.8_4"
+    },
+    {
+        "source_sentence": "dhammavitakko loke piyarūpaṁ sātarūpaṁ;",
+        "translation": "In the world thinking about thoughts is likeable and pleasing -",
+        "source": "cnd12:17.8_5"
+    },
+    {
+        "source_sentence": "rūpavicāro loke piyarūpaṁ sātarūpaṁ, saddavicāro loke …",
+        "translation": "Considerations regarding sights ...",
+        "source": "cnd12:17.9_0"
+    },
+    {
+        "source_sentence": "gandhavicāro loke …",
+        "translation": "considerations regarding smells ...",
+        "source": "cnd12:17.9_1"
+    },
+    {
+        "source_sentence": "rasavicāro loke …",
+        "translation": "considerations regarding tastes ...",
+        "source": "cnd12:17.9_2"
+    },
+    {
+        "source_sentence": "phoṭṭhabbavicāro loke …",
+        "translation": "considerations regarding touches ...",
+        "source": "cnd12:17.9_3"
+    },
+    {
+        "source_sentence": "dhammavicāro loke piyarūpaṁ sātarūpanti—",
+        "translation": "considerations regarding thoughts in the world seems nice and pleasant.",
+        "source": "cnd12:17.9_4"
+    },
+    {
+        "source_sentence": "piyarūpesu hemaka.",
+        "translation": "Embowls",
+        "source": "cnd12:17.10_0"
+    },
+    {
+        "source_sentence": "**Chandarāgavinodanan**ti.",
+        "translation": "removing desire and greed for things:",
+        "source": "cnd12:18.1_0"
+    },
+    {
+        "source_sentence": "**Chandarāgo**ti yo kāmesu kāmacchando kāmarāgo kāmanandī kāmataṇhā kāmasineho kāmapariḷāho kāmamucchā kāmajjhosānaṁ kāmogho kāmayogo kāmupādānaṁ kāmacchandanīvaraṇaṁ.",
+        "translation": "Desire for sensual pleasures, desire for sensual pleasures, greed, relishing, and craving for sensual pleasures.",
+        "source": "cnd12:18.2_0"
+    },
+    {
+        "source_sentence": "**Chandarāgavinodanan**ti chandarāgappahānaṁ chandarāgavūpasamaṁ chandarāgapaṭinissaggaṁ chandarāgapaṭippassaddhaṁ amataṁ nibbānanti—",
+        "translation": "Removing and giving up desire and greed for things that give up desire and greed for them, letting go of greed and relishing and greed for extinguishment.",
+        "source": "cnd12:18.3_0"
+    },
+    {
+        "source_sentence": "chandarāgavinodanaṁ.",
+        "translation": "that gets rid of desire and greed.",
+        "source": "cnd12:18.4_0"
+    },
+    {
+        "source_sentence": "**Nibbānapadamaccutan**ti nibbānapadaṁ tāṇapadaṁ leṇapadaṁ saraṇapadaṁ abhayapadaṁ.",
+        "translation": "attaining the state of quenching, the state of quenching, the quenching of quenching.",
+        "source": "cnd12:19.1_0"
+    },
+    {
+        "source_sentence": "**Accutan**ti niccaṁ dhuvaṁ sassataṁ avipariṇāmadhammanti—",
+        "translation": "permanent, everlasting, eternal, and imperishable.",
+        "source": "cnd12:19.2_0"
+    },
+    {
+        "source_sentence": "nibbānapadamaccutaṁ.",
+        "translation": "the unsurpassed Dhamma.",
+        "source": "cnd12:19.3_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd12:19.4_0"
+    },
+    {
+        "source_sentence": "“Idha diṭṭhasutamutaviññātesu,",
+        "translation": "“In regard to this seen, heard, sensed, or cognized,",
+        "source": "cnd12:20.1_0"
+    },
+    {
+        "source_sentence": "Piyarūpesu hemaka;",
+        "translation": "Embowls",
+        "source": "cnd12:20.2_0"
+    },
+    {
+        "source_sentence": "Chandarāgavinodanaṁ,",
+        "translation": "that gets rid of desire and greed.",
+        "source": "cnd12:20.3_0"
+    },
+    {
+        "source_sentence": "Nibbānapadamaccutan”ti.",
+        "translation": "extinguishment is undeveloped.”",
+        "source": "cnd12:20.4_0"
+    },
+    {
+        "source_sentence": "**Etadaññāya ye satā,**",
+        "translation": "Knowing this, those who are mindful,",
+        "source": "cnd12:21.1_0"
+    },
+    {
+        "source_sentence": "**diṭṭhadhammābhinibbutā;**",
+        "translation": "extinguished in this very life.",
+        "source": "cnd12:21.2_0"
+    },
+    {
+        "source_sentence": "**Upasantā ca te sadā,**",
+        "translation": "you always live always peaceful.",
+        "source": "cnd12:21.3_0"
+    },
+    {
+        "source_sentence": "**tiṇṇā loke visattikaṁ. **",
+        "translation": "has crossed over the world,",
+        "source": "cnd12:21.4_0"
+    },
+    {
+        "source_sentence": "**Etadaññāya ye satā**ti.",
+        "translation": "Knowing this, those who are mindful:",
+        "source": "cnd12:22.1_0"
+    },
+    {
+        "source_sentence": "**Etan**ti amataṁ nibbānaṁ.",
+        "translation": "is the deathless extinguishment",
+        "source": "cnd12:22.2_0"
+    },
+    {
+        "source_sentence": "Yo so sabbasaṅkhārasamatho sabbūpadhipaṭinissaggo taṇhakkhayo virāgo nirodho nibbānaṁ.",
+        "translation": "That which is the stilling of all activities, the letting go of all attachments, the ending of craving, fading away, cessation, extinguishment.’",
+        "source": "cnd12:22.3_0"
+    },
+    {
+        "source_sentence": "**Aññāyā**ti aññāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "knowing he was knowing (them), and having given the transgress, he gave birth (them).",
+        "source": "cnd12:22.4_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā aniccā”ti aññāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "After considering “(there are) conditions,” and he knowing (the nature of) conditions, he celebrated having annoyed the life of him,, and having developed insight, he developed (them).",
+        "source": "cnd12:22.5_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā dukkhā”ti …",
+        "translation": "‘All conditions are suffering.’ ...",
+        "source": "cnd12:22.6_0"
+    },
+    {
+        "source_sentence": "“sabbe dhammā anattā”ti …pe…",
+        "translation": "all things are not-self ...",
+        "source": "cnd12:22.7_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti aññāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "“Anything that has a beginning has an end,” he clearly experienced all that which is liable to originate, in accordance with the Dhamma, and having developed it.",
+        "source": "cnd12:22.8_0"
+    },
+    {
+        "source_sentence": "**Ye**ti arahanto khīṇāsavā.",
+        "translation": "Those who are perfected ones with defilements ended—",
+        "source": "cnd12:22.9_0"
+    },
+    {
+        "source_sentence": "**Satā**ti catūhi kāraṇehi satā—",
+        "translation": "Sattuka for four reasons:",
+        "source": "cnd12:22.10_0"
+    },
+    {
+        "source_sentence": "kāye kāyānupassanāsatipaṭṭhānaṁ bhāvitattā satā …pe…",
+        "translation": "Mindfulness of the body ...",
+        "source": "cnd12:22.11_0"
+    },
+    {
+        "source_sentence": "te vuccanti satāti—",
+        "translation": "They are called “a sentient being”.",
+        "source": "cnd12:22.12_0"
+    },
+    {
+        "source_sentence": "etadaññāya ye satā.",
+        "translation": "Knowing this, those who are mindful,",
+        "source": "cnd12:22.13_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhadhammābhinibbutā**ti.",
+        "translation": "extinguished in this very life.",
+        "source": "cnd12:23.1_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhadhammā**ti diṭṭhadhammā ñātadhammā tulitadhammā tīritadhammā vibhūtadhammā vibhāvitadhammā.",
+        "translation": "the Dhamma-knowns in the present life, having related to the present life, without having experienced the Dhamma, because of their initiative nature.",
+        "source": "cnd12:23.2_0"
+    },
+    {
+        "source_sentence": "“Sabbe saṅkhārā aniccā”ti diṭṭhadhammā …pe…",
+        "translation": "All conditions are impermanent ...",
+        "source": "cnd12:23.3_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti diṭṭhadhammā ñātadhammā tulitadhammā tīritadhammā vibhūtadhammā vibhāvitadhammā.",
+        "translation": "“Anything that has a beginning has an end. They understand that all things in the present life, and they are liable to cease.”",
+        "source": "cnd12:23.4_0"
+    },
+    {
+        "source_sentence": "**Abhinibbutā**ti rāgassa nibbāpitattā nibbutā, dosassa nibbāpitattā nibbutā, mohassa nibbāpitattā nibbutā, kodhassa …pe…",
+        "translation": "Being extinguished, they’re extinguished because of being extinguished.",
+        "source": "cnd12:23.5_0"
+    },
+    {
+        "source_sentence": "upanāhassa …",
+        "translation": "hostility ...",
+        "source": "cnd12:23.5_1"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārānaṁ santattā samitattā vūpasamitattā nijjhātattā nibbutattā vigatattā paṭippassaddhattā santā upasantā vūpasantā nibbutā paṭippassaddhāti—",
+        "translation": "With the giving up of all these four corruptions, they are quenched and stilled.",
+        "source": "cnd12:23.5_2"
+    },
+    {
+        "source_sentence": "diṭṭhadhammābhinibbutā.",
+        "translation": "extinguished in this very life.",
+        "source": "cnd12:23.6_0"
+    },
+    {
+        "source_sentence": "**Upasantā ca te sadā**ti.",
+        "translation": "You live always peaceful,",
+        "source": "cnd12:24.1_0"
+    },
+    {
+        "source_sentence": "**Upasantā**ti rāgassa upasamitattā nibbāpitattā upasantā …pe…",
+        "translation": "Being disillusioned, desire fades away and ceased. ...”",
+        "source": "cnd12:24.2_0"
+    },
+    {
+        "source_sentence": "dosassa …",
+        "translation": "hate ...",
+        "source": "cnd12:24.2_1"
+    },
+    {
+        "source_sentence": "mohassa …",
+        "translation": "delusion ...",
+        "source": "cnd12:24.2_2"
+    },
+    {
+        "source_sentence": "kodhassa …",
+        "translation": "anger ...",
+        "source": "cnd12:24.2_3"
+    },
+    {
+        "source_sentence": "upanāhassa …pe…",
+        "translation": "hostility ...",
+        "source": "cnd12:24.2_4"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārānaṁ santattā samitattā vūpasamitattā nijjhātattā nibbutattā vigatattā paṭippassaddhattā santā upasantā vūpasantā nibbutā paṭippassaddhāti upasantā.",
+        "translation": "With the utter ending of all defilements, being reborn, and for the stilling of the settling of conditions.",
+        "source": "cnd12:24.2_5"
+    },
+    {
+        "source_sentence": "**Te**ti arahanto khīṇāsavā.",
+        "translation": "they are perfected ones with defilements ended;",
+        "source": "cnd12:24.3_0"
+    },
+    {
+        "source_sentence": "**Sadā**ti sadā sabbakālaṁ niccakālaṁ dhuvakālaṁ satataṁ samitaṁ abbokiṇṇaṁ poṅkhānupoṅkhaṁ udakūmikajātaṁ avīcisantatisahitaṁ phassitaṁ purebhattaṁ pacchābhattaṁ purimayāmaṁ majjhimayāmaṁ pacchimayāmaṁ kāḷe juṇhe vasse hemante gimhe purime vayokhandhe majjhime vayokhandhe pacchime vayokhandheti—",
+        "translation": "Standing at the time of the centres, all-seeing, with tuberculosis, sweet-voiced, and emerging, one-storaged, whose mind is always meditated on the following day, and whose the middle watchtower stretches the fact of rain falls, in the early to the rainy season, the for the first watch, and for the second rainy season.",
+        "source": "cnd12:24.4_0"
+    },
+    {
+        "source_sentence": "upasantā ca te sadā.",
+        "translation": "you always live always peaceful.",
+        "source": "cnd12:24.5_0"
+    },
+    {
+        "source_sentence": "**Tiṇṇā loke visattikan**ti visattikā vuccati taṇhā.",
+        "translation": "has crossed over the world, the thresholders are called craving.",
+        "source": "cnd12:25.1_0"
+    },
+    {
+        "source_sentence": "Yo rāgo sārāgo …pe… abhijjhā lobho akusalamūlaṁ.",
+        "translation": "Greed is a root of greed ...",
+        "source": "cnd12:25.2_0"
+    },
+    {
+        "source_sentence": "**Visattikā**ti kenaṭṭhena visattikā …pe… visaṭā vitthatāti visattikā.",
+        "translation": "While she stands by herself, the sheet blocks off, the snapped on the head, the poison, the ropes, the functions, and the clauses.",
+        "source": "cnd12:25.3_0"
+    },
+    {
+        "source_sentence": "**Loke**ti apāyaloke …pe… āyatanaloke.",
+        "translation": "in the world looking forward to enjoying the world. ...",
+        "source": "cnd12:25.4_0"
+    },
+    {
+        "source_sentence": "**Tiṇṇā loke visattikan**ti loke vesā visattikā loke vetaṁ visattikaṁ tiṇṇā uttiṇṇā nitthiṇṇā atikkantā samatikkantā vītivattāti—",
+        "translation": "They’ve crossed over clinging to the world. And they’ve crossed over clinging to the world.",
+        "source": "cnd12:25.5_0"
+    },
+    {
+        "source_sentence": "tiṇṇā loke visattikaṁ.",
+        "translation": "has crossed over the world,",
+        "source": "cnd12:25.6_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd12:25.7_0"
+    },
+    {
+        "source_sentence": "“Etadaññāya ye satā,",
+        "translation": "“Those who are mindful, those who are mindful,",
+        "source": "cnd12:26.1_0"
+    },
+    {
+        "source_sentence": "diṭṭhadhammābhinibbutā;",
+        "translation": "extinguished in this very life.",
+        "source": "cnd12:26.2_0"
+    },
+    {
+        "source_sentence": "Upasantā ca te sadā,",
+        "translation": "you always live always peaceful.",
+        "source": "cnd12:26.3_0"
+    },
+    {
+        "source_sentence": "tiṇṇā loke visattikan”ti.",
+        "translation": "has crossed over clinging to the world.”",
+        "source": "cnd12:26.4_0"
+    },
+    {
+        "source_sentence": "Saha gāthāpariyosānā …pe…",
+        "translation": "verses ...",
+        "source": "cnd12:27.1_0"
+    },
+    {
+        "source_sentence": "satthā me, bhante, bhagavā, sāvakohamasmīti.",
+        "translation": "you’re my teacher, I’m your disciple.",
+        "source": "cnd12:27.2_0"
+    },
+    {
+        "source_sentence": "Hemakamāṇavapucchāniddeso aṭṭhamo.",
+        "translation": "The eighth winner questions is the eighth question.",
+        "source": "cnd12:27.3_0"
+    }
+]

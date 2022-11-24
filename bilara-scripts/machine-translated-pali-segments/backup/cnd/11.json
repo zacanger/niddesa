@@ -1,0 +1,1792 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd11:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavagganiddesa",
+        "translation": "Pārāyanavagganiddesa",
+        "source": "cnd11:0.2_0"
+    },
+    {
+        "source_sentence": "Pucchāniddesa",
+        "translation": "Pucchāniddesa",
+        "source": "cnd11:0.3_0"
+    },
+    {
+        "source_sentence": "7. Nandamāṇavapucchāniddesa",
+        "translation": "7. Nandamāṇavapucchāniddesa",
+        "source": "cnd11:0.4_0"
+    },
+    {
+        "source_sentence": "**Santi loke munayo,**",
+        "translation": "There are sages in the world,",
+        "source": "cnd11:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:1.2_0"
+    },
+    {
+        "source_sentence": "**Janā vadanti tayidaṁ kathaṁsu;**",
+        "translation": "that is what people say - how is this so?",
+        "source": "cnd11:1.3_0"
+    },
+    {
+        "source_sentence": "**Ñāṇūpapannaṁ muni no vadanti,**",
+        "translation": "Do they say he is a sage because he has knowledge",
+        "source": "cnd11:1.4_0"
+    },
+    {
+        "source_sentence": "**Udāhu ve jīvitenūpapannaṁ. **",
+        "translation": "Or because of the life he leads?",
+        "source": "cnd11:1.5_0"
+    },
+    {
+        "source_sentence": "**Santi loke munayo**ti.",
+        "translation": "There are sages in the world,",
+        "source": "cnd11:2.1_0"
+    },
+    {
+        "source_sentence": "**Santī**ti santi saṁvijjanti atthi upalabbhanti.",
+        "translation": "There are pervasions that are pervaded, there are gains,",
+        "source": "cnd11:2.2_0"
+    },
+    {
+        "source_sentence": "**Loke**ti apāyaloke …pe… āyatanaloke.",
+        "translation": "in the world looking forward to enjoying the world. ...",
+        "source": "cnd11:2.3_0"
+    },
+    {
+        "source_sentence": "**Munayo**ti munināmakā ājīvakā nigaṇṭhā jaṭilā tāpasā.",
+        "translation": "the shavelings, Ājīvaka ascetics, and Nigaṇṭhas,",
+        "source": "cnd11:2.4_0"
+    },
+    {
+        "source_sentence": "Devā loke munayoti sañjānanti, na ca te munayoti.",
+        "translation": "They perceive the gods in the world who is deceitful, but do not perceive them.",
+        "source": "cnd11:2.5_0"
+    },
+    {
+        "source_sentence": "Santi loke munayo.",
+        "translation": "There are sages in the world,",
+        "source": "cnd11:2.6_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā nando**ti.",
+        "translation": "ʻVenerable Nanda lives,",
+        "source": "cnd11:2.7_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi …pe….",
+        "translation": "wishes ...",
+        "source": "cnd11:2.8_0"
+    },
+    {
+        "source_sentence": "**Āyasmā**ti piyavacanaṁ …pe….",
+        "translation": "Venerable Piyaka ...",
+        "source": "cnd11:2.9_0"
+    },
+    {
+        "source_sentence": "**Nando**ti tassa brāhmaṇassa nāmaṁ …pe… abhilāpoti—",
+        "translation": "Nandā gained the desire called Nandā,",
+        "source": "cnd11:2.10_0"
+    },
+    {
+        "source_sentence": "iccāyasmā nando.",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:2.11_0"
+    },
+    {
+        "source_sentence": "**Janā vadanti tayidaṁ kathaṁsū**ti.",
+        "translation": "that is what people say - how is this so?",
+        "source": "cnd11:3.1_0"
+    },
+    {
+        "source_sentence": "**Janā**ti khattiyā ca brāhmaṇā ca vessā ca suddā ca gahaṭṭhā ca pabbajitā ca devā ca manussā ca.",
+        "translation": "people, aristocrats, brahmins, merchants, and workers.",
+        "source": "cnd11:3.2_0"
+    },
+    {
+        "source_sentence": "**Vadantī**ti kathenti bhaṇanti dīpayanti voharanti.",
+        "translation": "They call forget what is not to say.",
+        "source": "cnd11:3.3_0"
+    },
+    {
+        "source_sentence": "**Tayidaṁ kathaṁsū**ti saṁsayapucchā vimatipucchā dveḷhakapucchā anekaṁsapucchā “evaṁ nu kho, na nu kho, kiṁ nu kho, kathaṁ nu kho”ti—",
+        "translation": "How is it fitting to ask and not ask without questioning, “What is it?”",
+        "source": "cnd11:3.4_0"
+    },
+    {
+        "source_sentence": "janā vadanti tayidaṁ kathaṁsu.",
+        "translation": "that is what people say - how is this so?",
+        "source": "cnd11:3.5_0"
+    },
+    {
+        "source_sentence": "**Ñāṇūpapannaṁ muni no vadantī**ti.",
+        "translation": "they say he is a sage because he has knowledge",
+        "source": "cnd11:4.1_0"
+    },
+    {
+        "source_sentence": "Aṭṭha samāpattiñāṇena vā pañcābhiññāñāṇena vā upetaṁ samupetaṁ upāgataṁ samupāgataṁ upapannaṁ samupapannaṁ samannāgataṁ muniṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "They say, ‘There are eight attainments for one who is starting with knowledge, or else one who has entered upon them.’ And they explain it to him when they fall, they say,",
+        "source": "cnd11:4.2_0"
+    },
+    {
+        "source_sentence": "ñāṇūpapannaṁ muni no vadanti.",
+        "translation": "Do they say he is a sage because he has knowledge",
+        "source": "cnd11:4.3_0"
+    },
+    {
+        "source_sentence": "**Udāhu ve jīvitenūpapannan**ti udāhu anekavividhaatiparamadukkarakārikalūkhajīvitānuyogena upetaṁ samupetaṁ upāgataṁ samupāgataṁ upapannaṁ samupapannaṁ samannāgataṁ muniṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "Or because of the life force, or because they fall for it, or if they don’t earn a living by lazy, hostile, phlegm, and calm, consume this, or that they frequently practiced warriors, frequentlystructed lamps.",
+        "source": "cnd11:5.1_0"
+    },
+    {
+        "source_sentence": "udāhu ve jīvitenūpapannaṁ.",
+        "translation": "Or because of the life he leads?",
+        "source": "cnd11:5.2_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "The brahmin then thought,",
+        "source": "cnd11:5.3_0"
+    },
+    {
+        "source_sentence": "“Santi loke munayo,",
+        "translation": "“There are sages in the world,",
+        "source": "cnd11:6.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:6.2_0"
+    },
+    {
+        "source_sentence": "Janā vadanti tayidaṁ kathaṁsu;",
+        "translation": "that is what people say - how is this so?",
+        "source": "cnd11:6.3_0"
+    },
+    {
+        "source_sentence": "Ñāṇūpapannaṁ muni no vadanti,",
+        "translation": "Do they say he is a sage because he has knowledge",
+        "source": "cnd11:6.4_0"
+    },
+    {
+        "source_sentence": "Udāhu ve jīvitenūpapannan”ti.",
+        "translation": "Or because of the life he leads?”",
+        "source": "cnd11:6.5_0"
+    },
+    {
+        "source_sentence": "**Na diṭṭhiyā na sutiyā na ñāṇena,**",
+        "translation": "not by view, nor by knowledge,",
+        "source": "cnd11:7.1_0"
+    },
+    {
+        "source_sentence": "**Munīdha nanda kusalā vadanti;**",
+        "translation": "covetousness speaks,",
+        "source": "cnd11:7.2_0"
+    },
+    {
+        "source_sentence": "**Visenikatvā anīghā nirāsā,**",
+        "translation": "Without making use of, without destroying the flood,",
+        "source": "cnd11:7.3_0"
+    },
+    {
+        "source_sentence": "**Caranti ye te munayoti brūmi. **",
+        "translation": "not a sage, I say.",
+        "source": "cnd11:7.4_0"
+    },
+    {
+        "source_sentence": "**Na diṭṭhiyā na sutiyā na ñāṇenā**ti.",
+        "translation": "Not by view, nor by knowledge,",
+        "source": "cnd11:8.1_0"
+    },
+    {
+        "source_sentence": "**Na diṭṭhiyā**ti na diṭṭhasuddhiyā.",
+        "translation": "you don’t view your purity.",
+        "source": "cnd11:8.2_0"
+    },
+    {
+        "source_sentence": "**Na sutiyā**ti na sutasuddhiyā.",
+        "translation": "It’s not easy to clean themselves with water.",
+        "source": "cnd11:8.3_0"
+    },
+    {
+        "source_sentence": "**Na ñāṇenā**ti napi aṭṭhasamāpattiñāṇena napi pañcābhiññāñāṇena napi micchāñāṇenāti—",
+        "translation": "They don’t knowledge of the attainment of knowledge, nor even the four immaterial knowledges.",
+        "source": "cnd11:8.4_0"
+    },
+    {
+        "source_sentence": "na diṭṭhiyā na sutiyā na ñāṇena.",
+        "translation": "not by view, nor by knowledge,",
+        "source": "cnd11:8.5_0"
+    },
+    {
+        "source_sentence": "**Munīdha nanda kusalā vadantī**ti.",
+        "translation": "the Sage, speaks falsely,",
+        "source": "cnd11:9.1_0"
+    },
+    {
+        "source_sentence": "**Kusalā**ti ye te khandhakusalā dhātukusalā āyatanakusalā paṭiccasamuppādakusalā satipaṭṭhānakusalā sammappadhānakusalā iddhipādakusalā indriyakusalā balakusalā bojjhaṅgakusalā maggakusalā phalakusalā nibbānakusalā diṭṭhasuddhiyā vā sutasuddhiyā vā aṭṭhasamāpattiñāṇena vā pañcābhiññāñāṇena vā micchāñāṇena vā diṭṭhena vā sutena vā upetaṁ samupetaṁ upāgataṁ samupāgataṁ upapannaṁ samupapannaṁ samannāgataṁ muniṁ na vadanti na kathenti na bhaṇanti na dīpayanti na voharantīti—",
+        "translation": "Of those who are skilled in the elements of the sense fields, skilled in the dimension of infinite space, skilled in the dimension of infinite consciousness, skilled in the dimension of nothingness, or skilled in the sense faculties, skilled in emerging from the four bases of psychic power, and skilled in the mindfulness meditation subjects, and is skilled in the unprofitable or excessive. Their five faculties are skilled in the skillful, embracing from the unskillful, searchessence, and fruition to activity.",
+        "source": "cnd11:9.2_0"
+    },
+    {
+        "source_sentence": "munīdha nanda kusalā vadanti.",
+        "translation": "covetousness speaks,",
+        "source": "cnd11:9.3_0"
+    },
+    {
+        "source_sentence": "**Visenikatvā anīghā nirāsā, caranti ye te munayoti brūmī**ti",
+        "translation": "Without making an end, I say, those who are untroubled and free of hope.”",
+        "source": "cnd11:10.1_0"
+    },
+    {
+        "source_sentence": "**senā** vuccati mārasenā, kāyaduccaritaṁ mārasenā, vacīduccaritaṁ mārasenā, manoduccaritaṁ mārasenā, rāgo mārasenā, doso mārasenā, moho mārasenā, kodho …pe…",
+        "translation": "General of Māra’s army is said to be Māra’s army of bad conduct by way of body, speech, and mind.",
+        "source": "cnd11:10.2_0"
+    },
+    {
+        "source_sentence": "upanāho … makkho … paḷāso … issā …",
+        "translation": "hostile ...",
+        "source": "cnd11:10.2_1"
+    },
+    {
+        "source_sentence": "macchariyaṁ … māyā …",
+        "translation": "stinginess ...",
+        "source": "cnd11:10.2_2"
+    },
+    {
+        "source_sentence": "sāṭheyyaṁ …",
+        "translation": "deviousness ...",
+        "source": "cnd11:10.2_3"
+    },
+    {
+        "source_sentence": "thambho …",
+        "translation": "obstinacy ...",
+        "source": "cnd11:10.2_4"
+    },
+    {
+        "source_sentence": "sārambho … māno …",
+        "translation": "aggression ...",
+        "source": "cnd11:10.2_5"
+    },
+    {
+        "source_sentence": "atimāno … mado … pamādo …",
+        "translation": "negligence ...",
+        "source": "cnd11:10.2_6"
+    },
+    {
+        "source_sentence": "sabbe kilesā sabbe duccaritā sabbe darathā sabbe pariḷāhā sabbe santāpā sabbākusalābhisaṅkhārā mārasenā.",
+        "translation": "all the defilements were hard to satisfy. All of them consecrated with rapidly, all were skilled in Māra’s sway.",
+        "source": "cnd11:10.2_7"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "cnd11:10.3_0"
+    },
+    {
+        "source_sentence": "“Kāmā te paṭhamā senā,",
+        "translation": "“For these are the first months,",
+        "source": "cnd11:11.1_0"
+    },
+    {
+        "source_sentence": "dutiyā arati vuccati;",
+        "translation": "they are said to be the second:",
+        "source": "cnd11:11.2_0"
+    },
+    {
+        "source_sentence": "Tatiyā khuppipāsā te,",
+        "translation": "and a third palace.",
+        "source": "cnd11:11.3_0"
+    },
+    {
+        "source_sentence": "catutthī taṇhā pavuccati.",
+        "translation": "is said to be the fourth.",
+        "source": "cnd11:11.4_0"
+    },
+    {
+        "source_sentence": "Pañcamaṁ thinamiddhaṁ te,",
+        "translation": "dullness and drowsiness.",
+        "source": "cnd11:12.1_0"
+    },
+    {
+        "source_sentence": "Chaṭṭhā bhīrū pavuccati;",
+        "translation": "is said to be the sixth.",
+        "source": "cnd11:12.2_0"
+    },
+    {
+        "source_sentence": "Sattamī vicikicchā te,",
+        "translation": "I have doubts about the seventh.",
+        "source": "cnd11:12.3_0"
+    },
+    {
+        "source_sentence": "Makkho thambho te aṭṭhamo;",
+        "translation": "Dakkhali is the eighth thing, these are the eighth directions.",
+        "source": "cnd11:12.4_0"
+    },
+    {
+        "source_sentence": "Lābho siloko sakkāro,",
+        "translation": "You’re an abortion",
+        "source": "cnd11:12.5_0"
+    },
+    {
+        "source_sentence": "Micchāladdho ca yo yaso.",
+        "translation": "When you get wrong, fame,",
+        "source": "cnd11:12.6_0"
+    },
+    {
+        "source_sentence": "Yo cattānaṁ samukkaṁse,",
+        "translation": "It’s forty eons",
+        "source": "cnd11:13.1_0"
+    },
+    {
+        "source_sentence": "pare ca avajānati;",
+        "translation": "Others or others,",
+        "source": "cnd11:13.2_0"
+    },
+    {
+        "source_sentence": "Esā namuci te senā,",
+        "translation": "Since they generally grasp them,",
+        "source": "cnd11:13.3_0"
+    },
+    {
+        "source_sentence": "kaṇhassābhippahārinī;",
+        "translation": "They’re dark and bright.",
+        "source": "cnd11:13.4_0"
+    },
+    {
+        "source_sentence": "Na naṁ asūro jināti,",
+        "translation": "If you’re not a disease,",
+        "source": "cnd11:13.5_0"
+    },
+    {
+        "source_sentence": "jetvā ca labhate sukhan”ti.",
+        "translation": "having vanquished all suffering.",
+        "source": "cnd11:13.6_0"
+    },
+    {
+        "source_sentence": "Yato catūhi ariyamaggehi sabbā ca mārasenā sabbe ca paṭisenikarā kilesā jitā ca parājitā ca bhaggā vippaluggā parammukhā, tena vuccanti visenikatvā.",
+        "translation": "from the four noble paths, all of them,",
+        "source": "cnd11:14.1_0"
+    },
+    {
+        "source_sentence": "**Anīghā**ti rāgo nīgho, doso nīgho, moho nīgho, kodho nīgho, upanāho nīgho …pe…",
+        "translation": "Their greed, hate, and delusion are irritable.",
+        "source": "cnd11:14.2_0"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārā nīghā.",
+        "translation": "she has given up all unskillful intentions,",
+        "source": "cnd11:14.2_1"
+    },
+    {
+        "source_sentence": "Yesaṁ ete nīghā pahīnā samucchinnā vūpasantā paṭippassaddhā abhabbuppattikā ñāṇagginā daḍḍhā te vuccanti anīghā.",
+        "translation": "Those who have given up the floods of the untroubled and the tip of unbroken knowledge, and they are called ‘a needle cases’.",
+        "source": "cnd11:14.3_0"
+    },
+    {
+        "source_sentence": "**Nirāsā**ti āsā vuccati taṇhā.",
+        "translation": "it is called craving that is called out of craving.",
+        "source": "cnd11:14.4_0"
+    },
+    {
+        "source_sentence": "Yo rāgo sārāgo …pe…",
+        "translation": "Greed ...",
+        "source": "cnd11:14.5_0"
+    },
+    {
+        "source_sentence": "avijjā lobho akusalamūlaṁ.",
+        "translation": "Ignorance is the root of ignorance.",
+        "source": "cnd11:14.6_0"
+    },
+    {
+        "source_sentence": "Yesaṁ esā āsā taṇhā pahīnā samucchinnā vūpasantā paṭippassaddhā abhabbuppattikā ñāṇagginā daḍḍhā, te vuccanti nirāsā arahanto khīṇāsavā.",
+        "translation": "Those who have given up craving, cut off the root, made like a palm stump, obliterated, and unable to arise in the future—are they are called the “grass”.",
+        "source": "cnd11:14.7_0"
+    },
+    {
+        "source_sentence": "**Visenikatvā anīghā nirāsā, caranti ye te munayoti brūmī**ti ye te visenikatvāva anīghā ca nirāsā ca caranti viharanti iriyanti vattenti pālenti yapenti yāpenti, te loke munayoti brūmi ācikkhāmi desemi paññapemi paṭṭhapemi vivarāmi vibhajāmi uttānīkaromi pakāsemīti—",
+        "translation": "But observed things don’t come back to the beginning, “I do not say, ‘I am going to a place,’ do not requirement, make it clear! I explain, teach, declare, ʻI’m going to the untroubled, clear, and declare, ‘I do what is the poison.’ So I declare that I explain this, what is the teaching, I explain, and declare that I explain what is the teaching.",
+        "source": "cnd11:14.8_0"
+    },
+    {
+        "source_sentence": "visenikatvā anīghā nirāsā, caranti ye te munayoti brūmi.",
+        "translation": "Without making use, they are free from flood, I say.",
+        "source": "cnd11:14.9_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd11:14.10_0"
+    },
+    {
+        "source_sentence": "“Na diṭṭhiyā na sutiyā na ñāṇena,",
+        "translation": "“Not by view, tradition, or knowledge,",
+        "source": "cnd11:15.1_0"
+    },
+    {
+        "source_sentence": "Munīdha nanda kusalā vadanti;",
+        "translation": "covetousness speaks,",
+        "source": "cnd11:15.2_0"
+    },
+    {
+        "source_sentence": "Visenikatvā anīghā nirāsā,",
+        "translation": "Without making use of, without destroying the flood,",
+        "source": "cnd11:15.3_0"
+    },
+    {
+        "source_sentence": "Caranti ye te munayoti brūmī”ti.",
+        "translation": "wander, I say.”",
+        "source": "cnd11:15.4_0"
+    },
+    {
+        "source_sentence": "**Ye kecime samaṇabrāhmaṇāse,**",
+        "translation": "There are ascetics and brahmins who",
+        "source": "cnd11:16.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:16.2_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhassutenāpi vadanti suddhiṁ;**",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:16.3_0"
+    },
+    {
+        "source_sentence": "**Sīlabbatenāpi vadanti suddhiṁ,**",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:16.4_0"
+    },
+    {
+        "source_sentence": "**Anekarūpena vadanti suddhiṁ.**",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:16.5_0"
+    },
+    {
+        "source_sentence": "**Kaccissu te bhagavā tattha yatā carantā,**",
+        "translation": "Fortunate One, perhaps those living restrained in this way",
+        "source": "cnd11:17.1_0"
+    },
+    {
+        "source_sentence": "**Atāru jātiñca jarañca mārisa;**",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd11:17.2_0"
+    },
+    {
+        "source_sentence": "**Pucchāmi taṁ bhagavā brūhi metaṁ. **",
+        "translation": "I ask you, Fortunate One, please tell this to me.",
+        "source": "cnd11:17.3_0"
+    },
+    {
+        "source_sentence": "**Ye kecime samaṇabrāhmaṇāse**ti.",
+        "translation": "There are ascetics and brahmins who enjoy these things.",
+        "source": "cnd11:18.1_0"
+    },
+    {
+        "source_sentence": "**Ye kecī**ti sabbena sabbaṁ sabbathā sabbaṁ asesaṁ nissesaṁ pariyādiyanavacanametaṁ—",
+        "translation": "he is qualified to all calls none of them.",
+        "source": "cnd11:18.2_0"
+    },
+    {
+        "source_sentence": "ye kecīti.",
+        "translation": "What if they are enemies?",
+        "source": "cnd11:18.3_0"
+    },
+    {
+        "source_sentence": "**Samaṇā**ti ye keci ito bahiddhā pabbajjūpagatā paribbājakasamāpannā.",
+        "translation": "Whatever ascetics there are ascetics who have gone forth outside of the Buddhist community who have gone forth as wanderer.",
+        "source": "cnd11:18.4_0"
+    },
+    {
+        "source_sentence": "**Brāhmaṇā**ti ye keci bhovādikāti—",
+        "translation": "Saying ‘Sometics’, the brahmins who say",
+        "source": "cnd11:18.5_0"
+    },
+    {
+        "source_sentence": "ye kecime samaṇabrāhmaṇāse.",
+        "translation": "There are ascetics and brahmins who",
+        "source": "cnd11:18.6_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā nando**ti.",
+        "translation": "ʻVenerable Nanda lives,",
+        "source": "cnd11:18.7_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi …pe….",
+        "translation": "wishes ...",
+        "source": "cnd11:18.8_0"
+    },
+    {
+        "source_sentence": "**Āyasmā**ti piyavacanaṁ …pe….",
+        "translation": "Venerable Piyaka ...",
+        "source": "cnd11:18.9_0"
+    },
+    {
+        "source_sentence": "**Nando**ti.",
+        "translation": "Nanda",
+        "source": "cnd11:18.10_0"
+    },
+    {
+        "source_sentence": "Tassa brāhmaṇassa nāmaṁ …pe… abhilāpoti—",
+        "translation": "His name was colleagueous. ...",
+        "source": "cnd11:18.11_0"
+    },
+    {
+        "source_sentence": "iccāyasmā nando.",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:18.12_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhassutenāpi vadanti suddhin**ti diṭṭhenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "They say that purity is through what is seen, heard, thought, or known as purity. They say that purity is pure, bright, fact, and pure.",
+        "source": "cnd11:19.1_0"
+    },
+    {
+        "source_sentence": "sutenapi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "And they chook the pure freedom through the pure freedom of heart and freedom by wisdom.",
+        "source": "cnd11:19.2_0"
+    },
+    {
+        "source_sentence": "diṭṭhassutenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "scorned to purity, free from flaws, and frees; opposites, they say,",
+        "source": "cnd11:19.3_0"
+    },
+    {
+        "source_sentence": "diṭṭhassutenāpi vadanti suddhiṁ.",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:19.4_0"
+    },
+    {
+        "source_sentence": "**Sīlabbatenāpi vadanti suddhin**ti sīlenapi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "They say that purity is through virtue and practices, pure, bright, flawless, and pure in virtue. They speak of the kind of freedom, liberating, they speak in common.",
+        "source": "cnd11:20.1_0"
+    },
+    {
+        "source_sentence": "vatenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "(They replied:) “Purification for purity, which is free from stain by purity, observed with cleansedness, and pure freedom.”",
+        "source": "cnd11:20.2_0"
+    },
+    {
+        "source_sentence": "sīlabbatenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "One whose ethics are pure, whose freedom is free from fear, and who speaks accomplishes ethical conduct, said to him:",
+        "source": "cnd11:20.3_0"
+    },
+    {
+        "source_sentence": "sīlabbatenāpi vadanti suddhiṁ.",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:20.4_0"
+    },
+    {
+        "source_sentence": "**Anekarūpena vadanti suddhin**ti anekavidhakotūhalamaṅgalena suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "In many ways they say: ‘Purity is pure and bright, flawless, and purified, I realized the purity of freedom, and I say.’",
+        "source": "cnd11:21.1_0"
+    },
+    {
+        "source_sentence": "anekarūpena vadanti suddhiṁ.",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:21.2_0"
+    },
+    {
+        "source_sentence": "**Kaccissu te bhagavā tattha yatā carantā**ti.",
+        "translation": "Fortunate One, perhaps those living restrained in this way",
+        "source": "cnd11:22.1_0"
+    },
+    {
+        "source_sentence": "**Kaccissū**ti saṁsayapucchā vimatipucchā dveḷhakapucchā anekaṁsapucchā, “evaṁ nu kho, na nu kho, kiṁ nu kho, kathaṁ nu kho”ti—",
+        "translation": "Is there without asking permission of an available? Is there two with questioning, or is it that someone roaming and transmigrating? How do they not ask?”",
+        "source": "cnd11:22.2_0"
+    },
+    {
+        "source_sentence": "kaccissu.",
+        "translation": "Do you, good Sir, take delight in the wilds?",
+        "source": "cnd11:22.3_0"
+    },
+    {
+        "source_sentence": "**Te**ti diṭṭhigatikā.",
+        "translation": "And that’s how they go about.",
+        "source": "cnd11:22.4_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti—",
+        "translation": "“It’s terminator ...”",
+        "source": "cnd11:22.5_0"
+    },
+    {
+        "source_sentence": "kaccissu te bhagavā.",
+        "translation": "Do you, Fortunate One, perhaps those with respect in you?",
+        "source": "cnd11:22.6_0"
+    },
+    {
+        "source_sentence": "**Tattha yatā carantā**ti.",
+        "translation": "This is the normal ones:",
+        "source": "cnd11:22.7_0"
+    },
+    {
+        "source_sentence": "**Tatthā**ti sakāya diṭṭhiyā sakāya khantiyā sakāya ruciyā sakāya laddhiyā.",
+        "translation": "Their view of your own view, beginning with the “Repulsiveness of the view,” went to the Sakyans.",
+        "source": "cnd11:22.8_0"
+    },
+    {
+        "source_sentence": "**Yatā**ti yattā paṭiyattā guttā gopitā rakkhitā saṁvutā.",
+        "translation": "Because they are repulsed by a cow, guarded, protected, and restrained.",
+        "source": "cnd11:22.9_0"
+    },
+    {
+        "source_sentence": "**Carantā**ti carantā viharantā iriyantā vattentā pālentā yapentā yāpentāti—",
+        "translation": "While wandering, they proceed, thinking,",
+        "source": "cnd11:22.10_0"
+    },
+    {
+        "source_sentence": "kaccissu te bhagavā tattha yatā carantā.",
+        "translation": "Fortunate One, perhaps those living restrained in this way",
+        "source": "cnd11:22.11_0"
+    },
+    {
+        "source_sentence": "**Atāru jātiñca jarañca mārisā**ti jātijarāmaraṇaṁ atariṁsu uttariṁsu patariṁsu samatikkamiṁsu vītivattiṁsu.",
+        "translation": "They passed away from rebirth and old age, old age, and death.",
+        "source": "cnd11:23.1_0"
+    },
+    {
+        "source_sentence": "**Mārisā**ti piyavacanaṁ garuvacanaṁ sagāravasappatissādhivacanametaṁ—",
+        "translation": "this is a term for praise.",
+        "source": "cnd11:23.2_0"
+    },
+    {
+        "source_sentence": "mārisāti—",
+        "translation": "Mātaliputta,",
+        "source": "cnd11:23.3_0"
+    },
+    {
+        "source_sentence": "atāru jātiñca jarañca mārisa.",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd11:23.4_0"
+    },
+    {
+        "source_sentence": "**Pucchāmi taṁ bhagavā brūhi metan**ti.",
+        "translation": "I ask you, Fortunate One, please tell this to me.",
+        "source": "cnd11:24.1_0"
+    },
+    {
+        "source_sentence": "**Pucchāmi tan**ti pucchāmi taṁ yācāmi taṁ ajjhesāmi taṁ, kathayassu meti pucchāmi taṁ.",
+        "translation": "I ask you about it, I ask you about it. I question you should answer it in return.",
+        "source": "cnd11:24.2_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti …pe…",
+        "translation": "“The Buddha is perfected.”",
+        "source": "cnd11:24.3_0"
+    },
+    {
+        "source_sentence": "sacchikā paññatti, yadidaṁ bhagavāti.",
+        "translation": "By truths, Blessed One, is the designation of the truths.",
+        "source": "cnd11:24.4_0"
+    },
+    {
+        "source_sentence": "**Brūhi metan**ti brūhi ācikkhāhi desehi paññapehi paṭṭhapehi vivarāhi vibhajāhi uttānīkarohi pakāsehīti—",
+        "translation": "One should explain, reveal, make known, set forth, open up, analyze, and reveal it.",
+        "source": "cnd11:24.5_0"
+    },
+    {
+        "source_sentence": "pucchāmi taṁ bhagavā brūhi metaṁ.",
+        "translation": "I ask you, Fortunate One, please tell this to me.",
+        "source": "cnd11:24.6_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "The brahmin then thought,",
+        "source": "cnd11:24.7_0"
+    },
+    {
+        "source_sentence": "“Ye kecime samaṇabrāhmaṇāse,",
+        "translation": "“Those ascetics and brahmins who",
+        "source": "cnd11:25.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:25.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhassutenāpi vadanti suddhiṁ;",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:25.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbatenāpi vadanti suddhiṁ,",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:25.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpena vadanti suddhiṁ.",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:25.5_0"
+    },
+    {
+        "source_sentence": "Kaccissu te bhagavā tattha yatā carantā,",
+        "translation": "Fortunate One, perhaps those living restrained in this way",
+        "source": "cnd11:26.1_0"
+    },
+    {
+        "source_sentence": "Atāru jātiñca jarañca mārisa;",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd11:26.2_0"
+    },
+    {
+        "source_sentence": "Pucchāmi taṁ bhagavā brūhi metan”ti.",
+        "translation": "I ask you, Fortunate One, please tell this to me.”",
+        "source": "cnd11:26.3_0"
+    },
+    {
+        "source_sentence": "**Ye kecime samaṇabrāhmaṇāse,**",
+        "translation": "There are ascetics and brahmins who",
+        "source": "cnd11:27.1_0"
+    },
+    {
+        "source_sentence": "(nandāti bhagavā)",
+        "translation": "And he said the Buddha Nandā,",
+        "source": "cnd11:27.2_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhassutenāpi vadanti suddhiṁ;**",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:27.3_0"
+    },
+    {
+        "source_sentence": "**Sīlabbatenāpi vadanti suddhiṁ,**",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:27.4_0"
+    },
+    {
+        "source_sentence": "**Anekarūpena vadanti suddhiṁ;**",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:27.5_0"
+    },
+    {
+        "source_sentence": "**Kiñcāpi te tattha yatā caranti,**",
+        "translation": "although they are living restrained in this way,",
+        "source": "cnd11:27.6_0"
+    },
+    {
+        "source_sentence": "**Nātariṁsu jātijaranti brūmi. **",
+        "translation": "They have not crossed over birth and old age, I say.",
+        "source": "cnd11:27.7_0"
+    },
+    {
+        "source_sentence": "**Ye kecime samaṇabrāhmaṇāse**ti.",
+        "translation": "There are ascetics and brahmins who enjoy these things.",
+        "source": "cnd11:28.1_0"
+    },
+    {
+        "source_sentence": "**Ye kecī**ti sabbena sabbaṁ sabbathā sabbaṁ asesaṁ nissesaṁ pariyādiyanavacanametaṁ—",
+        "translation": "he is qualified to all calls none of them.",
+        "source": "cnd11:28.2_0"
+    },
+    {
+        "source_sentence": "ye kecīti.",
+        "translation": "What if they are enemies?",
+        "source": "cnd11:28.3_0"
+    },
+    {
+        "source_sentence": "**Samaṇā**ti ye keci ito bahiddhā pabbajjūpagatā paribbājakasamāpannā.",
+        "translation": "Whatever ascetics there are ascetics who have gone forth outside of the Buddhist community who have gone forth as wanderer.",
+        "source": "cnd11:28.4_0"
+    },
+    {
+        "source_sentence": "**Brāhmaṇā**ti ye keci bhovādikāti—",
+        "translation": "Saying ‘Sometics’, the brahmins who say",
+        "source": "cnd11:28.5_0"
+    },
+    {
+        "source_sentence": "ye kecime samaṇabrāhmaṇāse.",
+        "translation": "There are ascetics and brahmins who",
+        "source": "cnd11:28.6_0"
+    },
+    {
+        "source_sentence": "**Nandāti bhagavā**ti.",
+        "translation": "when he Nanda is present:",
+        "source": "cnd11:28.7_0"
+    },
+    {
+        "source_sentence": "**Nandā**ti bhagavā taṁ brāhmaṇaṁ nāmena ālapati.",
+        "translation": "The Fortunate One, having given the brāhmaṇa Nandā ascended the brahmin lady.",
+        "source": "cnd11:28.8_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti—",
+        "translation": "“It’s terminator ...”",
+        "source": "cnd11:28.9_0"
+    },
+    {
+        "source_sentence": "nandāti bhagavā.",
+        "translation": "And he said the Buddha Nandā,",
+        "source": "cnd11:28.10_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhassutenāpi vadanti suddhin**ti diṭṭhenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "They say that purity is through what is seen, heard, thought, or known as purity. They say that purity is pure, bright, fact, and pure.",
+        "source": "cnd11:29.1_0"
+    },
+    {
+        "source_sentence": "sutenapi suddhiṁ …pe…",
+        "translation": "Suddhodana ...",
+        "source": "cnd11:29.2_0"
+    },
+    {
+        "source_sentence": "diṭṭhassutenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "scorned to purity, free from flaws, and frees; opposites, they say,",
+        "source": "cnd11:29.3_0"
+    },
+    {
+        "source_sentence": "diṭṭhassutenāpi vadanti suddhiṁ.",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:29.4_0"
+    },
+    {
+        "source_sentence": "**Sīlabbatenāpi vadanti suddhin**ti sīlenapi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "They say that purity is through virtue and practices, pure, bright, flawless, and pure in virtue. They speak of the kind of freedom, liberating, they speak in common.",
+        "source": "cnd11:30.1_0"
+    },
+    {
+        "source_sentence": "vatenāpi suddhiṁ …pe… voharanti;",
+        "translation": "those who were pure, who were drinking alcohol,",
+        "source": "cnd11:30.2_0"
+    },
+    {
+        "source_sentence": "sīlabbatenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "One whose ethics are pure, whose freedom is free from fear, and who speaks accomplishes ethical conduct, said to him:",
+        "source": "cnd11:30.3_0"
+    },
+    {
+        "source_sentence": "sīlabbatenāpi vadanti suddhiṁ.",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:30.4_0"
+    },
+    {
+        "source_sentence": "**Anekarūpena vadanti suddhin**ti anekavidhakotūhalamaṅgalena suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "In many ways they say: ‘Purity is pure and bright, flawless, and purified, I realized the purity of freedom, and I say.’",
+        "source": "cnd11:31.1_0"
+    },
+    {
+        "source_sentence": "anekarūpena vadanti suddhiṁ.",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:31.2_0"
+    },
+    {
+        "source_sentence": "**Kiñcāpi te tattha yatā carantī**ti.",
+        "translation": "although they are living restrained in this way,",
+        "source": "cnd11:32.1_0"
+    },
+    {
+        "source_sentence": "**Kiñcāpī**ti padasandhi padasaṁsaggo padapāripūrī akkharasamavāyo byañjanasiliṭṭhatā padānupubbatāpetaṁ—",
+        "translation": "And what exactly is the same in the openings of the phrase?",
+        "source": "cnd11:32.2_0"
+    },
+    {
+        "source_sentence": "kiñcāpīti.",
+        "translation": "With no happiness:",
+        "source": "cnd11:32.3_0"
+    },
+    {
+        "source_sentence": "**Te**ti diṭṭhigatikā.",
+        "translation": "And that’s how they go about.",
+        "source": "cnd11:32.4_0"
+    },
+    {
+        "source_sentence": "**Tatthā**ti sakāya diṭṭhiyā sakāya khantiyā sakāya ruciyā sakāya laddhiyā.",
+        "translation": "Their view of your own view, beginning with the “Repulsiveness of the view,” went to the Sakyans.",
+        "source": "cnd11:32.5_0"
+    },
+    {
+        "source_sentence": "**Yatā**ti yattā paṭiyattā guttā gopitā rakkhitā saṁvutā.",
+        "translation": "Because they are repulsed by a cow, guarded, protected, and restrained.",
+        "source": "cnd11:32.6_0"
+    },
+    {
+        "source_sentence": "**Carantī**ti caranti viharanti iriyanti vattenti pālenti yapenti yāpentīti—",
+        "translation": "When they live, they proceed, and they lay down on their beds.",
+        "source": "cnd11:32.7_0"
+    },
+    {
+        "source_sentence": "kiñcāpi te tattha yatā caranti.",
+        "translation": "although they are living restrained in this way,",
+        "source": "cnd11:32.8_0"
+    },
+    {
+        "source_sentence": "**Nātariṁsu jātijaranti brūmī**ti jātijarāmaraṇaṁ na tariṁsu na uttariṁsu na patariṁsu na samatikkamiṁsu na vītivattiṁsu, jātijarāmaraṇā anikkhantā anissaṭā anatikkantā asamatikkantā avītivattā, antojātijarāmaraṇe parivattenti, antosaṁsārapathe parivattenti, jātiyā anugatā, jarāya anusaṭā, byādhinā abhibhūtā, maraṇena abbhāhatā atāṇā aleṇā asaraṇā asaraṇībhūtāti brūmi ācikkhāmi desemi paññapemi paṭṭhapemi vivarāmi vibhajāmi uttānīkaromi pakāsemīti—",
+        "translation": "They don’t repeatedly understand rebirth, old age, and death.",
+        "source": "cnd11:33.1_0"
+    },
+    {
+        "source_sentence": "nātariṁsu jātijaranti brūmi.",
+        "translation": "They have not crossed over birth and old age, I say.",
+        "source": "cnd11:33.2_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd11:33.3_0"
+    },
+    {
+        "source_sentence": "“Ye kecime samaṇabrāhmaṇāse,",
+        "translation": "“Those ascetics and brahmins who",
+        "source": "cnd11:34.1_0"
+    },
+    {
+        "source_sentence": "(nandāti bhagavā)",
+        "translation": "And he said the Buddha Nandā,",
+        "source": "cnd11:34.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhassutenāpi vadanti suddhiṁ;",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:34.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbatenāpi vadanti suddhiṁ,",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:34.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpena vadanti suddhiṁ;",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:34.5_0"
+    },
+    {
+        "source_sentence": "Kiñcāpi te tattha yatā caranti,",
+        "translation": "although they are living restrained in this way,",
+        "source": "cnd11:34.6_0"
+    },
+    {
+        "source_sentence": "Nātariṁsu jātijaranti brūmī”ti.",
+        "translation": "they have not crossed over birth and old age, I say.”",
+        "source": "cnd11:34.7_0"
+    },
+    {
+        "source_sentence": "**Ye kecime samaṇabrāhmaṇāse,**",
+        "translation": "There are ascetics and brahmins who",
+        "source": "cnd11:35.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:35.2_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhassutenāpi vadanti suddhiṁ;**",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:35.3_0"
+    },
+    {
+        "source_sentence": "**Sīlabbatenāpi vadanti suddhiṁ,**",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:35.4_0"
+    },
+    {
+        "source_sentence": "**Anekarūpena vadanti suddhiṁ.**",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:35.5_0"
+    },
+    {
+        "source_sentence": "**Te ce munī brūsi anoghatiṇṇe,**",
+        "translation": "if you say these sages have not crossed the flood,",
+        "source": "cnd11:36.1_0"
+    },
+    {
+        "source_sentence": "**Atha ko carahi devamanussaloke;**",
+        "translation": "then just who in the world of the Gods and men",
+        "source": "cnd11:36.2_0"
+    },
+    {
+        "source_sentence": "**Atāri jātiñca jarañca mārisa,**",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd11:36.3_0"
+    },
+    {
+        "source_sentence": "**Pucchāmi taṁ bhagavā brūhi metaṁ. **",
+        "translation": "I ask you, Fortunate One, please tell this to me.",
+        "source": "cnd11:36.4_0"
+    },
+    {
+        "source_sentence": "**Ye kecime samaṇabrāhmaṇāse**ti.",
+        "translation": "There are ascetics and brahmins who enjoy these things.",
+        "source": "cnd11:37.1_0"
+    },
+    {
+        "source_sentence": "**Ye kecī**ti sabbena sabbaṁ sabbathā sabbaṁ asesaṁ nissesaṁ pariyādiyanavacanametaṁ—",
+        "translation": "he is qualified to all calls none of them.",
+        "source": "cnd11:37.2_0"
+    },
+    {
+        "source_sentence": "ye kecīti.",
+        "translation": "What if they are enemies?",
+        "source": "cnd11:37.3_0"
+    },
+    {
+        "source_sentence": "**Samaṇā**ti ye keci ito bahiddhā pabbajjūpagatā paribbājakasamāpannā.",
+        "translation": "Whatever ascetics there are ascetics who have gone forth outside of the Buddhist community who have gone forth as wanderer.",
+        "source": "cnd11:37.4_0"
+    },
+    {
+        "source_sentence": "**Brāhmaṇā**ti ye keci bhovādikāti—",
+        "translation": "Saying ‘Sometics’, the brahmins who say",
+        "source": "cnd11:37.5_0"
+    },
+    {
+        "source_sentence": "ye kecime samaṇabrāhmaṇāse.",
+        "translation": "There are ascetics and brahmins who",
+        "source": "cnd11:37.6_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā nando**ti.",
+        "translation": "ʻVenerable Nanda lives,",
+        "source": "cnd11:37.7_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi …pe…",
+        "translation": "wishes ...",
+        "source": "cnd11:37.8_0"
+    },
+    {
+        "source_sentence": "iccāyasmā nando.",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:37.9_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhassutenāpi vadanti suddhin**ti diṭṭhenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "They say that purity is through what is seen, heard, thought, or known as purity. They say that purity is pure, bright, fact, and pure.",
+        "source": "cnd11:38.1_0"
+    },
+    {
+        "source_sentence": "sutenāpi suddhiṁ …pe…",
+        "translation": "Suddhodana ...",
+        "source": "cnd11:38.2_0"
+    },
+    {
+        "source_sentence": "diṭṭhassutenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "scorned to purity, free from flaws, and frees; opposites, they say,",
+        "source": "cnd11:38.3_0"
+    },
+    {
+        "source_sentence": "diṭṭhassutenāpi vadanti suddhiṁ.",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:38.4_0"
+    },
+    {
+        "source_sentence": "**Sīlabbatenāpi vadanti suddhin**ti sīlenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharanti;",
+        "translation": "They say that purity is through virtue and practices, pure, bright, flawless, and pure freedom.",
+        "source": "cnd11:39.1_0"
+    },
+    {
+        "source_sentence": "vatenāpi suddhiṁ …pe… voharanti;",
+        "translation": "those who were pure, who were drinking alcohol,",
+        "source": "cnd11:39.2_0"
+    },
+    {
+        "source_sentence": "sīlabbatenāpi suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "One whose ethics are pure, whose freedom is free from fear, and who speaks accomplishes ethical conduct, said to him:",
+        "source": "cnd11:39.3_0"
+    },
+    {
+        "source_sentence": "sīlabbatenāpi vadanti suddhiṁ.",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:39.4_0"
+    },
+    {
+        "source_sentence": "**Anekarūpena vadanti suddhin**ti anekavidhakotūhalamaṅgalena suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ vadanti kathenti bhaṇanti dīpayanti voharantīti—",
+        "translation": "In many ways they say: ‘Purity is pure and bright, flawless, and purified, I realized the purity of freedom, and I say.’",
+        "source": "cnd11:40.1_0"
+    },
+    {
+        "source_sentence": "anekarūpena vadanti suddhiṁ.",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:40.2_0"
+    },
+    {
+        "source_sentence": "**Te ce munī brūsi anoghatiṇṇe**ti.",
+        "translation": "if you say these sages have not crossed the flood,",
+        "source": "cnd11:41.1_0"
+    },
+    {
+        "source_sentence": "**Te ce**ti diṭṭhigatike.",
+        "translation": "If they have a view:",
+        "source": "cnd11:41.2_0"
+    },
+    {
+        "source_sentence": "**Munī**ti monaṁ vuccati ñāṇaṁ …pe… saṅgajālamaticca so muni.",
+        "translation": "peacocks, is said to be the sage who reckons it.",
+        "source": "cnd11:41.3_0"
+    },
+    {
+        "source_sentence": "**Brūsi anoghatiṇṇe**ti kāmoghaṁ bhavoghaṁ diṭṭhoghaṁ avijjoghaṁ atiṇṇe anatikkante asamatikkante avītivatte antojātijarāmaraṇe parivattente antosaṁsārapathe parivattente jātiyā anugate jarāya anusaṭe byādhinā abhibhūte maraṇena abbhāhate atāṇe aleṇe asaraṇe asaraṇībhūte.",
+        "translation": "So let the flood swept away the flood by the flood.",
+        "source": "cnd11:41.4_0"
+    },
+    {
+        "source_sentence": "**Brūsī**ti brūsi ācikkhasi desesi paññapesi paṭṭhapesi vivarasi vibhajasi uttānīkarosi pakāsesīti—",
+        "translation": "If you say, “You can declare, Sīvaka,” “You can explain, reveal, make it, open, analyze, make it clear, open, analyze it, and make it clear.",
+        "source": "cnd11:41.5_0"
+    },
+    {
+        "source_sentence": "te ce munī brūsi anoghatiṇṇe.",
+        "translation": "if you say these sages have not crossed the flood,",
+        "source": "cnd11:41.6_0"
+    },
+    {
+        "source_sentence": "**Atha ko carahi devamanussaloke, atāri jātiñca jarañca mārisā**ti atha ko eso sadevake loke samārake sabrahmake sassamaṇabrāhmaṇiyā pajāya sadevamanussāya jātijarāmaraṇaṁ atari uttari patari samatikkami vītivattayi.",
+        "translation": "And then what in this world with its gods and men, Māras and Brahmās, this population with its ascetics and brahmins, its gods and humans, Māras and Brahmās, this population with its ascetics and brahmins, its gods and humans, this population with its ascetics and brahmins, gods and humans.",
+        "source": "cnd11:42.1_0"
+    },
+    {
+        "source_sentence": "**Mārisā**ti piyavacanaṁ garuvacanaṁ sagāravasappatissādhivacanametaṁ mārisāti—",
+        "translation": "is a term for praise.",
+        "source": "cnd11:42.2_0"
+    },
+    {
+        "source_sentence": "atha ko carahi devamanussaloke, atāri jātiñca jarañca mārisa.",
+        "translation": "Then who in the world with its gods and men, gods and men,",
+        "source": "cnd11:42.3_0"
+    },
+    {
+        "source_sentence": "**Pucchāmi taṁ bhagavā brūhi metan**ti.",
+        "translation": "I ask you, Fortunate One, please tell this to me.",
+        "source": "cnd11:43.1_0"
+    },
+    {
+        "source_sentence": "**Pucchāmi tan**ti pucchāmi taṁ yācāmi taṁ ajjhesāmi taṁ pasādemi taṁ.",
+        "translation": "I ask you about it, I ask you about it. I ask you about it in order to inspire confidence;",
+        "source": "cnd11:43.2_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti.",
+        "translation": "is terminator because of which the Buddha makes known as truth, that is, the Buddha.",
+        "source": "cnd11:43.3_0"
+    },
+    {
+        "source_sentence": "**Brūhi metan**ti brūhi ācikkhāhi desehi paññapehi paṭṭhapehi vivarāhi vibhajāhi uttānīkarohi pakāsehīti—",
+        "translation": "One should explain, reveal, make known, set forth, open up, analyze, and reveal it.",
+        "source": "cnd11:43.4_0"
+    },
+    {
+        "source_sentence": "pucchāmi taṁ bhagavā brūhi metaṁ.",
+        "translation": "I ask you, Fortunate One, please tell this to me.",
+        "source": "cnd11:43.5_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "The brahmin then thought,",
+        "source": "cnd11:43.6_0"
+    },
+    {
+        "source_sentence": "“Ye kecime samaṇabrāhmaṇāse,",
+        "translation": "“Those ascetics and brahmins who",
+        "source": "cnd11:44.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā nando)",
+        "translation": "So venerable Nanda,",
+        "source": "cnd11:44.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhassutenāpi vadanti suddhiṁ;",
+        "translation": "say that purity is through what is seen or heard,",
+        "source": "cnd11:44.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbatenāpi vadanti suddhiṁ,",
+        "translation": "say that purity is through virtue and practices,",
+        "source": "cnd11:44.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpena vadanti suddhiṁ.",
+        "translation": "say that purity is through countless (others) ways,",
+        "source": "cnd11:44.5_0"
+    },
+    {
+        "source_sentence": "Te ce munī brūsi anoghatiṇṇe,",
+        "translation": "if you say these sages have not crossed the flood,",
+        "source": "cnd11:45.1_0"
+    },
+    {
+        "source_sentence": "Atha ko carahi devamanussaloke;",
+        "translation": "then just who in the world of the Gods and men",
+        "source": "cnd11:45.2_0"
+    },
+    {
+        "source_sentence": "Atāri jātiñca jarañca mārisa,",
+        "translation": "has crossed over birth and old age, dear Sir?",
+        "source": "cnd11:45.3_0"
+    },
+    {
+        "source_sentence": "Pucchāmi taṁ bhagavā brūhi metan”ti.",
+        "translation": "I ask you, Fortunate One, please tell this to me.”",
+        "source": "cnd11:45.4_0"
+    },
+    {
+        "source_sentence": "**Nāhaṁ sabbe samaṇabrāhmaṇāse,**",
+        "translation": "(But) I do not say that all ascetics and brahmins,",
+        "source": "cnd11:46.1_0"
+    },
+    {
+        "source_sentence": "(nandāti bhagavā)",
+        "translation": "And he said the Buddha Nandā,",
+        "source": "cnd11:46.2_0"
+    },
+    {
+        "source_sentence": "**Jātijarāya nivutāti brūmi;**",
+        "translation": "are enveloped in birth and old age:",
+        "source": "cnd11:46.3_0"
+    },
+    {
+        "source_sentence": "**Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā,**",
+        "translation": "whoever here has given up (reliance on) what is seen,",
+        "source": "cnd11:46.4_0"
+    },
+    {
+        "source_sentence": "**Sīlabbataṁ vāpi pahāya sabbaṁ.**",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "cnd11:46.5_0"
+    },
+    {
+        "source_sentence": "**Anekarūpampi pahāya sabbaṁ,**",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd11:47.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāya anāsavāse;**",
+        "translation": "who, by fully knowing craving, are pollutant-free -",
+        "source": "cnd11:47.2_0"
+    },
+    {
+        "source_sentence": "**Te ve narā oghatiṇṇāti brūmi. **",
+        "translation": "they don’t call them a flood.",
+        "source": "cnd11:47.3_0"
+    },
+    {
+        "source_sentence": "**Nāhaṁ sabbe samaṇabrāhmaṇāse, (nandāti bhagavā) jātijarāya nivutāti brūmī**ti nāhaṁ, nanda, sabbe samaṇabrāhmaṇā jātijarāya āvutā nivutā ovutā pihitā paṭicchannā paṭikujjitāti vadāmi.",
+        "translation": "Yet I don’t say that all those ascetics and brahmins have gone beyond old age, they’re not concealed by birth. I say.",
+        "source": "cnd11:48.1_0"
+    },
+    {
+        "source_sentence": "Atthi te samaṇabrāhmaṇā yesaṁ jāti ca jarāmaraṇañca pahīnā ucchinnamūlā tālāvatthukatā anabhāvaṅkatā āyatiṁ anuppādadhammāti brūmi ācikkhāmi desemi paññapemi paṭṭhapemi vivarāmi vibhajāmi uttānīkaromi pakāsemīti—",
+        "translation": "There are ascetics and brahmins who have given up rebirth and old age and death, cut them off at the root, made them like a palm stump, obliterated them, so that I’m unable to arise in the future. I declare: ‘I’m clearly declared: ‘I am the teaching.’",
+        "source": "cnd11:48.2_0"
+    },
+    {
+        "source_sentence": "nāhaṁ sabbe samaṇabrāhmaṇāse, (nandāti bhagavā) jātijarāya nivutāti brūmi.",
+        "translation": "Yet I do not say that all ascetics and brahmins have a fixed destiny.",
+        "source": "cnd11:48.3_0"
+    },
+    {
+        "source_sentence": "**Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā, sīlabbataṁ vāpi pahāya sabban**ti ye sabbā diṭṭhasuddhiyo pahāya jahitvā pajahitvā vinodetvā byantīkaritvā anabhāvaṁ gametvā.",
+        "translation": "After giving up all (working) what is seen, heard, thought, and known, he gives up all, and substaining it all, he departs, having given up all suffering.",
+        "source": "cnd11:49.1_0"
+    },
+    {
+        "source_sentence": "Ye sabbā sutasuddhiyo pahāya …pe…",
+        "translation": "All after giving up purity of mind,",
+        "source": "cnd11:49.2_0"
+    },
+    {
+        "source_sentence": "ye sabbā mutasuddhiyo pahāya,",
+        "translation": "all those who are released from all sense pleasures,",
+        "source": "cnd11:49.3_0"
+    },
+    {
+        "source_sentence": "ye sabbā diṭṭhasutamutasuddhiyo pahāya",
+        "translation": "Those who have seen that cleansed purification in this way are abandoned",
+        "source": "cnd11:49.4_0"
+    },
+    {
+        "source_sentence": "ye sabbā sīlasuddhiyo pahāya,",
+        "translation": "Those who are virtuous of virtue,",
+        "source": "cnd11:49.5_0"
+    },
+    {
+        "source_sentence": "ye sabbā vatasuddhiyo pahāya,",
+        "translation": "Those who have given up everyone,",
+        "source": "cnd11:49.6_0"
+    },
+    {
+        "source_sentence": "ye sabbā sīlabbatasuddhiyo pahāya jahitvā pajahitvā vinodetvā byantīkaritvā anabhāvaṁ gametvāti—",
+        "translation": "After giving up all precepts and observances, he gives up all these precepts and observances, but then, having given them up, he departs.",
+        "source": "cnd11:49.7_0"
+    },
+    {
+        "source_sentence": "ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā, sīlabbataṁ vāpi pahāya sabbaṁ.",
+        "translation": "whoever has given up (reliance on) what is seen, heard, and thought,",
+        "source": "cnd11:49.8_0"
+    },
+    {
+        "source_sentence": "**Anekarūpampi pahāya sabban**ti anekavidhakotūhalamaṅgalena suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ pahāya jahitvā pajahitvā vinodetvā byantīkaritvā anabhāvaṁ gametvāti—",
+        "translation": "And after giving up all of using uncontrolled gold coins, cleansing the pure flawless, free of corruptions, pliable, workable, steady, and imperturbable, having given up all knowledge and freedom,",
+        "source": "cnd11:50.1_0"
+    },
+    {
+        "source_sentence": "anekarūpampi pahāya sabbaṁ.",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd11:50.2_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāya anāsavā se, te ve narā oghatiṇṇāti brūmī**ti.",
+        "translation": "I say that craving is completed, without pollutants, I say.",
+        "source": "cnd11:51.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti rūpataṇhā saddataṇhā gandhataṇhā rasataṇhā phoṭṭhabbataṇhā dhammataṇhā.",
+        "translation": "craving for sights, sounds, smells, tastes, touches, and thoughts.",
+        "source": "cnd11:51.2_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāyā**ti taṇhaṁ tīhi pariññāhi parijānitvā—",
+        "translation": "When craving is completely understood, one who has completely understood the three cravings and the complete understanding of craving,",
+        "source": "cnd11:51.3_0"
+    },
+    {
+        "source_sentence": "ñātapariññāya, tīraṇapariññāya, pahānapariññāya.",
+        "translation": "and completely understanding the course of relatives,",
+        "source": "cnd11:51.4_0"
+    },
+    {
+        "source_sentence": "Katamā ñātapariññā?",
+        "translation": "What is the end of relatives?",
+        "source": "cnd11:51.5_0"
+    },
+    {
+        "source_sentence": "Taṇhaṁ jānāti “ayaṁ rūpataṇhā, ayaṁ saddataṇhā, ayaṁ gandhataṇhā, ayaṁ rasataṇhā, ayaṁ phoṭṭhabbataṇhā, ayaṁ dhammataṇhā”ti jānāti passati—",
+        "translation": "craving for sights, sounds, smells, tastes, touches, and thoughts. This is craving for touches.",
+        "source": "cnd11:51.6_0"
+    },
+    {
+        "source_sentence": "ayaṁ ñātapariññā.",
+        "translation": "this is the end of relatives,",
+        "source": "cnd11:51.7_0"
+    },
+    {
+        "source_sentence": "Katamā tīraṇapariññā?",
+        "translation": "What are the three perils that completely understand?",
+        "source": "cnd11:52.1_0"
+    },
+    {
+        "source_sentence": "Evaṁ ñātaṁ katvā taṇhaṁ tīreti aniccato dukkhato rogato gaṇḍato …pe…",
+        "translation": "So you’ve done what leads to your relatives.",
+        "source": "cnd11:52.2_0"
+    },
+    {
+        "source_sentence": "nissaraṇato tīreti—",
+        "translation": "Regarding an escape from it:",
+        "source": "cnd11:52.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ tīraṇapariññā.",
+        "translation": "This is the way of completely understanding.",
+        "source": "cnd11:52.4_0"
+    },
+    {
+        "source_sentence": "Katamā pahānapariññā?",
+        "translation": "What is the completely understanding of giving up?",
+        "source": "cnd11:53.1_0"
+    },
+    {
+        "source_sentence": "Evaṁ tīrayitvā taṇhaṁ pajahati vinodeti byantīkaroti anabhāvaṁ gameti.",
+        "translation": "So when you give up craving, get rid of it, eliminate it, and obliterate it.",
+        "source": "cnd11:53.2_0"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "cnd11:53.3_0"
+    },
+    {
+        "source_sentence": "“yo, bhikkhave, taṇhāya chandarāgo taṁ pajahatha.",
+        "translation": "“Mendicants, give up desire and greed for craving.",
+        "source": "cnd11:53.4_0"
+    },
+    {
+        "source_sentence": "Evaṁ sā taṇhā pahīnā bhavissati ucchinnamūlā tālāvatthukatā anabhāvaṅkatā āyatiṁ anuppādadhammā”.",
+        "translation": "In this way that craving will be given up, cut off at the root, made like a palm stump, obliterated, and unable to arise in the future.”",
+        "source": "cnd11:53.5_0"
+    },
+    {
+        "source_sentence": "Ayaṁ pahānapariññā.",
+        "translation": "This is the end of giving up.",
+        "source": "cnd11:53.6_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāyā**ti taṇhaṁ imāhi tīhi pariññāhi parijānitvā.",
+        "translation": "When craving is completely understood, these three cravings do so after completely understood them.",
+        "source": "cnd11:53.7_0"
+    },
+    {
+        "source_sentence": "**Anāsavā**ti cattāro āsavā—",
+        "translation": "Four defilements:",
+        "source": "cnd11:53.8_0"
+    },
+    {
+        "source_sentence": "kāmāsavo, bhavāsavo, diṭṭhāsavo, avijjāsavo.",
+        "translation": "the defilements of sensuality, desire to be reborn, and ignorance.",
+        "source": "cnd11:53.9_0"
+    },
+    {
+        "source_sentence": "Yesaṁ ime āsavā pahīnā ucchinnamūlā tālāvatthukatā anabhāvaṅkatā āyatiṁ anuppādadhammā, te vuccanti anāsavā arahanto khīṇāsavā—",
+        "translation": "These are the defilements that lead to the future. They’re cut off at the root, made like a palm stump, obliterated, and unable to arise in the future.",
+        "source": "cnd11:53.10_0"
+    },
+    {
+        "source_sentence": "taṇhaṁ pariññāya anāsavā.",
+        "translation": "who, by fully knowing craving, are pollutant-free -",
+        "source": "cnd11:53.11_0"
+    },
+    {
+        "source_sentence": "**Te ve narā oghatiṇṇāti brūmī**ti ye taṇhaṁ pariññāya anāsavā, te kāmoghaṁ tiṇṇā bhavoghaṁ tiṇṇā diṭṭhoghaṁ tiṇṇā avijjoghaṁ tiṇṇā sabbasaṁsārapathaṁ tiṇṇā uttiṇṇā nitthiṇṇā atikkantā samatikkantā vītivattāti brūmi ācikkhāmi desemi paññapemi paṭṭhapemi vivarāmi vibhajāmi uttānīkaromi pakāsemīti—",
+        "translation": "So I don’t tell them how to cross over the flood.",
+        "source": "cnd11:54.1_0"
+    },
+    {
+        "source_sentence": "taṇhaṁ pariññāya anāsavāse te ve narā oghatiṇṇāti brūmi.",
+        "translation": "I say that craving is completely understood, the undefiled in you,",
+        "source": "cnd11:54.2_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd11:54.3_0"
+    },
+    {
+        "source_sentence": "“Nāhaṁ sabbe samaṇabrāhmaṇāse,",
+        "translation": "“I do not say that all ascetics and brahmins,",
+        "source": "cnd11:55.1_0"
+    },
+    {
+        "source_sentence": "(nandāti bhagavā)",
+        "translation": "And he said the Buddha Nandā,",
+        "source": "cnd11:55.2_0"
+    },
+    {
+        "source_sentence": "Jātijarāya nivutāti brūmi;",
+        "translation": "are enveloped in birth and old age:",
+        "source": "cnd11:55.3_0"
+    },
+    {
+        "source_sentence": "Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā,",
+        "translation": "whoever here has given up (reliance on) what is seen,",
+        "source": "cnd11:55.4_0"
+    },
+    {
+        "source_sentence": "Sīlabbataṁ vāpi pahāya sabbaṁ.",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "cnd11:55.5_0"
+    },
+    {
+        "source_sentence": "Anekarūpampi pahāya sabbaṁ,",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd11:56.1_0"
+    },
+    {
+        "source_sentence": "Taṇhaṁ pariññāya anāsavāse;",
+        "translation": "who, by fully knowing craving, are pollutant-free -",
+        "source": "cnd11:56.2_0"
+    },
+    {
+        "source_sentence": "Te ve narā oghatiṇṇāti brūmī”ti.",
+        "translation": "they don’t have worry about.”",
+        "source": "cnd11:56.3_0"
+    },
+    {
+        "source_sentence": "**Etābhinandāmi vaco mahesino,**",
+        "translation": "I rejoice in this teaching, the great hermit!",
+        "source": "cnd11:57.1_0"
+    },
+    {
+        "source_sentence": "**Sukittitaṁ gotamanūpadhīkaṁ;**",
+        "translation": "Gotamaks, well-free:",
+        "source": "cnd11:57.2_0"
+    },
+    {
+        "source_sentence": "**Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā,**",
+        "translation": "whoever here has given up (reliance on) what is seen,",
+        "source": "cnd11:57.3_0"
+    },
+    {
+        "source_sentence": "**Sīlabbataṁ vāpi pahāya sabbaṁ.**",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "cnd11:57.4_0"
+    },
+    {
+        "source_sentence": "**Anekarūpampi pahāya sabbaṁ,**",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd11:58.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāya anāsavāse;**",
+        "translation": "who, by fully knowing craving, are pollutant-free -",
+        "source": "cnd11:58.2_0"
+    },
+    {
+        "source_sentence": "**Ahampi te oghatiṇṇāti brūmi. **",
+        "translation": "I say they have crossed the flood.",
+        "source": "cnd11:58.3_0"
+    },
+    {
+        "source_sentence": "**Etābhinandāmi vaco mahesino**ti.",
+        "translation": "I rejoice in this teaching, the great hermit!",
+        "source": "cnd11:59.1_0"
+    },
+    {
+        "source_sentence": "**Etan**ti tuyhaṁ vacanaṁ byappathaṁ desanaṁ anusāsanaṁ anusiṭṭhaṁ nandāmi abhinandāmi modāmi anumodāmi icchāmi sādiyāmi patthayāmi pihayāmi abhijappāmi.",
+        "translation": "Living in what is beneficial for you, I’m not bowing down to you, having rejoiced in material pleasures. And I accept it.",
+        "source": "cnd11:59.2_0"
+    },
+    {
+        "source_sentence": "**Mahesino**ti kiṁ mahesi bhagavā?",
+        "translation": "What is the great hermit?",
+        "source": "cnd11:59.3_0"
+    },
+    {
+        "source_sentence": "Mahantaṁ sīlakkhandhaṁ esī gavesī pariyesīti mahesi …pe…",
+        "translation": "searching for the ethical behavior ...",
+        "source": "cnd11:59.4_0"
+    },
+    {
+        "source_sentence": "kahaṁ narāsabhoti mahesīti—",
+        "translation": "Where are I not satisfying?",
+        "source": "cnd11:59.5_0"
+    },
+    {
+        "source_sentence": "etābhinandāmi vaco mahesino.",
+        "translation": "I rejoice in this teaching, the great hermit!",
+        "source": "cnd11:59.6_0"
+    },
+    {
+        "source_sentence": "**Sukittitaṁ gotamanūpadhīkan**ti.",
+        "translation": "Gotama practices well:",
+        "source": "cnd11:60.1_0"
+    },
+    {
+        "source_sentence": "**Sukittitan**ti sukittitaṁ suācikkhitaṁ sudesitaṁ supaññapitaṁ supaṭṭhapitaṁ suvivaṭaṁ suvibhattaṁ suuttānīkataṁ supakāsitaṁ.",
+        "translation": "well-classed, well-restrained, well-proclaimed, well-proclaimed, well-leared, well-made, and well-proclaimed.",
+        "source": "cnd11:60.2_0"
+    },
+    {
+        "source_sentence": "**Gotamanūpadhīkan**ti upadhī vuccanti kilesā ca khandhā ca abhisaṅkhārā ca.",
+        "translation": "(They are) components that are called the aggregates, the defilements and the defilement of the corruptions.",
+        "source": "cnd11:60.3_0"
+    },
+    {
+        "source_sentence": "Upadhippahānaṁ upadhivūpasamaṁ upadhinissaggaṁ upadhipaṭippassaddhaṁ amataṁ nibbānanti—",
+        "translation": "Calmness is the vital condition for attachments; it’s the culmination of attachments, and the deathless.",
+        "source": "cnd11:60.4_0"
+    },
+    {
+        "source_sentence": "sukittitaṁ gotamanūpadhīkaṁ.",
+        "translation": "Gotamaks, well-free:",
+        "source": "cnd11:60.5_0"
+    },
+    {
+        "source_sentence": "**Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā, sīlabbataṁ vāpi pahāya sabban**ti ye sabbā diṭṭhasuddhiyo pahāya jahitvā pajahitvā vinodetvā byantīkaritvā anabhāvaṁ gametvā.",
+        "translation": "After giving up all (working) what is seen, heard, thought, and known, he gives up all, and substaining it all, he departs, having given up all suffering.",
+        "source": "cnd11:61.1_0"
+    },
+    {
+        "source_sentence": "Ye sabbā sutasuddhiyo …pe…",
+        "translation": "Anyone who makes purity of mindfulness well pure in mind ...",
+        "source": "cnd11:61.2_0"
+    },
+    {
+        "source_sentence": "ye sabbā mutasuddhiyo …",
+        "translation": "You should purification of mind from all ...",
+        "source": "cnd11:61.3_0"
+    },
+    {
+        "source_sentence": "ye sabbā diṭṭhasutamutasuddhiyo …",
+        "translation": "Anyone who has seen this purification should be purification through overcoming any particular purity of mindfulness meditation.",
+        "source": "cnd11:61.4_0"
+    },
+    {
+        "source_sentence": "ye sabbā sīlasuddhiyo …",
+        "translation": "Anyone who enters purification of ethics ...",
+        "source": "cnd11:61.5_0"
+    },
+    {
+        "source_sentence": "ye sabbā vatasuddhiyo …",
+        "translation": "Anyone who comes to be cleansed by anyone ...",
+        "source": "cnd11:61.6_0"
+    },
+    {
+        "source_sentence": "ye sabbā sīlabbatasuddhiyo pahāya jahitvā pajahitvā vinodetvā byantīkaritvā anabhāvaṁ gametvāti—",
+        "translation": "After giving up all precepts and observances, he gives up all these precepts and observances, but then, having given them up, he departs.",
+        "source": "cnd11:61.7_0"
+    },
+    {
+        "source_sentence": "ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā, sīlabbataṁ vāpi pahāya sabbaṁ.",
+        "translation": "whoever has given up (reliance on) what is seen, heard, and thought,",
+        "source": "cnd11:61.8_0"
+    },
+    {
+        "source_sentence": "**Anekarūpampi pahāya sabban**ti anekavidhakotūhalamaṅgalena suddhiṁ visuddhiṁ parisuddhiṁ muttiṁ vimuttiṁ parimuttiṁ pahāya jahitvā pajahitvā vinodetvā byantīkaritvā anabhāvaṁ gametvāti—",
+        "translation": "And after giving up all of using uncontrolled gold coins, cleansing the pure flawless, free of corruptions, pliable, workable, steady, and imperturbable, having given up all knowledge and freedom,",
+        "source": "cnd11:62.1_0"
+    },
+    {
+        "source_sentence": "anekarūpampi pahāya sabbaṁ.",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd11:62.2_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāya anāsavāse, ahampi te oghatiṇṇāti brūmī**ti.",
+        "translation": "I say that craving is completed, without pollutants, I say.",
+        "source": "cnd11:63.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti rūpataṇhā saddataṇhā gandhataṇhā rasataṇhā phoṭṭhabbataṇhā dhammataṇhā.",
+        "translation": "craving for sights, sounds, smells, tastes, touches, and thoughts.",
+        "source": "cnd11:63.2_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāyā**ti taṇhaṁ tīhi pariññāhi parijānitvā—",
+        "translation": "When craving is completely understood, one who has completely understood the three cravings and the complete understanding of craving,",
+        "source": "cnd11:63.3_0"
+    },
+    {
+        "source_sentence": "ñātapariññāya, tīraṇapariññāya, pahānapariññāya.",
+        "translation": "and completely understanding the course of relatives,",
+        "source": "cnd11:63.4_0"
+    },
+    {
+        "source_sentence": "Katamā ñātapariññā?",
+        "translation": "What is the end of relatives?",
+        "source": "cnd11:63.5_0"
+    },
+    {
+        "source_sentence": "Taṇhaṁ jānāti—",
+        "translation": "he knows craving—",
+        "source": "cnd11:63.6_0"
+    },
+    {
+        "source_sentence": "ayaṁ rūpataṇhā, ayaṁ saddataṇhā, ayaṁ gandhataṇhā, ayaṁ rasataṇhā, ayaṁ phoṭṭhabbataṇhā, ayaṁ dhammataṇhāti jānāti passati—",
+        "translation": "This is craving for sights, sounds, smells, tastes, touches, and thoughts. That is craving for touches. This is craving for thoughts.",
+        "source": "cnd11:63.7_0"
+    },
+    {
+        "source_sentence": "ayaṁ ñātapariññā.",
+        "translation": "this is the end of relatives,",
+        "source": "cnd11:63.8_0"
+    },
+    {
+        "source_sentence": "Katamā tīraṇapariññā?",
+        "translation": "What are the three perils that completely understand?",
+        "source": "cnd11:64.1_0"
+    },
+    {
+        "source_sentence": "Evaṁ ñātaṁ katvā taṇhaṁ tīreti aniccato dukkhato rogato gaṇḍato sallato aghato ābādhato parato palokato ītito upaddavato bhayato upasaggato calato pabhaṅguto addhuvato atāṇato aleṇato asaraṇato asaraṇībhūtato rittato tucchato suññato anattato ādīnavato vipariṇāmadhammato asārakato aghamūlato vadhakato vibhavato sāsavato saṅkhatato mārāmisato jātidhammato jarādhammato byādhidhammato maraṇadhammato sokaparidevadukkhadomanassupāyāsadhammato saṅkilesadhammato samudayato atthaṅgamato assādato ādīnavato nissaraṇato tīreti—",
+        "translation": "After seeing this, you’re afflicted, suffering, and produced by craving. And as diseased, they dart from sickness, as an abscess, as a dart, as misery, as an affliction, as alien, as falling apart, as empty, as not-self.",
+        "source": "cnd11:64.2_0"
+    },
+    {
+        "source_sentence": "ayaṁ tīraṇapariññā.",
+        "translation": "This is the way of completely understanding.",
+        "source": "cnd11:64.3_0"
+    },
+    {
+        "source_sentence": "Katamā pahānapariññā?",
+        "translation": "What is the completely understanding of giving up?",
+        "source": "cnd11:65.1_0"
+    },
+    {
+        "source_sentence": "Evaṁ tīrayitvā taṇhaṁ pajahati vinodeti byantīkaroti anabhāvaṁ gameti—",
+        "translation": "After giving up craving, they give up craving, get rid of, eliminate, and obliterate those thoughts.",
+        "source": "cnd11:65.2_0"
+    },
+    {
+        "source_sentence": "ayaṁ pahānapariññā.",
+        "translation": "This is the end of giving up.",
+        "source": "cnd11:65.3_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāyā**ti taṇhaṁ imāhi tīhi pariññāhi parijānitvā.",
+        "translation": "When craving is completely understood, these three cravings do so after completely understood them.",
+        "source": "cnd11:66.1_0"
+    },
+    {
+        "source_sentence": "**Anāsavā**ti cattāro āsavā—",
+        "translation": "Four defilements:",
+        "source": "cnd11:66.2_0"
+    },
+    {
+        "source_sentence": "kāmāsavo, bhavāsavo, diṭṭhāsavo, avijjāsavo.",
+        "translation": "the defilements of sensuality, desire to be reborn, and ignorance.",
+        "source": "cnd11:66.3_0"
+    },
+    {
+        "source_sentence": "Yesaṁ ime āsavā pahīnā ucchinnamūlā tālāvatthukatā anabhāvaṅkatā āyatiṁ anuppādadhammā, te vuccanti anāsavā arahanto khīṇāsavā.",
+        "translation": "Those who have given up the defilements that should be cut off at the root, made like a palm stump, obliterated, and unable to arise in the future.",
+        "source": "cnd11:66.4_0"
+    },
+    {
+        "source_sentence": "**Taṇhaṁ pariññāya anāsavāse, ahampi te oghatiṇṇā**ti.",
+        "translation": "who has completely understood craving, without pollutants, and so am I.",
+        "source": "cnd11:66.5_0"
+    },
+    {
+        "source_sentence": "**Brūmī**ti ye taṇhaṁ pariññāya anāsavā, ahampi te kāmoghaṁ tiṇṇā bhavoghaṁ tiṇṇā diṭṭhoghaṁ tiṇṇā avijjoghaṁ tiṇṇā sabbasaṁsārapathaṁ tiṇṇā uttiṇṇā nitthiṇṇā atikkantā samatikkantā vītivattāti brūmi vadāmīti—",
+        "translation": "I say that, when it comes to the crossroads, has crossed over the flood and cuts off the flood, bondservants, workers, and staff; and anywhere because I have crossed over the flood. May I say that there are ascetics of other religions, but say.",
+        "source": "cnd11:66.6_0"
+    },
+    {
+        "source_sentence": "taṇhaṁ pariññāya anāsavāse, ahampi te oghatiṇṇāti brūmi.",
+        "translation": "When craving is completely understood they are pollutants, I say.",
+        "source": "cnd11:66.7_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "The brahmin then thought,",
+        "source": "cnd11:66.8_0"
+    },
+    {
+        "source_sentence": "“Etābhinandāmi vaco mahesino,",
+        "translation": "“I greatly rejoice in that, the great hermit!",
+        "source": "cnd11:67.1_0"
+    },
+    {
+        "source_sentence": "Sukittitaṁ gotamanūpadhīkaṁ;",
+        "translation": "Gotamaks, well-free:",
+        "source": "cnd11:67.2_0"
+    },
+    {
+        "source_sentence": "Ye sīdha diṭṭhaṁ va sutaṁ mutaṁ vā,",
+        "translation": "whoever here has given up (reliance on) what is seen,",
+        "source": "cnd11:67.3_0"
+    },
+    {
+        "source_sentence": "Sīlabbataṁ vāpi pahāya sabbaṁ.",
+        "translation": "heard, or sensed, and virtue and practices,",
+        "source": "cnd11:67.4_0"
+    },
+    {
+        "source_sentence": "Anekarūpampi pahāya sabbaṁ,",
+        "translation": "and has also given up all the countless (other) ways,",
+        "source": "cnd11:68.1_0"
+    },
+    {
+        "source_sentence": "Taṇhaṁ pariññāya anāsavāse;",
+        "translation": "who, by fully knowing craving, are pollutant-free -",
+        "source": "cnd11:68.2_0"
+    },
+    {
+        "source_sentence": "Ahampi te oghatiṇṇāti brūmī”ti.",
+        "translation": "I have crossed the flood.”",
+        "source": "cnd11:68.3_0"
+    },
+    {
+        "source_sentence": "Nandamāṇavapucchāniddeso sattamo.",
+        "translation": "The seventh question of Nandaka’s Moon,",
+        "source": "cnd11:68.4_0"
+    }
+]

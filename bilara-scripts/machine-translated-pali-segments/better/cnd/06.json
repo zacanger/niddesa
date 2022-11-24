@@ -1,0 +1,842 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd6:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavagganiddesa",
+        "translation": "Pārāyanavagganiddesa",
+        "source": "cnd6:0.2_0"
+    },
+    {
+        "source_sentence": "Pucchāniddesa",
+        "translation": "Pucchāniddesa",
+        "source": "cnd6:0.3_0"
+    },
+    {
+        "source_sentence": "2. Tissametteyyamāṇavapucchāniddesa",
+        "translation": "This I ask of such a question, Description of the Three Times",
+        "source": "cnd6:0.4_0"
+    },
+    {
+        "source_sentence": "**Kodha santusito loke,**",
+        "translation": "content in the world,",
+        "source": "cnd6:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā tissametteyyo)",
+        "translation": "adding, “Venerable Tissa is better",
+        "source": "cnd6:1.2_0"
+    },
+    {
+        "source_sentence": "**Kassa no santi iñjitā;**",
+        "translation": "Whose meditation are stupid?",
+        "source": "cnd6:1.3_0"
+    },
+    {
+        "source_sentence": "**Ko ubhantamabhiññāya,**",
+        "translation": "Who is studied with knowledge?",
+        "source": "cnd6:1.4_0"
+    },
+    {
+        "source_sentence": "**Majjhe mantā na lippati;**",
+        "translation": "and is not stuck in the middle.",
+        "source": "cnd6:1.5_0"
+    },
+    {
+        "source_sentence": "**Kaṁ brūsi mahāpurisoti,**",
+        "translation": "a great man,",
+        "source": "cnd6:1.6_0"
+    },
+    {
+        "source_sentence": "**Ko idha sibbinimaccagā. **",
+        "translation": "here who is the seamstress here?",
+        "source": "cnd6:1.7_0"
+    },
+    {
+        "source_sentence": "**Kodha santusito loke**ti ko loke tuṭṭho santuṭṭho attamano paripuṇṇasaṅkappoti—",
+        "translation": "Santusita is content in the world, contented and happy. And they have got all they wished for.",
+        "source": "cnd6:2.1_0"
+    },
+    {
+        "source_sentence": "kodha santusito loke.",
+        "translation": "content in the world,",
+        "source": "cnd6:2.2_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā tissametteyyo**ti.",
+        "translation": "adding, “Venerable Tissa is better.",
+        "source": "cnd6:3.1_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi padasaṁsaggo padapāripūrī akkharasamavāyo byañjanasiliṭṭhatā padānupubbatāpetaṁ—",
+        "translation": "wishes: Physical tricks compounds of the meaning, filled with phrases, and blows.",
+        "source": "cnd6:3.2_0"
+    },
+    {
+        "source_sentence": "iccāti.",
+        "translation": "With the intention of making:",
+        "source": "cnd6:3.3_0"
+    },
+    {
+        "source_sentence": "**Āyasmā**ti piyavacanaṁ garuvacanaṁ sagāravasappatissādhivacanametaṁ—",
+        "translation": "this is a term for respect and reverential salutation.",
+        "source": "cnd6:3.4_0"
+    },
+    {
+        "source_sentence": "āyasmāti.",
+        "translation": "Venerable Dismission:",
+        "source": "cnd6:3.5_0"
+    },
+    {
+        "source_sentence": "**Tisso**ti tassa brāhmaṇassa nāmaṁ saṅkhā samaññā paññatti vohāro nāmaṁ nāmakammaṁ nāmadheyyaṁ nirutti byañjanaṁ abhilāpo.",
+        "translation": "Then it’s a name for the three classes of rebirth phenomena that designates the name and clan name.",
+        "source": "cnd6:3.6_0"
+    },
+    {
+        "source_sentence": "**Metteyyo**ti tassa brāhmaṇassa gottaṁ saṅkhā samaññā paññatti vohāroti—",
+        "translation": "It’s better for him to understand that the class of rebirth is reckoned as a brahmin.",
+        "source": "cnd6:3.7_0"
+    },
+    {
+        "source_sentence": "iccāyasmā tissametteyyo.",
+        "translation": "adding, “Venerable Tissa is better",
+        "source": "cnd6:3.8_0"
+    },
+    {
+        "source_sentence": "**Kassa no santi iñjitā**ti taṇhiñjitaṁ diṭṭhiñjitaṁ māniñjitaṁ kilesiñjitaṁ kāmiñjitaṁ.",
+        "translation": "Whose view is defiled, Viewed, bright, flawless, and imperturbable.",
+        "source": "cnd6:4.1_0"
+    },
+    {
+        "source_sentence": "Kassime iñjitā natthi na santi na saṁvijjanti nupalabbhanti pahīnā samucchinnā vūpasantā paṭipassaddhā abhabbuppattikā ñāṇagginā daḍḍhāti—",
+        "translation": "Where are they not found, nor are they abandoned, cut off, destroyed, or contemptible?",
+        "source": "cnd6:4.2_0"
+    },
+    {
+        "source_sentence": "kassa no santi iñjitā.",
+        "translation": "Whose meditation are stupid?",
+        "source": "cnd6:4.3_0"
+    },
+    {
+        "source_sentence": "**Ko ubhantamabhiññāyā**ti ko ubho ante abhiññāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvāti—",
+        "translation": "Who, knowing he was thinking: “Who knows my virtue? Who is the discoverer of, who knows?” and having experienced them, he bowed and respectfully circled them, keeping him on his right, before leaving,",
+        "source": "cnd6:5.1_0"
+    },
+    {
+        "source_sentence": "ko ubhantamabhiññāya.",
+        "translation": "Who is studied with knowledge?",
+        "source": "cnd6:5.2_0"
+    },
+    {
+        "source_sentence": "**Majjhe mantā na lippatī**ti majjhe mantāya na lippati, alitto anupalitto nikkhanto nissaṭo vippamutto visaññutto vimariyādikatena cetasā viharatīti—",
+        "translation": "They don’t get caught up in the midst of the hymns. They don’t hold fast to their mind without hurting or liberating. They live with a heart free of limits.",
+        "source": "cnd6:6.1_0"
+    },
+    {
+        "source_sentence": "majjhe mantā na lippati.",
+        "translation": "and is not stuck in the middle.",
+        "source": "cnd6:6.2_0"
+    },
+    {
+        "source_sentence": "**Kaṁ brūsi mahāpuriso**ti mahāpuriso aggapuriso seṭṭhapuriso viseṭṭhapuriso pāmokkhapuriso uttamapuriso padhānapuriso pavarapurisoti.",
+        "translation": "He is a great man, a good person, an excellent person, who is best of men, a great man,",
+        "source": "cnd6:7.1_0"
+    },
+    {
+        "source_sentence": "Kaṁ brūsi kaṁ kathesi kaṁ maññasi kaṁ bhaṇasi kaṁ passati kaṁ voharasīti—",
+        "translation": "Who do you think, Simila? Are you a about this? Do you see yours? Are you imagining about this?”",
+        "source": "cnd6:7.2_0"
+    },
+    {
+        "source_sentence": "kaṁ brūsi mahāpurisoti.",
+        "translation": "a great man,",
+        "source": "cnd6:7.3_0"
+    },
+    {
+        "source_sentence": "**Ko idha sibbinimaccagā**ti ko idha sibbiniṁ taṇhaṁ ajjhagā upaccagā atikkanto samatikkanto vītivattoti—",
+        "translation": "Who here has arisen in this very life, and who here has passed away, ceased and perished?",
+        "source": "cnd6:8.1_0"
+    },
+    {
+        "source_sentence": "ko idha sibbinimaccagā.",
+        "translation": "here who is the seamstress here?",
+        "source": "cnd6:8.2_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "That brahmin is why he’s told:",
+        "source": "cnd6:8.3_0"
+    },
+    {
+        "source_sentence": "“Kodha santusito loke,",
+        "translation": "“Who’s content in the world?",
+        "source": "cnd6:9.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā tissametteyyo)",
+        "translation": "adding, “Venerable Tissa is better",
+        "source": "cnd6:9.2_0"
+    },
+    {
+        "source_sentence": "Kassa no santi iñjitā;",
+        "translation": "Whose meditation are stupid?",
+        "source": "cnd6:9.3_0"
+    },
+    {
+        "source_sentence": "Ko ubhantamabhiññāya,",
+        "translation": "Who is studied with knowledge?",
+        "source": "cnd6:9.4_0"
+    },
+    {
+        "source_sentence": "Majjhe mantā na lippati;",
+        "translation": "and is not stuck in the middle.",
+        "source": "cnd6:9.5_0"
+    },
+    {
+        "source_sentence": "Kaṁ brūsi mahāpurisoti,",
+        "translation": "a great man,",
+        "source": "cnd6:9.6_0"
+    },
+    {
+        "source_sentence": "Ko idha sibbinimaccagā”ti.",
+        "translation": "what is the seamstress here?”",
+        "source": "cnd6:9.7_0"
+    },
+    {
+        "source_sentence": "**Kāmesu brahmacariyavā,**",
+        "translation": "The spiritual life is lived under the heading of sensual pleasures.",
+        "source": "cnd6:10.1_0"
+    },
+    {
+        "source_sentence": "(metteyyāti bhagavā)",
+        "translation": "The Buddha has good will,",
+        "source": "cnd6:10.2_0"
+    },
+    {
+        "source_sentence": "**Vītataṇho sadā sato;**",
+        "translation": "rid of craving, always mindful,",
+        "source": "cnd6:10.3_0"
+    },
+    {
+        "source_sentence": "**Saṅkhāya nibbuto bhikkhu,**",
+        "translation": "they’ve become quenched.",
+        "source": "cnd6:10.4_0"
+    },
+    {
+        "source_sentence": "**Tassa no santi iñjitā. **",
+        "translation": "But in fact, there are higher.",
+        "source": "cnd6:10.5_0"
+    },
+    {
+        "source_sentence": "**Kāmesu brahmacariyavā**ti.",
+        "translation": "The spiritual life under the heading of sensual pleasures:",
+        "source": "cnd6:11.1_0"
+    },
+    {
+        "source_sentence": "**Kāmā**ti uddānato dve kāmā—",
+        "translation": "sensual pleasures:",
+        "source": "cnd6:11.2_0"
+    },
+    {
+        "source_sentence": "vatthukāmā ca kilesakāmā ca …pe…",
+        "translation": "They want to site for objects and objects for objects.",
+        "source": "cnd6:11.3_0"
+    },
+    {
+        "source_sentence": "ime vuccanti vatthukāmā …pe…",
+        "translation": "These are said to be the basis for objects.",
+        "source": "cnd6:11.4_0"
+    },
+    {
+        "source_sentence": "ime vuccanti kilesakāmā.",
+        "translation": "These are called the defilements.",
+        "source": "cnd6:11.5_0"
+    },
+    {
+        "source_sentence": "**Brahmacariyaṁ** vuccati asaddhammasamāpattiyā ārati virati paṭivirati veramaṇī akiriyā akaraṇaṁ anajjhāpatti velāanatikkamo.",
+        "translation": "the spiritual life is called abstaining from sexuality; refraining from distributing from bad qualities; he refrains from making amends for an offense.",
+        "source": "cnd6:11.6_0"
+    },
+    {
+        "source_sentence": "Api ca nippariyāyena brahmacariyaṁ vuccati ariyo aṭṭhaṅgiko maggo, seyyathidaṁ—",
+        "translation": "however, the spiritual path is called the noble eightfold path, that is:",
+        "source": "cnd6:11.7_0"
+    },
+    {
+        "source_sentence": "sammādiṭṭhi, sammāsaṅkappo, sammāvācā, sammākammanto, sammāājīvo, sammāvāyāmo, sammāsati, sammāsamādhi.",
+        "translation": "right view, right thought, right speech, right action, right livelihood, right effort, right mindfulness, and right immersion.",
+        "source": "cnd6:11.8_0"
+    },
+    {
+        "source_sentence": "Yo iminā ariyena aṭṭhaṅgikena maggena upeto samupeto upāgato samupāgato upapanno samupapanno samannāgato, so vuccati brahmacariyavā.",
+        "translation": "When someone has this noble eightfold path, they’re called ‘the spiritual life’.",
+        "source": "cnd6:11.9_0"
+    },
+    {
+        "source_sentence": "Yathā ca dhanena dhanavāti vuccati, bhogena bhogavāti vuccati, yasena yasavāti vuccati, sippena sippavāti vuccati, sīlena sīlavāti vuccati, vīriyena vīriyavāti vuccati, paññāya paññavāti vuccati, vijjāya vijjavāti vuccati—",
+        "translation": "And just as one is called ‘a wealth’ because they are called ‘accomplished in wealth’—accomplished in wisdom’.",
+        "source": "cnd6:11.10_0"
+    },
+    {
+        "source_sentence": "evameva yo iminā ariyena aṭṭhaṅgikena maggena upeto samupeto upāgato samupāgato upapanno samupapanno samannāgato, so vuccati brahmacariyavāti—",
+        "translation": "is called a noble eightfold path—",
+        "source": "cnd6:11.11_0"
+    },
+    {
+        "source_sentence": "kāmesu brahmacariyavā.",
+        "translation": "The spiritual life is lived under the heading of sensual pleasures.",
+        "source": "cnd6:11.12_0"
+    },
+    {
+        "source_sentence": "**Metteyyā**ti bhagavā taṁ brāhmaṇaṁ gottena ālapati.",
+        "translation": "The Buddha has given that kind of brahmin Gotamī.",
+        "source": "cnd6:12.1_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti—",
+        "translation": "The Buddha has designated Māra’s statements, that is,",
+        "source": "cnd6:12.2_0"
+    },
+    {
+        "source_sentence": "metteyyāti bhagavā.",
+        "translation": "The Buddha has good will,",
+        "source": "cnd6:12.3_0"
+    },
+    {
+        "source_sentence": "**Vītataṇho sadā sato**ti.",
+        "translation": "rid of craving, always mindful.",
+        "source": "cnd6:13.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti rūpataṇhā …pe… dhammataṇhā.",
+        "translation": "craving for sights ...",
+        "source": "cnd6:13.2_0"
+    },
+    {
+        "source_sentence": "Yassesā taṇhā pahīnā samucchinnā vūpasantā paṭipassaddhā abhabbuppattikā ñāṇagginā daḍḍhā, so vuccati vītataṇho cattataṇho vantataṇho muttataṇho pahīnataṇho paṭinissaṭṭhataṇho vītarāgo cattarāgo vantarāgo muttarāgo pahīnarāgo paṭinissaṭṭharāgo nicchāto nibbuto sītibhūto sukhappaṭisaṁvedī brahmabhūtena attanā viharati.",
+        "translation": "They’ve cut off craving, untied the attachment to rebirth, old age, and death, from sorrow, lamentation, pain, sadness, and distress.",
+        "source": "cnd6:13.3_0"
+    },
+    {
+        "source_sentence": "**Sadā**ti sadā sabbadā sabbakālaṁ niccakālaṁ dhuvakālaṁ satataṁ samitaṁ abbokiṇṇaṁ poṅkhānupoṅkhaṁ udakūmikajātaṁ avīci santati sahitaṁ phassitaṁ purebhattaṁ pacchābhattaṁ purimayāmaṁ majjhimayāmaṁ pacchimayāmaṁ kāḷe juṇhe vasse hemante gimhe purime vayokhandhe majjhime vayokhandhe pacchime vayokhandhe.",
+        "translation": "Standing at the time of the whole very time, he is always clung to how to touch all over the hundred times of contact, in the first watch, the middle watch, and in the last watch. Hes whispered in the middle have been brought by the top, ashes, when there is needle case, etc., before the last watch of the night and its distinction between.",
+        "source": "cnd6:13.4_0"
+    },
+    {
+        "source_sentence": "**Sato**ti catūhi kāraṇehi sato—",
+        "translation": "Sattuka for four reasons:",
+        "source": "cnd6:13.5_0"
+    },
+    {
+        "source_sentence": "kāye kāyānupassanāsatipaṭṭhānaṁ bhāvento sato,",
+        "translation": "developing mindfulness of the body,",
+        "source": "cnd6:13.6_0"
+    },
+    {
+        "source_sentence": "vedanāsu vedanānupassanāsatipaṭṭhānaṁ bhāvento sato, citte cittānupassanāsatipaṭṭhānaṁ bhāvento sato, dhammesu dhammānupassanāsatipaṭṭhānaṁ bhāvento sato …pe…",
+        "translation": "Contemplating the feelings that are unification of mind. Mindfulness is the mind in samādhi. Mindfulness is the physical endurance of the mind, thoughts, and consciousness. ...",
+        "source": "cnd6:13.7_0"
+    },
+    {
+        "source_sentence": "so vuccati satoti—",
+        "translation": "they’re called a sentient being.",
+        "source": "cnd6:13.8_0"
+    },
+    {
+        "source_sentence": "vītataṇho sadā sato.",
+        "translation": "rid of craving, always mindful,",
+        "source": "cnd6:13.9_0"
+    },
+    {
+        "source_sentence": "**Saṅkhāya nibbuto bhikkhū**ti saṅkhā vuccati ñāṇaṁ.",
+        "translation": "they’re called ‘a mendicant who has become fully extinguished’.",
+        "source": "cnd6:14.1_0"
+    },
+    {
+        "source_sentence": "Yā paññā pajānanā vicayo pavicayo …pe… amoho dhammavicayo sammādiṭṭhi.",
+        "translation": "That which is wisdom, knowing, investigation, deep investigation, love, and right view.",
+        "source": "cnd6:14.2_0"
+    },
+    {
+        "source_sentence": "**Saṅkhāyā**ti saṅkhāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā, “sabbe saṅkhārā aniccā”ti saṅkhāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā,",
+        "translation": "After appraisal, he rose up into the True Dhamma and attained Absorption, including and knowing, “Hearing what is impermanent, what is said!” and he made known as ‘Choices are impermanent’.",
+        "source": "cnd6:14.3_0"
+    },
+    {
+        "source_sentence": "“sabbe saṅkhārā dukkhā”ti … “sabbe dhammā anattā”ti … “avijjāpaccayā saṅkhārā”ti …pe…",
+        "translation": "All conditions are suffering. ...",
+        "source": "cnd6:14.4_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti saṅkhāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "“Anything that has a beginning has an end.” They perished, clinging to the teaching, and becoming distinguished, he subsequently removed.",
+        "source": "cnd6:14.5_0"
+    },
+    {
+        "source_sentence": "Atha vā aniccato saṅkhāya jānitvā …",
+        "translation": "Or alternatively, knowing what is impermanent ...",
+        "source": "cnd6:15.1_0"
+    },
+    {
+        "source_sentence": "dukkhato … rogato …",
+        "translation": "suffering ...",
+        "source": "cnd6:15.1_1"
+    },
+    {
+        "source_sentence": "gaṇḍato …",
+        "translation": "The chapter on ear-hoeks ...",
+        "source": "cnd6:15.1_2"
+    },
+    {
+        "source_sentence": "sallato …pe…",
+        "translation": "blind to the drawbacks,",
+        "source": "cnd6:15.1_3"
+    },
+    {
+        "source_sentence": "nissaraṇato saṅkhāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā.",
+        "translation": "Having destroyed the escape from (him), and being free from (the immon), he illuminated (him),",
+        "source": "cnd6:15.1_4"
+    },
+    {
+        "source_sentence": "**Nibbuto**ti rāgassa nibbāpitattā nibbuto, dosassa nibbāpitattā nibbuto, mohassa nibbāpitattā nibbuto, kodhassa …",
+        "translation": "Being extinguished, they’re extinguished due to disillusionment, dispassion, and cessation regarding anger.",
+        "source": "cnd6:15.2_0"
+    },
+    {
+        "source_sentence": "upanāhassa …",
+        "translation": "hostility ...",
+        "source": "cnd6:15.2_1"
+    },
+    {
+        "source_sentence": "makkhassa …",
+        "translation": "Makkhali ...",
+        "source": "cnd6:15.2_2"
+    },
+    {
+        "source_sentence": "paḷāsassa … issāya …",
+        "translation": "contempt ...",
+        "source": "cnd6:15.2_3"
+    },
+    {
+        "source_sentence": "macchariyassa … māyāya …",
+        "translation": "stinginess ...",
+        "source": "cnd6:15.2_4"
+    },
+    {
+        "source_sentence": "sāṭheyyassa …",
+        "translation": "deviousness ...",
+        "source": "cnd6:15.2_5"
+    },
+    {
+        "source_sentence": "thambhassa …",
+        "translation": "obstinacy ...",
+        "source": "cnd6:15.2_6"
+    },
+    {
+        "source_sentence": "sārambhassa …",
+        "translation": "aggression ...",
+        "source": "cnd6:15.2_7"
+    },
+    {
+        "source_sentence": "mānassa …",
+        "translation": "having given up conceit ...",
+        "source": "cnd6:15.2_8"
+    },
+    {
+        "source_sentence": "atimānassa …",
+        "translation": "Through conceit ...",
+        "source": "cnd6:15.2_9"
+    },
+    {
+        "source_sentence": "madassa …",
+        "translation": "the sweet ...",
+        "source": "cnd6:15.2_10"
+    },
+    {
+        "source_sentence": "pamādassa …",
+        "translation": "negligence ...",
+        "source": "cnd6:15.2_11"
+    },
+    {
+        "source_sentence": "sabbakilesānaṁ …",
+        "translation": "so that all defilements are given up ...",
+        "source": "cnd6:15.2_12"
+    },
+    {
+        "source_sentence": "sabbaduccaritānaṁ …",
+        "translation": "For all bad conduct ...",
+        "source": "cnd6:15.2_13"
+    },
+    {
+        "source_sentence": "sabbadarathānaṁ …",
+        "translation": "everyone,",
+        "source": "cnd6:15.2_14"
+    },
+    {
+        "source_sentence": "sabbapariḷāhānaṁ …",
+        "translation": "complete understanding ...",
+        "source": "cnd6:15.2_15"
+    },
+    {
+        "source_sentence": "sabbasantāpānaṁ …",
+        "translation": "everyone,",
+        "source": "cnd6:15.2_16"
+    },
+    {
+        "source_sentence": "sabbākusalābhisaṅkhārānaṁ nibbāpitattā nibbuto.",
+        "translation": "(Has) wholesome intentions were extinguished, and so on,",
+        "source": "cnd6:15.2_17"
+    },
+    {
+        "source_sentence": "**Bhikkhū**ti sattannaṁ dhammānaṁ bhinnattā bhikkhu …pe… vusitavā khīṇapunabbhavo sa bhikkhūti—",
+        "translation": "Because of breaking up the seven things that you were a mendicant who had been broken off such a curtain:",
+        "source": "cnd6:15.3_0"
+    },
+    {
+        "source_sentence": "saṅkhāya nibbuto bhikkhu.",
+        "translation": "they’ve become quenched.",
+        "source": "cnd6:15.4_0"
+    },
+    {
+        "source_sentence": "**Tassa no santi iñjitā**ti.",
+        "translation": "But they’re disturbed by us.",
+        "source": "cnd6:16.1_0"
+    },
+    {
+        "source_sentence": "**Tassā**ti arahato khīṇāsavassa.",
+        "translation": "and having destroyed the pollutants,",
+        "source": "cnd6:16.2_0"
+    },
+    {
+        "source_sentence": "**Iñjitā**ti taṇhiñjitaṁ diṭṭhiñjitaṁ māniñjitaṁ kilesiñjitaṁ kāmiñjitaṁ.",
+        "translation": "trembling, craving, disturbance, and grasping.",
+        "source": "cnd6:16.3_0"
+    },
+    {
+        "source_sentence": "Tassime iñjitā natthi na santi na saṁvijjanti nupalabbhanti pahīnā samucchinnā vūpasantā paṭipassaddhā abhabbuppattikā ñāṇagginā daḍḍhāti—",
+        "translation": "But there is no way in moderation, there is no winds that have been given up, there is no concern for them.",
+        "source": "cnd6:16.4_0"
+    },
+    {
+        "source_sentence": "tassa no santi iñjitā.",
+        "translation": "But in fact, there are higher.",
+        "source": "cnd6:16.5_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd6:16.6_0"
+    },
+    {
+        "source_sentence": "“Kāmesu brahmacariyavā,",
+        "translation": "“Among greedy living the spiritual life,",
+        "source": "cnd6:17.1_0"
+    },
+    {
+        "source_sentence": "(metteyyāti bhagavā)",
+        "translation": "The Buddha has good will,",
+        "source": "cnd6:17.2_0"
+    },
+    {
+        "source_sentence": "Vītataṇho sadā sato;",
+        "translation": "rid of craving, always mindful,",
+        "source": "cnd6:17.3_0"
+    },
+    {
+        "source_sentence": "Saṅkhāya nibbuto bhikkhu,",
+        "translation": "they’ve become quenched.",
+        "source": "cnd6:17.4_0"
+    },
+    {
+        "source_sentence": "Tassa no santi iñjitā”ti.",
+        "translation": "and someone who has disturbed wisdom.”",
+        "source": "cnd6:17.5_0"
+    },
+    {
+        "source_sentence": "**So ubhantamabhiññāya,**",
+        "translation": "Understanding your park,",
+        "source": "cnd6:18.1_0"
+    },
+    {
+        "source_sentence": "**Majjhe mantā na lippati;**",
+        "translation": "and is not stuck in the middle.",
+        "source": "cnd6:18.2_0"
+    },
+    {
+        "source_sentence": "**Taṁ brūmi mahāpurisoti,**",
+        "translation": "He is a great man, I declare,",
+        "source": "cnd6:18.3_0"
+    },
+    {
+        "source_sentence": "**So idha sibbinimaccagā. **",
+        "translation": "Here he sews here,",
+        "source": "cnd6:18.4_0"
+    },
+    {
+        "source_sentence": "**So ubhantamabhiññāya, majjhe mantā na lippatī**ti.",
+        "translation": "He is the wise man who has known both ends, and isn’t stuck in the middle.",
+        "source": "cnd6:19.1_0"
+    },
+    {
+        "source_sentence": "**Antā**ti phasso eko anto, phassasamudayo dutiyo anto, phassanirodho majjhe;",
+        "translation": "contact, the origin of contact, the cessation of contact, and the middle of contact.",
+        "source": "cnd6:19.2_0"
+    },
+    {
+        "source_sentence": "atītaṁ eko anto, anāgataṁ dutiyo anto, paccuppannaṁ majjhe;",
+        "translation": "One of the past, future, and present.",
+        "source": "cnd6:19.3_0"
+    },
+    {
+        "source_sentence": "sukhā vedanā eko anto, dukkhā vedanā dutiyo anto, adukkhamasukhā vedanā majjhe;",
+        "translation": "pleasant feeling, painful, and neutral feeling.",
+        "source": "cnd6:19.4_0"
+    },
+    {
+        "source_sentence": "nāmaṁ eko anto, rūpaṁ dutiyo anto, viññāṇaṁ majjhe;",
+        "translation": "One with name and form in the second, consciousness the middle of consciousness,",
+        "source": "cnd6:19.5_0"
+    },
+    {
+        "source_sentence": "cha ajjhattikāni āyatanāni eko anto, cha bāhirāni āyatanāni dutiyo anto, viññāṇaṁ majjhe;",
+        "translation": "The six interior sense fields are only one sense fields. The six exterior sense fields is the second consciousness.",
+        "source": "cnd6:19.6_0"
+    },
+    {
+        "source_sentence": "sakkāyo eko anto, sakkāyasamudayo dutiyo anto, sakkāyanirodho majjhe.",
+        "translation": "identity, the origin of identity, and the cessation of identity.",
+        "source": "cnd6:19.7_0"
+    },
+    {
+        "source_sentence": "**Mantā** vuccati paññā, yā paññā pajānanā …pe… amoho dhammavicayo sammādiṭṭhi.",
+        "translation": "understanding that is called ‘perfection’, its origin, its cessation, and the right view’.",
+        "source": "cnd6:19.8_0"
+    },
+    {
+        "source_sentence": "**Lepā**ti dve lepā—",
+        "translation": "There are two kinds of plastering:",
+        "source": "cnd6:20.1_0"
+    },
+    {
+        "source_sentence": "taṇhālepo ca diṭṭhilepo ca.",
+        "translation": "Craving, Craving, and views",
+        "source": "cnd6:20.2_0"
+    },
+    {
+        "source_sentence": "Katamo taṇhālepo?",
+        "translation": "What is craving?",
+        "source": "cnd6:20.3_0"
+    },
+    {
+        "source_sentence": "Yāvatā taṇhāsaṅkhātena sīmakataṁ odhikataṁ pariyantakataṁ pariggahitaṁ mamāyitaṁ—",
+        "translation": "Craving is the size of the building sites made by oneself, by another.",
+        "source": "cnd6:20.4_0"
+    },
+    {
+        "source_sentence": "“idaṁ mama, etaṁ mama, ettakaṁ mama, ettāvatā mama rūpā saddā gandhā rasā phoṭṭhabbā attharaṇā pāvuraṇā dāsidāsā ajeḷakā kukkuṭasūkarā hatthigavāssavaḷavā khettaṁ vatthu hiraññaṁ suvaṇṇaṁ gāmanigamarājadhāniyo raṭṭhañca janapado ca koso ca koṭṭhāgārañca”.",
+        "translation": "“This is how my portion of mine, sounds, smells, tastes, and touches. That’s how mine are mine.”",
+        "source": "cnd6:20.5_0"
+    },
+    {
+        "source_sentence": "Kevalampi mahāpathaviṁ taṇhāvasena mamāyati.",
+        "translation": "(but) this great earthquake from the whole world,",
+        "source": "cnd6:20.6_0"
+    },
+    {
+        "source_sentence": "Yāvatā aṭṭhasatataṇhāvicaritaṁ—",
+        "translation": "How far as there are these eight hundred and eight hundred of cravings:",
+        "source": "cnd6:20.7_0"
+    },
+    {
+        "source_sentence": "ayaṁ taṇhālepo.",
+        "translation": "This is the ending of craving.",
+        "source": "cnd6:20.8_0"
+    },
+    {
+        "source_sentence": "Katamo diṭṭhilepo?",
+        "translation": "What is view?",
+        "source": "cnd6:21.1_0"
+    },
+    {
+        "source_sentence": "Vīsativatthukā sakkāyadiṭṭhi, dasavatthukā micchādiṭṭhi, dasavatthukā antaggāhikā diṭṭhi, yā evarūpā diṭṭhi diṭṭhigataṁ diṭṭhigahanaṁ diṭṭhikantāro diṭṭhivisūkāyikaṁ diṭṭhivipphanditaṁ diṭṭhisaṁyojanaṁ gāho paṭiggāho abhiniveso parāmāso kummaggo micchāpatho micchattaṁ titthāyatanaṁ vipariyesaggāho viparītaggāho vipallāsaggāho micchāgāho ayāthāvakasmiṁ yāthāvakanti gāho, yāvatā dvāsaṭṭhi diṭṭhigatāni—",
+        "translation": "The ten grounds for views, twenty-two parts, thirty grounds for views, and tendencies. They’re attached to views, holding them tight, and refusing to let go. Nevertheless, the recipients of views. Protector insistance, views, doubt, and wrong views. This includes is the reinstance of views.",
+        "source": "cnd6:21.2_0"
+    },
+    {
+        "source_sentence": "ayaṁ diṭṭhilepo.",
+        "translation": "This view is the idiot of view.",
+        "source": "cnd6:21.3_0"
+    },
+    {
+        "source_sentence": "**So ubhantamabhiññāya, majjhe mantā na lippatī**ti so ubho ca ante majjhañca mantāya abhiññāya jānitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvā na lippati na palippati na upalippati, alitto asaṁlitto anupalitto nikkhanto nissaṭo vippamutto visaññutto vimariyādikatena cetasā viharatīti—",
+        "translation": "He has known both the scriptures and the middle of the day, and he does not know the sight of hymns. He lives untiedly, uninfatuated, unattached, liberated, and stainless. He doesn’t free his mind free of limits and free himself, liberated, and his mind free of limits.",
+        "source": "cnd6:22.1_0"
+    },
+    {
+        "source_sentence": "so ubhantamabhiññāya majjhe mantā na lippati.",
+        "translation": "He is the wise man, who has known both ends, and is undefiled in the middle.",
+        "source": "cnd6:22.2_0"
+    },
+    {
+        "source_sentence": "**Taṁ brūmi mahāpuriso**ti mahāpuriso aggapuriso seṭṭhapuriso viseṭṭhapuriso pāmokkhapuriso uttamapuriso padhānapuriso pavarapuriso, taṁ brūmi taṁ kathemi taṁ bhaṇāmi taṁ dīpemi taṁ voharāmi.",
+        "translation": "He is a great man, I say, is a person who is best of men, compared to be great men,",
+        "source": "cnd6:23.1_0"
+    },
+    {
+        "source_sentence": "Āyasmā sāriputto bhagavantaṁ etadavoca—",
+        "translation": "Venerable Sāriputta said to the Buddha,",
+        "source": "cnd6:24.1_0"
+    },
+    {
+        "source_sentence": "“‘mahāpuriso mahāpuriso’ti, bhante, vuccati.",
+        "translation": "“Sir, they speak of ‘a great man’.",
+        "source": "cnd6:24.2_0"
+    },
+    {
+        "source_sentence": "Kittāvatā nu kho, bhante, mahāpuriso hotī”ti?",
+        "translation": "How is a great man defined?”",
+        "source": "cnd6:24.3_0"
+    },
+    {
+        "source_sentence": "“Vimuttacittattā khvāhaṁ, sāriputta, mahāpurisoti vadāmi, avimuttacittattā no mahāpurisoti vadāmi.",
+        "translation": "“Sāriputta, someone whose mind is free is great, I say.",
+        "source": "cnd6:24.4_0"
+    },
+    {
+        "source_sentence": "Kathañca, sāriputta, vimuttacitto hoti?",
+        "translation": "And how does someone have a free mind?",
+        "source": "cnd6:25.1_0"
+    },
+    {
+        "source_sentence": "Idha, sāriputta, bhikkhu ajjhattaṁ kāye kāyānupassī viharati ātāpī sampajāno satimā vineyya loke abhijjhādomanassaṁ.",
+        "translation": "It’s when a mendicant meditates by observing an aspect of the body internally—keen, aware, and mindful, rid of desire and aversion for the world.",
+        "source": "cnd6:25.2_0"
+    },
+    {
+        "source_sentence": "Tassa kāye kāyānupassino viharato cittaṁ virajjati vimuccati anupādāya āsavehi.",
+        "translation": "As they meditate observing an aspect of the body, their mind becomes dispassionate, and is freed from the defilements by not grasping.",
+        "source": "cnd6:25.3_0"
+    },
+    {
+        "source_sentence": "Vedanāsu …pe…",
+        "translation": "feelings ...",
+        "source": "cnd6:25.4_0"
+    },
+    {
+        "source_sentence": "citte …",
+        "translation": "They meditate observing an aspect of the mind ...",
+        "source": "cnd6:25.5_0"
+    },
+    {
+        "source_sentence": "dhammesu dhammānupassī viharati ātāpī sampajāno satimā vineyya loke abhijjhādomanassaṁ.",
+        "translation": "principles—keen, aware, and mindful, rid of desire and aversion for the world.",
+        "source": "cnd6:25.6_0"
+    },
+    {
+        "source_sentence": "Tassa dhammesu dhammānupassino viharato cittaṁ virajjati vimuccati anupādāya āsavehi.",
+        "translation": "As they meditate observing an aspect of principles, their mind becomes dispassionate, and is freed from the defilements by not grasping.",
+        "source": "cnd6:25.7_0"
+    },
+    {
+        "source_sentence": "Evaṁ kho, sāriputta, bhikkhu vimuttacitto hoti.",
+        "translation": "That’s how a mendicant has a free mind.",
+        "source": "cnd6:25.8_0"
+    },
+    {
+        "source_sentence": "Vimuttacittattā khvāhaṁ, sāriputta, mahāpurisoti vadāmi, avimuttacittattā no mahāpurisoti vadāmī”ti—",
+        "translation": "But I say that when your mind is free, great man, and if it’s not free, I say.”",
+        "source": "cnd6:25.9_0"
+    },
+    {
+        "source_sentence": "taṁ brūmi mahāpurisoti.",
+        "translation": "He is a great man, I declare,",
+        "source": "cnd6:25.10_0"
+    },
+    {
+        "source_sentence": "**So idha sibbinimaccagā**ti sibbinī vuccati taṇhā.",
+        "translation": "Here they have escaped from craving.",
+        "source": "cnd6:26.1_0"
+    },
+    {
+        "source_sentence": "Yo rāgo sārāgo …pe…",
+        "translation": "Greed ...",
+        "source": "cnd6:26.2_0"
+    },
+    {
+        "source_sentence": "abhijjhā lobho akusalamūlaṁ, yassesā sibbinī taṇhā pahīnā samucchinnā vūpasantā paṭipassaddhā abhabbuppattikā ñāṇagginā daḍḍhā.",
+        "translation": "Greed, hate, and delusion, when they have given up the roots of craving, they have cut off craving, untied the knowledge of the tales, and running hithers.",
+        "source": "cnd6:26.2_1"
+    },
+    {
+        "source_sentence": "So sibbiniṁ taṇhaṁ accagā upaccagā atikkanto samatikkanto vītivattoti—",
+        "translation": "When he has gone beyond craving, he has crossed over and gone beyond,",
+        "source": "cnd6:26.3_0"
+    },
+    {
+        "source_sentence": "so idha sibbinimaccagā.",
+        "translation": "Here he sews here,",
+        "source": "cnd6:26.4_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd6:26.5_0"
+    },
+    {
+        "source_sentence": "“So ubhantamabhiññāya,",
+        "translation": "“Dearing for yourself,",
+        "source": "cnd6:27.1_0"
+    },
+    {
+        "source_sentence": "Majjhe mantā na lippati;",
+        "translation": "and is not stuck in the middle.",
+        "source": "cnd6:27.2_0"
+    },
+    {
+        "source_sentence": "Taṁ brūmi mahāpurisoti,",
+        "translation": "He is a great man, I declare,",
+        "source": "cnd6:27.3_0"
+    },
+    {
+        "source_sentence": "So idha sibbinimaccagā”ti.",
+        "translation": "they’ve escaped the seamstress here.”",
+        "source": "cnd6:27.4_0"
+    },
+    {
+        "source_sentence": "Saha gāthāpariyosānā ye te brāhmaṇena saddhiṁ ekacchandā ekapayogā ekādhippāyā ekavāsanavāsitā, tesaṁ anekapāṇasahassānaṁ virajaṁ vītamalaṁ dhammacakkhuṁ udapādi—",
+        "translation": "When they were finished, some of the brahmins with the same verses, while some of them sat together in one part of the Truth:",
+        "source": "cnd6:28.1_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti.",
+        "translation": "“Anything that has a beginning has an end.”",
+        "source": "cnd6:28.2_0"
+    },
+    {
+        "source_sentence": "Tassa brāhmaṇassa anupādāya āsavehi cittaṁ vimucci.",
+        "translation": "His mind was freed from the defilements by not grasping.",
+        "source": "cnd6:28.3_0"
+    },
+    {
+        "source_sentence": "Saha arahattappattā ajinajaṭāvākacīratidaṇḍakamaṇḍalukesā ca massū ca antarahitā.",
+        "translation": "About Worthiness, Leader, and Accomplished One, and clung-tongued?",
+        "source": "cnd6:28.4_0"
+    },
+    {
+        "source_sentence": "Bhaṇḍukāsāyavatthavasano saṅghāṭipattacīvaradharo anvatthapaṭipattiyā pañjaliko bhagavantaṁ namassamāno nisinno hoti—",
+        "translation": "As a consequence for the outer robe, one with joined palms raised his joined palms raised in reverential sarong and say,",
+        "source": "cnd6:28.5_0"
+    },
+    {
+        "source_sentence": "“satthā me bhante bhagavā, sāvakohamasmī”ti.",
+        "translation": "“Sir, you’re my teacher, I’m your disciple.”",
+        "source": "cnd6:28.6_0"
+    },
+    {
+        "source_sentence": "Tissametteyyamāṇavapucchāniddeso dutiyo.",
+        "translation": "The second method of Tissa the name of Tissa",
+        "source": "cnd6:28.7_0"
+    }
+]

@@ -1,0 +1,927 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd20:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavagganiddesa",
+        "translation": "Pārāyanavagganiddesa",
+        "source": "cnd20:0.2_0"
+    },
+    {
+        "source_sentence": "Pucchāniddesa",
+        "translation": "Pucchāniddesa",
+        "source": "cnd20:0.3_0"
+    },
+    {
+        "source_sentence": "16. Piṅgiyamāṇavapucchāniddesa",
+        "translation": "Asked Fire",
+        "source": "cnd20:0.4_0"
+    },
+    {
+        "source_sentence": "**Jiṇṇohamasmi abalo vītavaṇṇo**,",
+        "translation": "I’m old, without strength, without strength,",
+        "source": "cnd20:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā piṅgiyo)",
+        "translation": "Piṅgiya,",
+        "source": "cnd20:1.2_0"
+    },
+    {
+        "source_sentence": "**Nettā na suddhā savanaṁ na phāsu;**",
+        "translation": "my eyes are unclear, and hearing is difficult -",
+        "source": "cnd20:1.3_0"
+    },
+    {
+        "source_sentence": "**Māhaṁ nassaṁ momuho antarāva,**",
+        "translation": "may I indeed not perish a fool mid-way!",
+        "source": "cnd20:1.4_0"
+    },
+    {
+        "source_sentence": "**Ācikkha dhammaṁ yamahaṁ vijaññaṁ;**",
+        "translation": "Explain the Teaching so that I may know",
+        "source": "cnd20:1.5_0"
+    },
+    {
+        "source_sentence": "**Jātijarāya idha vippahānaṁ. **",
+        "translation": "the complete giving up of birth and old age here,",
+        "source": "cnd20:1.6_0"
+    },
+    {
+        "source_sentence": "**Jiṇṇohamasmi abalo vītavaṇṇo**ti.",
+        "translation": "I’m old, without strength, with poor complexion,",
+        "source": "cnd20:2.1_0"
+    },
+    {
+        "source_sentence": "**Jiṇṇohamasmī**ti jiṇṇo vuḍḍho mahallako addhagato vayoanuppatto vīsavassasatiko jātiyā.",
+        "translation": "I’m an old man, elderly, and senior. I’m advanced in years and have reached the final stage of life; yet I’m a hundred and twenty years old.",
+        "source": "cnd20:2.2_0"
+    },
+    {
+        "source_sentence": "**Abalo**ti dubbalo appabalo appathāmo.",
+        "translation": "Power of strength, weakness, undirected lack of strength, and absorption;",
+        "source": "cnd20:2.3_0"
+    },
+    {
+        "source_sentence": "**Vītavaṇṇo**ti vītavaṇṇo vigatavaṇṇo vigacchitavaṇṇo.",
+        "translation": "color of cooked gold, drunk, clear and unripe,",
+        "source": "cnd20:2.4_0"
+    },
+    {
+        "source_sentence": "Yā sā purimā subhā vaṇṇanibhā sā antarahitā, ādīnavo pātubhūtoti—",
+        "translation": "She’s beautyful, glorious, and disappeared.",
+        "source": "cnd20:2.5_0"
+    },
+    {
+        "source_sentence": "jiṇṇohamasmi abalo vītavaṇṇo.",
+        "translation": "I’m old, without strength, without strength,",
+        "source": "cnd20:2.6_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā piṅgiyo**ti.",
+        "translation": "“Venerable Piṅgiya, venerable Piṅgiya,",
+        "source": "cnd20:3.1_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi …pe….",
+        "translation": "It’s impermanent ...",
+        "source": "cnd20:3.2_0"
+    },
+    {
+        "source_sentence": "**Āyasmā**ti piyavacanaṁ …pe….",
+        "translation": "Piyaka ...",
+        "source": "cnd20:3.3_0"
+    },
+    {
+        "source_sentence": "**Piṅgiyo**ti tassa brāhmaṇassa nāmaṁ …pe… abhilāpoti—",
+        "translation": "Piṅgiya ...",
+        "source": "cnd20:3.4_0"
+    },
+    {
+        "source_sentence": "iccāyasmā piṅgiyo.",
+        "translation": "Piṅgiya,",
+        "source": "cnd20:3.5_0"
+    },
+    {
+        "source_sentence": "**Nettā na suddhā savanaṁ na phāsū**ti nettā asuddhā avisuddhā aparisuddhā avodātā.",
+        "translation": "without working, purified, or cleansing,",
+        "source": "cnd20:4.1_0"
+    },
+    {
+        "source_sentence": "No tathā cakkhunā rūpe passāmīti—",
+        "translation": "‘I think, “I’ll see forms with my eye;”",
+        "source": "cnd20:4.2_0"
+    },
+    {
+        "source_sentence": "nettā na suddhā.",
+        "translation": "my eyes are pure,",
+        "source": "cnd20:4.3_0"
+    },
+    {
+        "source_sentence": "**Savanaṁ na phāsū**ti sotaṁ asuddhaṁ avisuddhaṁ aparisuddhaṁ avodātaṁ.",
+        "translation": "No filthy body, speech and mind was impure, but impure and pure,",
+        "source": "cnd20:4.4_0"
+    },
+    {
+        "source_sentence": "No tathā sotena saddaṁ suṇomīti—",
+        "translation": "The ear hears sounds ...",
+        "source": "cnd20:4.5_0"
+    },
+    {
+        "source_sentence": "nettā na suddhā savanaṁ na phāsu.",
+        "translation": "my eyes are unclear, and hearing is difficult -",
+        "source": "cnd20:4.6_0"
+    },
+    {
+        "source_sentence": "**Māhaṁ nassaṁ momuho antarāvā**ti.",
+        "translation": "may I indeed not perish a fool mid-way!",
+        "source": "cnd20:5.1_0"
+    },
+    {
+        "source_sentence": "**Māhaṁ nassan**ti māhaṁ nassaṁ māhaṁ vinassaṁ māhaṁ panassaṁ.",
+        "translation": "I won’t disturb me, do not perish.",
+        "source": "cnd20:5.2_0"
+    },
+    {
+        "source_sentence": "**Momuho**ti mohamuho avijjāgato aññāṇī avibhāvī duppañño.",
+        "translation": "Ignorance, hate, and delusion.",
+        "source": "cnd20:5.3_0"
+    },
+    {
+        "source_sentence": "**Antarāvā**ti tuyhaṁ dhammaṁ diṭṭhiṁ paṭipadaṁ maggaṁ anaññāya anadhigantvā aviditvā appaṭilabhitvā aphassayitvā asacchikaritvā antarāyeva kālaṁ kareyyanti—",
+        "translation": "While traveling along a path, I didn’t get to know the path, or not having achieved it, and if they don’t pass away without.",
+        "source": "cnd20:5.4_0"
+    },
+    {
+        "source_sentence": "māhaṁ nassaṁ momuho antarāva.",
+        "translation": "may I indeed not perish a fool mid-way!",
+        "source": "cnd20:5.5_0"
+    },
+    {
+        "source_sentence": "**Ācikkha dhammaṁ yamahaṁ vijaññan**ti.",
+        "translation": "explain the Teaching so that I may know",
+        "source": "cnd20:6.1_0"
+    },
+    {
+        "source_sentence": "**Dhamman**ti ādikalyāṇaṁ majjhekalyāṇaṁ pariyosānakalyāṇaṁ sātthaṁ sabyañjanaṁ kevalaparipuṇṇaṁ parisuddhaṁ brahmacariyaṁ, cattāro satipaṭṭhāne, cattāro sammappadhāne, cattāro iddhipāde, pañcindriyāni, pañca balāni, satta bojjhaṅge, ariyaṁ aṭṭhaṅgikaṁ maggaṁ, nibbānañca nibbānagāminiñca paṭipadaṁ ācikkhāhi desehi paññapehi paṭṭhapehi vivarāhi vibhajāhi uttānīkarohi pakāsehīti—",
+        "translation": "The meaning of teachings that are good in the beginning, good in the middle, and good in the end, meaningful and well-phrased, describing a spiritual practice that’s entirely full and pure. They teach the four kinds of mindfulness meditation, the four right efforts, the four bases of psychic power, the five faculties, the five powers, and the seven awakening factors.",
+        "source": "cnd20:6.2_0"
+    },
+    {
+        "source_sentence": "ācikkha dhammaṁ.",
+        "translation": "explain the Teaching to the Teaching,",
+        "source": "cnd20:6.3_0"
+    },
+    {
+        "source_sentence": "**Yamahaṁ vijaññan**ti yamahaṁ jāneyyaṁ ājāneyyaṁ vijāneyyaṁ paṭivijāneyyaṁ paṭivijjheyyaṁ adhigaccheyyaṁ phasseyyaṁ sacchikareyyanti—",
+        "translation": "But if I were to know what should be known, but who would know what should be transgressesed by, I would realize, and realized that contact.’",
+        "source": "cnd20:6.4_0"
+    },
+    {
+        "source_sentence": "ācikkha dhammaṁ yamahaṁ vijaññaṁ.",
+        "translation": "Explain the Teaching so that I may know",
+        "source": "cnd20:6.5_0"
+    },
+    {
+        "source_sentence": "**Jātijarāya idha vippahānan**ti idheva jātijarāmaraṇassa pahānaṁ vūpasamaṁ paṭinissaggaṁ paṭippassaddhiṁ amataṁ nibbānanti—",
+        "translation": "Relishing rebirth, old age, and death, they end the deathless.",
+        "source": "cnd20:7.1_0"
+    },
+    {
+        "source_sentence": "jātijarāya idha vippahānaṁ.",
+        "translation": "the complete giving up of birth and old age here,",
+        "source": "cnd20:7.2_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "Hence that brahmin thought,",
+        "source": "cnd20:7.3_0"
+    },
+    {
+        "source_sentence": "“Jiṇṇohamasmi abalo vītavaṇṇo,",
+        "translation": "“I am old, without strength, with poor complexion,",
+        "source": "cnd20:8.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā piṅgiyo)",
+        "translation": "Piṅgiya,",
+        "source": "cnd20:8.2_0"
+    },
+    {
+        "source_sentence": "Nettā na suddhā savanaṁ na phāsu;",
+        "translation": "my eyes are unclear, and hearing is difficult -",
+        "source": "cnd20:8.3_0"
+    },
+    {
+        "source_sentence": "Māhaṁ nassaṁ momuho antarāva,",
+        "translation": "may I indeed not perish a fool mid-way!",
+        "source": "cnd20:8.4_0"
+    },
+    {
+        "source_sentence": "Ācikkha dhammaṁ yamahaṁ vijaññaṁ;",
+        "translation": "Explain the Teaching so that I may know",
+        "source": "cnd20:8.5_0"
+    },
+    {
+        "source_sentence": "Jātijarāya idha vippahānan”ti.",
+        "translation": "having given up birth and old age here.”",
+        "source": "cnd20:8.6_0"
+    },
+    {
+        "source_sentence": "**Disvāna rūpesu vihaññamāne,**",
+        "translation": "seeing forms,",
+        "source": "cnd20:9.1_0"
+    },
+    {
+        "source_sentence": "(piṅgiyāti bhagavā)",
+        "translation": "The Fortunate One has descended from Piṅgiyānī,",
+        "source": "cnd20:9.2_0"
+    },
+    {
+        "source_sentence": "**Ruppanti rūpesu janā pamattā;**",
+        "translation": "Those who are heedless forms, ~ people are heedless,",
+        "source": "cnd20:9.3_0"
+    },
+    {
+        "source_sentence": "**Tasmā tuvaṁ piṅgiya appamatto,**",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:9.4_0"
+    },
+    {
+        "source_sentence": "**Jahassu rūpaṁ apunabbhavāya. **",
+        "translation": "must give up form, and not come into existence again.",
+        "source": "cnd20:9.5_0"
+    },
+    {
+        "source_sentence": "**Disvāna rūpesu vihaññamāne**ti.",
+        "translation": "Seeing danger in sights,",
+        "source": "cnd20:10.1_0"
+    },
+    {
+        "source_sentence": "**Rūpan**ti cattāro ca mahābhūtā catunnañca mahābhūtānaṁ upādāya rūpaṁ.",
+        "translation": "The four great elementals and bodily-form derived from the great elementals.",
+        "source": "cnd20:10.2_0"
+    },
+    {
+        "source_sentence": "Sattā rūpahetu rūpappaccayā rūpakāraṇā haññanti vihaññanti upahaññanti upaghātiyanti.",
+        "translation": "sentient beings are extinguished with money as condition: killing, mutual rooted in form,",
+        "source": "cnd20:10.3_0"
+    },
+    {
+        "source_sentence": "Rūpe sati vividhakammakāraṇā kārenti.",
+        "translation": "sights, sounds, and tastes,",
+        "source": "cnd20:10.4_0"
+    },
+    {
+        "source_sentence": "Kasāhipi tāḷenti, vettehipi tāḷenti, aḍḍhadaṇḍakehipi tāḷenti, hatthampi chindanti, pādampi chindanti, hatthapādampi chindanti, kaṇṇampi chindanti, nāsampi chindanti, kaṇṇanāsampi chindanti, bilaṅgathālikampi karonti, saṅkhamuṇḍikampi karonti, rāhumukhampi karonti, jotimālikampi karonti, hatthapajjotikampi karonti, erakavattikampi karonti, cīrakavāsikampi karonti, eṇeyyakampi karonti, baḷisamaṁsikampi karonti, kahāpaṇikampi karonti, khārāpatacchikampi karonti, palighaparivattikampi karonti, palālapīṭhakampi karonti, tattenapi telena osiñcanti, sunakhehipi khādāpenti, jīvantampi sūle uttāsenti, asināpi sīsaṁ chindanti.",
+        "translation": "whipping, caning, and clubbing; cutting off hands or feet, or both; cutting off ears or nose, or both; the ‘porridge pot’, the ‘shell-shave’, the ‘demon’s mouth’, the ‘garland of fire’, the ‘burning hand’, the ‘grass blades’, the ‘bark dress’, the ‘antelope’, the ‘meat hook’, the ‘coins’, the ‘caustic pickle’, the ‘twisting bar’, the ‘straw mat’; being splashed with hot oil, being fed to the dogs, being impaled alive, and being beheaded.",
+        "source": "cnd20:10.5_0"
+    },
+    {
+        "source_sentence": "Evaṁ sattā rūpahetu rūpappaccayā rūpakāraṇā haññanti vihaññanti upahaññanti upaghātiyanti.",
+        "translation": "So for the sake of visible form and her form are destroyed, distressed, and feverished",
+        "source": "cnd20:10.6_0"
+    },
+    {
+        "source_sentence": "Evaṁ haññamāne vihaññamāne upahaññamāne upaghātiyamāne disvā passitvā tulayitvā tīrayitvā vibhāvayitvā vibhūtaṁ katvāti—",
+        "translation": "When the animal was being killed, but when they saw thus, they were killed and caught up in him, and seeing him slaughtering, they experienced.",
+        "source": "cnd20:10.7_0"
+    },
+    {
+        "source_sentence": "disvāna rūpesu vihaññamāne.",
+        "translation": "seeing forms,",
+        "source": "cnd20:10.8_0"
+    },
+    {
+        "source_sentence": "**Piṅgiyāti bhagavā**ti.",
+        "translation": "The Fortunate One is address, (saying):",
+        "source": "cnd20:11.1_0"
+    },
+    {
+        "source_sentence": "**Piṅgiyā**ti bhagavā taṁ brāhmaṇaṁ nāmena ālapati.",
+        "translation": "The Fortunate One, after going to the brāhmaṇa Piṅgiyānī by name,",
+        "source": "cnd20:11.2_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti—",
+        "translation": "The Buddha has designated Māra’s statements, that is,",
+        "source": "cnd20:11.3_0"
+    },
+    {
+        "source_sentence": "piṅgiyāti bhagavā.",
+        "translation": "The Fortunate One has descended from Piṅgiyānī,",
+        "source": "cnd20:11.4_0"
+    },
+    {
+        "source_sentence": "**Ruppanti rūpesu janā pamattā**ti.",
+        "translation": "Those who are held back to the forms,",
+        "source": "cnd20:12.1_0"
+    },
+    {
+        "source_sentence": "**Ruppantī**ti ruppanti kuppanti pīḷayanti ghaṭṭayanti, byādhitā domanassitā honti.",
+        "translation": "They tried to attractive, neglected, and discomfort.",
+        "source": "cnd20:12.2_0"
+    },
+    {
+        "source_sentence": "Cakkhurogena ruppanti kuppanti pīḷayanti ghaṭṭayanti, byādhitā domanassitā honti.",
+        "translation": "The eyes were disturbed, spittle, and disparaged. They became changed and discomfort.",
+        "source": "cnd20:12.3_0"
+    },
+    {
+        "source_sentence": "Sotarogena …pe…",
+        "translation": "They’re more better than human ...",
+        "source": "cnd20:12.4_0"
+    },
+    {
+        "source_sentence": "kāyarogena …pe…",
+        "translation": "body contact ...",
+        "source": "cnd20:12.5_0"
+    },
+    {
+        "source_sentence": "ḍaṁsamakasavātātapasarīsapasamphassehi ruppanti kuppanti pīḷayanti ghaṭṭayanti, byādhitā domanassitā hontīti—",
+        "translation": "They captured by flies, mosquitoes, wind, sun, and reptiles.",
+        "source": "cnd20:12.6_0"
+    },
+    {
+        "source_sentence": "ruppanti rūpesu.",
+        "translation": "Forms of forms",
+        "source": "cnd20:12.7_0"
+    },
+    {
+        "source_sentence": "Atha vā cakkhusmiṁ hīyamāne hāyamāne parihāyamāne vemāne vigacchamāne antaradhāyamāne ruppanti …pe…",
+        "translation": "Or when the eye was being disturbed, they vanished and perished.",
+        "source": "cnd20:13.1_0"
+    },
+    {
+        "source_sentence": "domanassitā honti.",
+        "translation": "they are sadness.",
+        "source": "cnd20:13.2_0"
+    },
+    {
+        "source_sentence": "Sotasmiṁ …pe…",
+        "translation": "I’ve given up desire for the ear ...",
+        "source": "cnd20:13.3_0"
+    },
+    {
+        "source_sentence": "ghānasmiṁ …",
+        "translation": "nose ...",
+        "source": "cnd20:13.4_0"
+    },
+    {
+        "source_sentence": "jivhāya …",
+        "translation": "tongue ...",
+        "source": "cnd20:13.5_0"
+    },
+    {
+        "source_sentence": "kāyasmiṁ …",
+        "translation": "body ...",
+        "source": "cnd20:13.6_0"
+    },
+    {
+        "source_sentence": "rūpasmiṁ …",
+        "translation": "in form,",
+        "source": "cnd20:13.7_0"
+    },
+    {
+        "source_sentence": "saddasmiṁ …",
+        "translation": "When you’ve heard about sounds ...",
+        "source": "cnd20:13.8_0"
+    },
+    {
+        "source_sentence": "gandhasmiṁ …",
+        "translation": "smells ...",
+        "source": "cnd20:13.9_0"
+    },
+    {
+        "source_sentence": "rasasmiṁ …",
+        "translation": "desire for tastes ...",
+        "source": "cnd20:13.10_0"
+    },
+    {
+        "source_sentence": "phoṭṭhabbasmiṁ …",
+        "translation": "touches ...",
+        "source": "cnd20:13.11_0"
+    },
+    {
+        "source_sentence": "kulasmiṁ …",
+        "translation": "the family traditions ...",
+        "source": "cnd20:13.12_0"
+    },
+    {
+        "source_sentence": "gaṇasmiṁ …",
+        "translation": "with a group ...",
+        "source": "cnd20:13.13_0"
+    },
+    {
+        "source_sentence": "āvāsasmiṁ …",
+        "translation": "a monastery that’s ...",
+        "source": "cnd20:13.14_0"
+    },
+    {
+        "source_sentence": "lābhasmiṁ …",
+        "translation": "...",
+        "source": "cnd20:13.15_0"
+    },
+    {
+        "source_sentence": "yasasmiṁ …",
+        "translation": "reputation ...",
+        "source": "cnd20:13.16_0"
+    },
+    {
+        "source_sentence": "pasaṁsāya …",
+        "translation": "praise ...",
+        "source": "cnd20:13.17_0"
+    },
+    {
+        "source_sentence": "sukhasmiṁ …",
+        "translation": "Pleasant is the pleasure",
+        "source": "cnd20:13.18_0"
+    },
+    {
+        "source_sentence": "cīvarasmiṁ …",
+        "translation": "“I’ll wear the robe” ...",
+        "source": "cnd20:13.19_0"
+    },
+    {
+        "source_sentence": "piṇḍapātasmiṁ …",
+        "translation": "alms-food ...",
+        "source": "cnd20:13.20_0"
+    },
+    {
+        "source_sentence": "senāsanasmiṁ …",
+        "translation": "dwellings ...",
+        "source": "cnd20:13.21_0"
+    },
+    {
+        "source_sentence": "gilānapaccayabhesajjaparikkhārasmiṁ hīyamāne hāyamāne parihāyamāne vemāne vigacchamāne antaradhāyamāne ruppanti kuppanti pīḷayanti ghaṭṭayanti, byādhitā domanassitā hontīti—",
+        "translation": "when the requisite of medicines were being sick, they disturbed, spring to mind, and go wherever they want.",
+        "source": "cnd20:13.22_0"
+    },
+    {
+        "source_sentence": "evampi ruppanti rūpesu.",
+        "translation": "and so too forms",
+        "source": "cnd20:13.23_0"
+    },
+    {
+        "source_sentence": "**Janā**ti khattiyā ca brāhmaṇā ca vessā ca suddā ca gahaṭṭhā ca pabbajitā ca devā ca manussā ca.",
+        "translation": "aristocrats, brahmins, merchants, and workers were both gods and humans.",
+        "source": "cnd20:14.1_0"
+    },
+    {
+        "source_sentence": "**Pamattā**ti pamādo vattabbo kāyaduccaritena vā vacīduccaritena vā manoduccaritena vā pañcasu kāmaguṇesu cittassa vosaggo vosaggānuppadānaṁ kusalānaṁ vā dhammānaṁ bhāvanāya asakkaccakiriyatā asātaccakiriyatā anaṭṭhitakiriyatā olīnavuttitā nikkhittacchandatā nikkhittadhuratā anāsevanā abhāvanā abahulīkammaṁ anadhiṭṭhānaṁ ananuyogo pamādo.",
+        "translation": "Because of their impediments is to be spoken. Or they can do so by way of body, speech, and mind.",
+        "source": "cnd20:14.2_0"
+    },
+    {
+        "source_sentence": "Yo evarūpo pamādo pamajjanā pamajjitattaṁ—",
+        "translation": "alcoholic drinks that cause negligence.",
+        "source": "cnd20:14.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ vuccati pamādo.",
+        "translation": "This is called negligence.",
+        "source": "cnd20:14.4_0"
+    },
+    {
+        "source_sentence": "Iminā pamādena samannāgatā janā pamattāti—",
+        "translation": "Because this one who possesses heedlessness.",
+        "source": "cnd20:14.5_0"
+    },
+    {
+        "source_sentence": "ruppanti rūpesu janā pamattā.",
+        "translation": "Those who are heedless forms, ~ people are heedless,",
+        "source": "cnd20:14.6_0"
+    },
+    {
+        "source_sentence": "**Tasmā tuvaṁ piṅgiya appamatto**ti.",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:15.1_0"
+    },
+    {
+        "source_sentence": "**Tasmā**ti tasmā taṅkāraṇā taṁhetu tappaccayā taṁnidānā evaṁ ādīnavaṁ sampassamāno rūpesūti—",
+        "translation": "That’s why it comes to be with that reason.",
+        "source": "cnd20:15.2_0"
+    },
+    {
+        "source_sentence": "tasmā tuvaṁ piṅgiya.",
+        "translation": "therefore you, Piṅgiya,",
+        "source": "cnd20:15.3_0"
+    },
+    {
+        "source_sentence": "**Appamatto**ti sakkaccakārī sātaccakārī …pe… appamādo kusalesu dhammesūti—",
+        "translation": "Heedfully acts carefully, when it comes to skillful teachings. He practices well, heedfully, energetic, and diligent.",
+        "source": "cnd20:15.4_0"
+    },
+    {
+        "source_sentence": "tasmā tuvaṁ piṅgiya appamatto.",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:15.5_0"
+    },
+    {
+        "source_sentence": "**Jahassu rūpaṁ apunabbhavāyā**ti.",
+        "translation": "must give up form, and not be reborn again.",
+        "source": "cnd20:16.1_0"
+    },
+    {
+        "source_sentence": "**Rūpan**ti cattāro ca mahābhūtā catunnañca mahābhūtānaṁ upādāya rūpaṁ.",
+        "translation": "The four great elementals and bodily-form derived from the great elementals.",
+        "source": "cnd20:16.2_0"
+    },
+    {
+        "source_sentence": "**Jahassu rūpan**ti jahassu rūpaṁ, pajahassu rūpaṁ, vinodehi rūpaṁ, byantīkarohi rūpaṁ, anabhāvaṁ gamehi rūpaṁ.",
+        "translation": "They give up form, eliminate it, and obliterate it.",
+        "source": "cnd20:16.3_0"
+    },
+    {
+        "source_sentence": "**Apunabbhavāyā**ti yathā te rūpaṁ idheva nirujjheyya, punapaṭisandhiko bhavo na nibbatteyya kāmadhātuyā vā rūpadhātuyā vā arūpadhātuyā vā, kāmabhave vā rūpabhave vā arūpabhave vā, saññābhave vā asaññābhave vā nevasaññānāsaññābhave vā, ekavokārabhave vā catuvokārabhave vā pañcavokārabhave vā, puna gatiyā vā upapattiyā vā paṭisandhiyā vā bhave vā saṁsāre vā vaṭṭe vā na janeyya na sañjaneyya na nibbatteyya nābhinibbatteyya, idheva nirujjheyya vūpasameyya atthaṁ gaccheyya paṭippassambheyyāti—",
+        "translation": "If they don’t lose the kind of form you would have no underlying tendency for form,",
+        "source": "cnd20:16.4_0"
+    },
+    {
+        "source_sentence": "jahassu rūpaṁ apunabbhavāya.",
+        "translation": "must give up form, and not come into existence again.",
+        "source": "cnd20:16.5_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd20:16.6_0"
+    },
+    {
+        "source_sentence": "“Disvāna rūpesu vihaññamāne,",
+        "translation": "“Having seen (people) being struck down amid forms,",
+        "source": "cnd20:17.1_0"
+    },
+    {
+        "source_sentence": "(piṅgiyāti bhagavā)",
+        "translation": "The Fortunate One has descended from Piṅgiyānī,",
+        "source": "cnd20:17.2_0"
+    },
+    {
+        "source_sentence": "Ruppanti rūpesu janā pamattā;",
+        "translation": "Those who are heedless forms, ~ people are heedless,",
+        "source": "cnd20:17.3_0"
+    },
+    {
+        "source_sentence": "Tasmā tuvaṁ piṅgiya appamatto,",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:17.4_0"
+    },
+    {
+        "source_sentence": "Jahassu rūpaṁ apunabbhavāyā”ti.",
+        "translation": "must give up form, and not come into existence again.”",
+        "source": "cnd20:17.5_0"
+    },
+    {
+        "source_sentence": "**Disā catasso vidisā catasso,**",
+        "translation": "the four directions.",
+        "source": "cnd20:18.1_0"
+    },
+    {
+        "source_sentence": "**Uddhaṁ adho dasa disā imāyo;**",
+        "translation": "above, below, and in all directions.",
+        "source": "cnd20:18.2_0"
+    },
+    {
+        "source_sentence": "**Na tuyhaṁ adiṭṭhaṁ asutaṁ amutaṁ,**",
+        "translation": "which haven’t seen, heard, thought,",
+        "source": "cnd20:18.3_0"
+    },
+    {
+        "source_sentence": "**Atho aviññātaṁ kiñcanamatthi loke;**",
+        "translation": "unsensed, or uncognized in the world!",
+        "source": "cnd20:18.4_0"
+    },
+    {
+        "source_sentence": "**Ācikkha dhammaṁ yamahaṁ vijaññaṁ,**",
+        "translation": "Explain the Teaching so that I may know",
+        "source": "cnd20:18.5_0"
+    },
+    {
+        "source_sentence": "**Jātijarāya idha vippahānaṁ. **",
+        "translation": "the complete giving up of birth and old age here,",
+        "source": "cnd20:18.6_0"
+    },
+    {
+        "source_sentence": "**Disā catasso vidisā catasso, uddhaṁ adho dasa disā imāyo**ti dasa disā.",
+        "translation": "The four directions, the four directions, the four directions, the ten directions, and the ten directions.",
+        "source": "cnd20:19.1_0"
+    },
+    {
+        "source_sentence": "**Na tuyhaṁ adiṭṭhaṁ asutaṁ amutaṁ, atho aviññātaṁ kiñcanamatthi loke**ti na tuyhaṁ adiṭṭhaṁ asutaṁ amutaṁ aviññātaṁ kiñci attattho vā parattho vā ubhayattho vā diṭṭhadhammiko vā attho samparāyiko vā attho uttāno vā attho gambhīro vā attho gūḷho vā attho paṭicchanno vā attho neyyo vā attho nīto vā attho anavajjo vā attho nikkileso vā attho vodāno vā attho paramattho vā attho natthi na atthi na saṁvijjati nupalabbhatīti—",
+        "translation": "You don’t have what’s lost, what is unbroken, undamaged, what is beneficial, what is harmful, and what is not beneficial in this world? What is unself or what is harmful? What is the meaning? What is the meaning, or what is the meaning? What is beneficial or what is unself? Are there is no phenomena? What is beneficial or what is beneficial or what is harmful?",
+        "source": "cnd20:20.1_0"
+    },
+    {
+        "source_sentence": "na tuyhaṁ adiṭṭhaṁ asutaṁ amutaṁ, atho aviññātaṁ kiñcanamatthi loke.",
+        "translation": "haven’t seen, heard, or suspected that there is no need for you to be unsetled in the world.",
+        "source": "cnd20:20.2_0"
+    },
+    {
+        "source_sentence": "**Ācikkha dhammaṁ yamahaṁ vijaññan**ti.",
+        "translation": "explain the Teaching so that I may know",
+        "source": "cnd20:21.1_0"
+    },
+    {
+        "source_sentence": "**Dhamman**ti ādikalyāṇaṁ …pe…",
+        "translation": "Dhamma ...",
+        "source": "cnd20:21.2_0"
+    },
+    {
+        "source_sentence": "nibbānañca nibbānagāminiñca paṭipadaṁ ācikkhāhi desehi paññapehi paṭṭhapehi vivarāhi vibhajāhi uttānīkarohi pakāsehi.",
+        "translation": "explains, teaches, assert, establishes, clarified, analyzed, and revealed the teaching.",
+        "source": "cnd20:21.3_0"
+    },
+    {
+        "source_sentence": "**Yamahaṁ vijaññan**ti yamahaṁ jāneyyaṁ ājāneyyaṁ vijāneyyaṁ paṭivijāneyyaṁ paṭivijjheyyaṁ adhigaccheyyaṁ phasseyyaṁ sacchikareyyanti—",
+        "translation": "But if I were to know what should be known, but who would know what should be transgressesed by, I would realize, and realized that contact.’",
+        "source": "cnd20:21.4_0"
+    },
+    {
+        "source_sentence": "ācikkha dhammaṁ yamahaṁ vijaññaṁ.",
+        "translation": "Explain the Teaching so that I may know",
+        "source": "cnd20:21.5_0"
+    },
+    {
+        "source_sentence": "**Jātijarāya idha vippahānan**ti idheva jātijarāmaraṇassa pahānaṁ vūpasamaṁ paṭinissaggaṁ paṭippassaddhiṁ amataṁ nibbānanti—",
+        "translation": "Relishing rebirth, old age, and death, they end the deathless.",
+        "source": "cnd20:22.1_0"
+    },
+    {
+        "source_sentence": "jātijarāya idha vippahānaṁ.",
+        "translation": "the complete giving up of birth and old age here,",
+        "source": "cnd20:22.2_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "Hence that brahmin thought,",
+        "source": "cnd20:22.3_0"
+    },
+    {
+        "source_sentence": "“Disā catasso vidisā catasso,",
+        "translation": "“The four directions, the four directions,",
+        "source": "cnd20:23.1_0"
+    },
+    {
+        "source_sentence": "Uddhaṁ adho dasa disā imāyo;",
+        "translation": "above, below, and in all directions.",
+        "source": "cnd20:23.2_0"
+    },
+    {
+        "source_sentence": "Na tuyhaṁ adiṭṭhaṁ asutaṁ amutaṁ,",
+        "translation": "which haven’t seen, heard, thought,",
+        "source": "cnd20:23.3_0"
+    },
+    {
+        "source_sentence": "Atho aviññātaṁ kiñcanamatthi loke;",
+        "translation": "unsensed, or uncognized in the world!",
+        "source": "cnd20:23.4_0"
+    },
+    {
+        "source_sentence": "Ācikkha dhammaṁ yamahaṁ vijaññaṁ,",
+        "translation": "Explain the Teaching so that I may know",
+        "source": "cnd20:23.5_0"
+    },
+    {
+        "source_sentence": "Jātijarāya idha vippahānan”ti.",
+        "translation": "having given up birth and old age here.”",
+        "source": "cnd20:23.6_0"
+    },
+    {
+        "source_sentence": "**Taṇhādhipanne manuje pekkhamāno,**",
+        "translation": "seeing the danger in craving,",
+        "source": "cnd20:24.1_0"
+    },
+    {
+        "source_sentence": "(piṅgiyāti bhagavā)",
+        "translation": "The Fortunate One has descended from Piṅgiyānī,",
+        "source": "cnd20:24.2_0"
+    },
+    {
+        "source_sentence": "**Santāpajāte jarasā parete;**",
+        "translation": "are tormented, and overcome by old age -",
+        "source": "cnd20:24.3_0"
+    },
+    {
+        "source_sentence": "**Tasmā tuvaṁ piṅgiya appamatto,**",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:24.4_0"
+    },
+    {
+        "source_sentence": "**Jahassu taṇhaṁ apunabbhavāya. **",
+        "translation": "must give up craving and not come into existence again.",
+        "source": "cnd20:24.5_0"
+    },
+    {
+        "source_sentence": "**Taṇhādhipanne manuje pekkhamāno**ti.",
+        "translation": "seeing that person who has fallen into craving,",
+        "source": "cnd20:25.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti rūpataṇhā …pe… dhammataṇhā.",
+        "translation": "craving for sights ...",
+        "source": "cnd20:25.2_0"
+    },
+    {
+        "source_sentence": "**Taṇhādhipanne**ti taṇhādhipanne taṇhānuge taṇhānugate taṇhānusaṭe taṇhāya panne paṭipanne abhibhūte pariyādinnacitte.",
+        "translation": "Craving forwards off the attachment to craving, attachment to rebirth, and craving for existence.",
+        "source": "cnd20:25.3_0"
+    },
+    {
+        "source_sentence": "**Manuje**ti sattādhivacanaṁ.",
+        "translation": "to human beings.",
+        "source": "cnd20:25.4_0"
+    },
+    {
+        "source_sentence": "**Pekkhamāno**ti pekkhamāno dakkhamāno olokayamāno nijjhāyamāno upaparikkhamānoti—",
+        "translation": "while looking around, he looks around, thinking,",
+        "source": "cnd20:25.5_0"
+    },
+    {
+        "source_sentence": "taṇhādhipanne manuje pekkhamāno.",
+        "translation": "seeing the danger in craving,",
+        "source": "cnd20:25.6_0"
+    },
+    {
+        "source_sentence": "**Piṅgiyāti bhagavā**ti.",
+        "translation": "The Fortunate One is address, (saying):",
+        "source": "cnd20:25.7_0"
+    },
+    {
+        "source_sentence": "**Piṅgiyā**ti bhagavā taṁ brāhmaṇaṁ nāmena ālapati.",
+        "translation": "The Fortunate One, after going to the brāhmaṇa Piṅgiyānī by name,",
+        "source": "cnd20:25.8_0"
+    },
+    {
+        "source_sentence": "**Bhagavā**ti gāravādhivacanametaṁ …pe… sacchikā paññatti, yadidaṁ bhagavāti—",
+        "translation": "The Buddha has designated Māra’s statements, that is,",
+        "source": "cnd20:25.9_0"
+    },
+    {
+        "source_sentence": "piṅgiyāti bhagavā.",
+        "translation": "The Fortunate One has descended from Piṅgiyānī,",
+        "source": "cnd20:25.10_0"
+    },
+    {
+        "source_sentence": "**Santāpajāte jarasā parete**ti.",
+        "translation": "are tormented, and overcome by old age -",
+        "source": "cnd20:26.1_0"
+    },
+    {
+        "source_sentence": "**Santāpajāte**ti jātiyā santāpajāte, jarāya santāpajāte, byādhinā santāpajāte, maraṇena santāpajāte, sokaparidevadukkhadomanassupāyāsehi santāpajāte, nerayikena dukkhena santāpajāte …pe…",
+        "translation": "peaceful and sublime.",
+        "source": "cnd20:26.2_0"
+    },
+    {
+        "source_sentence": "diṭṭhibyasanena dukkhena santāpajāte ītijāte upaddavajāte upasaggajāteti—",
+        "translation": "or loss of a view. Reborn as a peaceful, substantial reappearance.",
+        "source": "cnd20:26.3_0"
+    },
+    {
+        "source_sentence": "santāpajāte.",
+        "translation": "peaceful and reborn,",
+        "source": "cnd20:26.4_0"
+    },
+    {
+        "source_sentence": "**Jarasā parete**ti jarāya phuṭṭhe parete samohite samannāgate.",
+        "translation": "when old age is burning, he possesses old age’s sickness,",
+        "source": "cnd20:26.5_0"
+    },
+    {
+        "source_sentence": "Jātiyā anugate jarāya anusaṭe byādhinā abhibhūte maraṇena abbhāhate atāṇe aleṇe asaraṇe asaraṇībhūteti—",
+        "translation": "When rebirth has come to old age, they’re cured by sickness, death, sorrow, and lamentation, pain, sadness, and distress.",
+        "source": "cnd20:26.6_0"
+    },
+    {
+        "source_sentence": "santāpajāte jarasā parete.",
+        "translation": "are tormented, and overcome by old age -",
+        "source": "cnd20:26.7_0"
+    },
+    {
+        "source_sentence": "**Tasmā tuvaṁ piṅgiya appamatto**ti.",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:27.1_0"
+    },
+    {
+        "source_sentence": "**Tasmā**ti tasmā taṅkāraṇā taṁhetu tappaccayā taṁnidānā evaṁ ādīnavaṁ sampassamāno taṇhāyāti—",
+        "translation": "That’s why it comes to be with that reason.",
+        "source": "cnd20:27.2_0"
+    },
+    {
+        "source_sentence": "tasmā tuvaṁ piṅgiya.",
+        "translation": "therefore you, Piṅgiya,",
+        "source": "cnd20:27.3_0"
+    },
+    {
+        "source_sentence": "**Appamatto**ti sakkaccakārī …pe…",
+        "translation": "Heedfully treats his attendants.",
+        "source": "cnd20:27.4_0"
+    },
+    {
+        "source_sentence": "appamādo kusalesu dhammesūti—",
+        "translation": "diligence in skillful qualities:",
+        "source": "cnd20:27.5_0"
+    },
+    {
+        "source_sentence": "tasmā tuvaṁ piṅgiya appamatto.",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:27.6_0"
+    },
+    {
+        "source_sentence": "**Jahassu taṇhaṁ apunabbhavāyā**ti.",
+        "translation": "must give up craving and not come into existence again.",
+        "source": "cnd20:28.1_0"
+    },
+    {
+        "source_sentence": "**Taṇhā**ti rūpataṇhā …pe… dhammataṇhā.",
+        "translation": "craving for sights ...",
+        "source": "cnd20:28.2_0"
+    },
+    {
+        "source_sentence": "**Jahassu taṇhan**ti jahassu taṇhaṁ pajahassu taṇhaṁ vinodehi taṇhaṁ byantīkarohi taṇhaṁ anabhāvaṁ gamehi taṇhaṁ.",
+        "translation": "craving, grasping, and mental craving.",
+        "source": "cnd20:28.3_0"
+    },
+    {
+        "source_sentence": "**Apunabbhavāyā**ti yathā te …pe…",
+        "translation": "They say: ‘May I be like that!’",
+        "source": "cnd20:28.4_0"
+    },
+    {
+        "source_sentence": "punapaṭisandhiko bhavo na nibbatteyya kāmadhātuyā vā rūpadhātuyā vā arūpadhātuyā vā, kāmabhave vā rūpabhave vā arūpabhave vā, saññābhave vā asaññābhave vā nevasaññānāsaññābhave vā, ekavokārabhave vā catuvokārabhave vā pañcavokārabhave vā, punagatiyā vā upapattiyā vā paṭisandhiyā vā bhave vā saṁsāre vā vaṭṭe vā na janeyya na sañjaneyya na nibbatteyya nābhinibbatteyya, idheva nirujjheyya vūpasameyya atthaṁ gaccheyya paṭippassambheyyāti—",
+        "translation": "Again, no rebirth in the realm of luminous form, or in the sensual realm, or in the realm of luminous form. That wouldn’t be reborn here or the realm of luminous form, or the dimension of infinite space in the form of existence.",
+        "source": "cnd20:28.5_0"
+    },
+    {
+        "source_sentence": "jahassu taṇhaṁ apunabbhavāya.",
+        "translation": "must give up craving and not come into existence again.",
+        "source": "cnd20:28.6_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd20:28.7_0"
+    },
+    {
+        "source_sentence": "“Taṇhādhipanne manuje pekkhamāno,",
+        "translation": "“Seeing human beings, we have looked after men,",
+        "source": "cnd20:29.1_0"
+    },
+    {
+        "source_sentence": "(piṅgiyāti bhagavā)",
+        "translation": "The Fortunate One has descended from Piṅgiyānī,",
+        "source": "cnd20:29.2_0"
+    },
+    {
+        "source_sentence": "Santāpajāte jarasā parete;",
+        "translation": "are tormented, and overcome by old age -",
+        "source": "cnd20:29.3_0"
+    },
+    {
+        "source_sentence": "Tasmā tuvaṁ piṅgiya appamatto,",
+        "translation": "therefore you, Piṅgiya, being heedful,",
+        "source": "cnd20:29.4_0"
+    },
+    {
+        "source_sentence": "Jahassu taṇhaṁ apunabbhavāyā”ti.",
+        "translation": "must give up craving and not come into existence again.”",
+        "source": "cnd20:29.5_0"
+    },
+    {
+        "source_sentence": "Saha gāthāpariyosānā ye te brāhmaṇena saddhiṁ ekacchandā ekapayogā ekādhippāyā ekavāsanavāsitā, tesaṁ anekapāṇasahassānaṁ virajaṁ vītamalaṁ dhammacakkhuṁ udapādi—",
+        "translation": "When they were finished, some of the brahmins with the same verses, while some of them sat together in one part of the Truth:",
+        "source": "cnd20:30.1_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti.",
+        "translation": "“Anything that has a beginning has an end.”",
+        "source": "cnd20:30.2_0"
+    },
+    {
+        "source_sentence": "Tassa ca brāhmaṇassa virajaṁ vītamalaṁ dhammacakkhuṁ udapādi—",
+        "translation": "And he experienced the stainless vision of the Truth:",
+        "source": "cnd20:30.3_0"
+    },
+    {
+        "source_sentence": "“yaṁ kiñci samudayadhammaṁ sabbaṁ taṁ nirodhadhamman”ti.",
+        "translation": "“Anything that has a beginning has an end.”",
+        "source": "cnd20:30.4_0"
+    },
+    {
+        "source_sentence": "Saha dhammacakkhussa paṭilābhā ajinajaṭāvākacīratidaṇḍakamaṇḍalukesā ca massū ca antarahitā bhaṇḍukāsāyavatthavasano saṅghāṭipattacīvaradharo anvatthapaṭipattiyā pañjaliko bhagavantaṁ namassamāno nisinno hoti—",
+        "translation": "It would be a thousand-eyed eyesight with doors of the Vick’s lion, king of beasts, and is embarrassed with joined palms raised in many ways.",
+        "source": "cnd20:30.5_0"
+    },
+    {
+        "source_sentence": "“satthā me, bhante, bhagavā, sāvakohamasmī”ti.",
+        "translation": "“Sir, you’re my teacher, I’m your disciple.”",
+        "source": "cnd20:30.6_0"
+    },
+    {
+        "source_sentence": "Piṅgiyamāṇavapucchāniddeso soḷasamo.",
+        "translation": "I ask you, Piṅgiya, who is a spot.",
+        "source": "cnd20:30.7_0"
+    }
+]

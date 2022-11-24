@@ -1,0 +1,2247 @@
+[
+    {
+        "source_sentence": "Cūḷaniddesa",
+        "translation": "Cūḷaniddesa",
+        "source": "cnd19:0.1_0"
+    },
+    {
+        "source_sentence": "Pārāyanavagganiddesa",
+        "translation": "Pārāyanavagganiddesa",
+        "source": "cnd19:0.2_0"
+    },
+    {
+        "source_sentence": "Pucchāniddesa",
+        "translation": "Pucchāniddesa",
+        "source": "cnd19:0.3_0"
+    },
+    {
+        "source_sentence": "15. Mogharājamāṇavapucchāniddesa",
+        "translation": "This I ask you, King Mogharāja.",
+        "source": "cnd19:0.4_0"
+    },
+    {
+        "source_sentence": "**Dvāhaṁ sakkaṁ apucchissaṁ,**",
+        "translation": "I’ll ask you about",
+        "source": "cnd19:1.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā mogharājā)",
+        "translation": "and Mogharāja.",
+        "source": "cnd19:1.2_0"
+    },
+    {
+        "source_sentence": "**Na me byākāsi cakkhumā;**",
+        "translation": "The seers of mine:",
+        "source": "cnd19:1.3_0"
+    },
+    {
+        "source_sentence": "**Yāvatatiyañca devīsi**,",
+        "translation": "After the third time the Queen Speaked.",
+        "source": "cnd19:1.4_0"
+    },
+    {
+        "source_sentence": "**Byākarotīti me sutaṁ. **",
+        "translation": "declares I have heard:",
+        "source": "cnd19:1.5_0"
+    },
+    {
+        "source_sentence": "**Dvāhaṁ sakkaṁ apucchissan**ti so brāhmaṇo dvikkhattuṁ buddhaṁ bhagavantaṁ pañhaṁ apucchi.",
+        "translation": "I’ll ask him about his own.",
+        "source": "cnd19:2.1_0"
+    },
+    {
+        "source_sentence": "Tassa bhagavā pañhaṁ puṭṭho na byākāsi—",
+        "translation": "And the Buddha answered him:",
+        "source": "cnd19:2.2_0"
+    },
+    {
+        "source_sentence": "“tadantarā imassa brāhmaṇassa indriyaparipāko bhavissatī”ti.",
+        "translation": "“This interruption of the faculty of the faculty will be a brahmin.”",
+        "source": "cnd19:2.3_0"
+    },
+    {
+        "source_sentence": "**Sakkan**ti sakko.",
+        "translation": "the Sakyans are able to witness",
+        "source": "cnd19:2.4_0"
+    },
+    {
+        "source_sentence": "Bhagavā sakyakulā pabbajitotipi sakko.",
+        "translation": "The Fortunate One has gone forth from the Sakyan clan, too,",
+        "source": "cnd19:2.5_0"
+    },
+    {
+        "source_sentence": "Atha vā aḍḍho mahaddhano dhanavātipi sakko.",
+        "translation": "Then rich, affluent, and wealthy, even though they’re able to endure",
+        "source": "cnd19:2.6_0"
+    },
+    {
+        "source_sentence": "Tassimāni dhanāni, seyyathidaṁ—",
+        "translation": "He has these kinds of wealth:",
+        "source": "cnd19:2.7_0"
+    },
+    {
+        "source_sentence": "saddhādhanaṁ sīladhanaṁ hiridhanaṁ ottappadhanaṁ sutadhanaṁ cāgadhanaṁ paññādhanaṁ satipaṭṭhānadhanaṁ sammappadhānadhanaṁ iddhipādadhanaṁ indriyadhanaṁ baladhanaṁ bojjhaṅgadhanaṁ maggadhanaṁ phaladhanaṁ nibbānadhanaṁ.",
+        "translation": "For the wealth of faith, ethical conduct, conscience, prudence, energy, and wisdom.",
+        "source": "cnd19:2.8_0"
+    },
+    {
+        "source_sentence": "Imehi anekavidhehi dhanaratanehi aḍḍho mahaddhano dhanavātipi sakko.",
+        "translation": "The wealth that was rich, affluent, and wealthy.",
+        "source": "cnd19:2.9_0"
+    },
+    {
+        "source_sentence": "Atha vā sakko pahu visavī alamatto sūro vīro vikkanto abhīrū acchambhī anutrāsī apalāyī pahīnabhayabheravo vigatalomahaṁsotipi sakko.",
+        "translation": "Or he was able to get uproot.",
+        "source": "cnd19:2.10_0"
+    },
+    {
+        "source_sentence": "**Dvāhaṁ sakkaṁ apucchissan**ti dvāhaṁ sakkaṁ apucchissaṁ ayācissaṁ ajjhesissaṁ pasādayissanti—",
+        "translation": "I’ll ask you about self-control, fitting, and insubstantial.",
+        "source": "cnd19:2.11_0"
+    },
+    {
+        "source_sentence": "dvāhaṁ sakkaṁ apucchissaṁ.",
+        "translation": "I’ll ask you about",
+        "source": "cnd19:2.12_0"
+    },
+    {
+        "source_sentence": "**Iccāyasmā mogharājā**ti.",
+        "translation": "and Mogharāja.",
+        "source": "cnd19:3.1_0"
+    },
+    {
+        "source_sentence": "**Iccā**ti padasandhi …pe…",
+        "translation": "It’s impermanent ...",
+        "source": "cnd19:3.2_0"
+    },
+    {
+        "source_sentence": "**āyasmā**ti piyavacanaṁ …pe…",
+        "translation": "Piyaka ...",
+        "source": "cnd19:3.3_0"
+    },
+    {
+        "source_sentence": "**mogharājā**ti tassa brāhmaṇassa nāmaṁ …pe… abhilāpoti—",
+        "translation": "Mogharāja ...",
+        "source": "cnd19:3.4_0"
+    },
+    {
+        "source_sentence": "iccāyasmā mogharājā.",
+        "translation": "and Mogharāja.",
+        "source": "cnd19:3.5_0"
+    },
+    {
+        "source_sentence": "**Na me byākāsi cakkhumā**ti.",
+        "translation": "The Seer answers to me,",
+        "source": "cnd19:4.1_0"
+    },
+    {
+        "source_sentence": "**Na me byākāsī**ti na me byākāsi na ācikkhi na desesi na paññapesi na paṭṭhapesi na vivari na vibhaji na uttānīakāsi na pakāsesi.",
+        "translation": "He didn’t answer.",
+        "source": "cnd19:4.2_0"
+    },
+    {
+        "source_sentence": "**Cakkhumā**ti bhagavā pañcahi cakkhūhi cakkhumā—",
+        "translation": "The Buddha eyes and five eyes:",
+        "source": "cnd19:4.3_0"
+    },
+    {
+        "source_sentence": "maṁsacakkhunāpi cakkhumā, dibbacakkhunāpi cakkhumā, paññācakkhunāpi cakkhumā, buddhacakkhunāpi cakkhumā, samantacakkhunāpi cakkhumā.",
+        "translation": "the Visionary-Seeing Visionary, the eye of the Buddha, and the clear vision of the Visionary, and the eye-contact-born of Visionary, the clear vision of the Eye-Seer.",
+        "source": "cnd19:4.4_0"
+    },
+    {
+        "source_sentence": "Kathaṁ bhagavā maṁsacakkhunāpi cakkhumā?",
+        "translation": "The Fortunate One, how did the Fortunate One see me",
+        "source": "cnd19:5.1_0"
+    },
+    {
+        "source_sentence": "Maṁsacakkhumhi bhagavato pañca vaṇṇā saṁvijjanti—",
+        "translation": "The Buddha praised me with the eye of the flesh,",
+        "source": "cnd19:5.2_0"
+    },
+    {
+        "source_sentence": "nīlo ca vaṇṇo, pītako ca vaṇṇo, lohitako ca vaṇṇo, kaṇho ca vaṇṇo, odāto ca vaṇṇo (…).",
+        "translation": "blue and yellow, red, and white. ...",
+        "source": "cnd19:5.3_0"
+    },
+    {
+        "source_sentence": "Yattha ca akkhilomāni patiṭṭhitāni taṁ nīlaṁ hoti sunīlaṁ pāsādikaṁ dassaneyyaṁ umāpupphasamānaṁ.",
+        "translation": "Where the eyes are made of stone, blue, yellow, red, or white.",
+        "source": "cnd19:5.4_0"
+    },
+    {
+        "source_sentence": "Tassa parato pītakaṁ hoti supītakaṁ suvaṇṇavaṇṇaṁ pāsādikaṁ dassaneyyaṁ kaṇikārapupphasamānaṁ.",
+        "translation": "They had yellow, red, white, a beautiful golden garland, and a creeper.",
+        "source": "cnd19:5.5_0"
+    },
+    {
+        "source_sentence": "Ubhato ca akkhikūṭāni bhagavato lohitakāni honti sulohitakāni pāsādikāni dassaneyyāni indagopakasamānāni.",
+        "translation": "And they are bloody-handed, red and illustrious.",
+        "source": "cnd19:5.6_0"
+    },
+    {
+        "source_sentence": "Majjhe kaṇhaṁ hoti sukaṇhaṁ alūkhaṁ siniddhaṁ pāsādikaṁ dassaneyyaṁ addāriṭṭhakasamānaṁ.",
+        "translation": "They lie in the middle of the day in the Kaṇhāyanas, with a gravel and pebble.",
+        "source": "cnd19:5.7_0"
+    },
+    {
+        "source_sentence": "Tassa parato odātaṁ hoti suodātaṁ setaṁ paṇḍaraṁ pāsādikaṁ dassaneyyaṁ osadhitārakasamānaṁ.",
+        "translation": "They’re white, with a white cloth from others, with a white stilt household, clean clothes, and beds.",
+        "source": "cnd19:5.8_0"
+    },
+    {
+        "source_sentence": "Tena bhagavā pākatikena maṁsacakkhunā attabhāvapariyāpannena purimasucaritakammābhinibbattena samantā yojanaṁ passati divā ceva rattiñca.",
+        "translation": "Now, the Buddha made me drink by means of that incarnation for a whole night, with the eyes might see for a league all around both night and day.",
+        "source": "cnd19:5.9_0"
+    },
+    {
+        "source_sentence": "Yadā hi caturaṅgasamannāgato andhakāro hoti sūriyo ca atthaṅgato hoti;",
+        "translation": "Because when he has four factors, he is darkness and sunset from sun.",
+        "source": "cnd19:5.10_0"
+    },
+    {
+        "source_sentence": "kāḷapakkho ca uposatho hoti, tibbo ca vanasaṇḍo hoti, mahā ca kāḷamegho abbhuṭṭhito hoti.",
+        "translation": "And the observance of the sabbath is large. It is a bunch of sesame flour, but it is chickly large.",
+        "source": "cnd19:5.11_0"
+    },
+    {
+        "source_sentence": "Evarūpe caturaṅgasamannāgate andhakāre samantā yojanaṁ passati.",
+        "translation": "Having such a fourth factors he sees such as the darkness of night,",
+        "source": "cnd19:5.12_0"
+    },
+    {
+        "source_sentence": "Natthi so kuṭṭo vā kavāṭaṁ vā pākāro vā pabbato vā gaccho vā latā vā āvaraṇaṁ rūpānaṁ dassanāya.",
+        "translation": "no damage or archery, there’s no creeper, and making it from a conflagration.",
+        "source": "cnd19:5.13_0"
+    },
+    {
+        "source_sentence": "Ekañce tilaphalaṁ nimittaṁ katvā tilavāhe pakkhipeyya, taṁyeva tilaphalaṁ uddhareyya.",
+        "translation": "If he were to make a fruit, he should put it away in the fruit of that same sign, and he should remove it.",
+        "source": "cnd19:5.14_0"
+    },
+    {
+        "source_sentence": "Evaṁ parisuddhaṁ bhagavato pākatikaṁ maṁsacakkhu.",
+        "translation": "thus the Fortunate One’s vision Pāṭikaputta",
+        "source": "cnd19:5.15_0"
+    },
+    {
+        "source_sentence": "Evaṁ bhagavā maṁsacakkhunāpi cakkhumā.",
+        "translation": "Thus the Fortunate One, having vision,",
+        "source": "cnd19:5.16_0"
+    },
+    {
+        "source_sentence": "Kathaṁ bhagavā dibbena cakkhunāpi cakkhumā?",
+        "translation": "How did the Fortunate One see with the divine eye?",
+        "source": "cnd19:6.1_0"
+    },
+    {
+        "source_sentence": "Bhagavā dibbena cakkhunā visuddhena atikkantamānusakena satte passati cavamāne upapajjamāne hīne paṇīte suvaṇṇe dubbaṇṇe;",
+        "translation": "With clairvoyance that is purified and superhuman, the Buddha sees sentient beings passing away and being reborn—inferior and superior, beautiful and ugly, in a good place or a bad place.",
+        "source": "cnd19:6.2_0"
+    },
+    {
+        "source_sentence": "sugate duggate yathākammūpage satte pajānāti—",
+        "translation": "They understand how sentient beings are reborn according to their deeds.",
+        "source": "cnd19:6.3_0"
+    },
+    {
+        "source_sentence": "“ime vata bhonto sattā kāyaduccaritena samannāgatā vacīduccaritena samannāgatā manoduccaritena samannāgatā ariyānaṁ upavādakā micchādiṭṭhikā micchādiṭṭhikammasamādānā, te kāyassa bhedā paraṁ maraṇā apāyaṁ duggatiṁ vinipātaṁ nirayaṁ upapannā;",
+        "translation": "“These dear beings did bad things by way of body, speech, and mind.",
+        "source": "cnd19:6.4_0"
+    },
+    {
+        "source_sentence": "ime vā pana bhonto sattā kāyasucaritena samannāgatā vacīsucaritena samannāgatā manosucaritena samannāgatā ariyānaṁ anupavādakā sammādiṭṭhikā sammādiṭṭhikammasamādānā, te kāyassa bhedā paraṁ maraṇā sugatiṁ saggaṁ lokaṁ upapannā”ti.",
+        "translation": "They understand how sentient beings are reborn according to their deeds.",
+        "source": "cnd19:6.5_0"
+    },
+    {
+        "source_sentence": "Iti dibbena cakkhunā visuddhena atikkantamānusakena satte passati cavamāne upapajjamāne hīne paṇīte suvaṇṇe dubbaṇṇe sugate duggate, yathākammūpage satte pajānāti.",
+        "translation": "When their body breaks up, after death, they’re reborn in a place of loss, a bad place, the underworld, hell. These dear beings, however, did good things by way of body, speech, and mind. They never spoke ill of the noble ones; they had right view; and they chose to act out of that right view. When their body breaks up, after death, they’re reborn in a good place, a heavenly realm.’ And so, with clairvoyance that is purified and superhuman, they see sentient beings passing away and being reborn—inferior and superior, beautiful and ugly, in a good place or a bad place. They understand how sentient beings are reborn according to their deeds.",
+        "source": "cnd19:6.6_0"
+    },
+    {
+        "source_sentence": "Ākaṅkhamāno ca bhagavā ekampi lokadhātuṁ passeyya, dvepi lokadhātuyo passeyya, tissopi lokadhātuyo passeyya, catassopi lokadhātuyo passeyya, pañcapi lokadhātuyo passeyya, dasapi lokadhātuyo passeyya, vīsampi lokadhātuyo passeyya, tiṁsampi lokadhātuyo passeyya, cattālīsampi lokadhātuyo passeyya, paññāsampi lokadhātuyo passeyya, satampi lokadhātuyo passeyya, sahassimpi cūḷanikaṁ lokadhātuṁ passeyya, dvisahassimpi majjhimikaṁ lokadhātuṁ passeyya, tisahassimpi lokadhātuṁ passeyya, mahāsahassimpi lokadhātuṁ passeyya, yāvatakaṁ vā pana ākaṅkheyya tāvatakaṁ passeyya.",
+        "translation": "If he wished, the Buddha might see the world elements, and the four world elements, who might see the world elements, and the teaching, the Saṅgha in the world, and the world can see even and see the world elements. And all of them, who might see the world elements, a hundred and twenty thousand world elements, or thirty-elements.",
+        "source": "cnd19:6.7_0"
+    },
+    {
+        "source_sentence": "Evaṁ parisuddhaṁ bhagavato dibbacakkhu.",
+        "translation": "thus the Fortunate One is pure and bright.",
+        "source": "cnd19:6.8_0"
+    },
+    {
+        "source_sentence": "Evaṁ bhagavā dibbena cakkhunāpi cakkhumā.",
+        "translation": "Thus the Fortunate One has seen with his divine eye,",
+        "source": "cnd19:6.9_0"
+    },
+    {
+        "source_sentence": "Kathaṁ bhagavā paññācakkhunāpi cakkhumā?",
+        "translation": "How did the Fortunate One seers of wisdom?",
+        "source": "cnd19:7.1_0"
+    },
+    {
+        "source_sentence": "Bhagavā mahāpañño puthupañño javanapañño hāsapañño tikkhapañño nibbedhikapañño paññāpabhedakusalo pabhinnañāṇo adhigatapaṭisambhido catuvesārajjappatto dasabaladhārī purisāsabho purisasīho purisanāgo purisājañño purisadhorayho anantañāṇo anantatejo anantayaso aḍḍho mahaddhano dhanavā netā vinetā anunetā paññāpetā nijjhāpetā pekkhetā pasādetā.",
+        "translation": "He has great wisdom, widespread wisdom, laughing wisdom, swift wisdom, sharp wisdom, and penetrating wisdom. He has attained excess of ten kinds of widespread. And he converses confidence in his heart, who has attained enlightenment, who has arrived at the method of wisdom, and is free of enmity and ill will.",
+        "source": "cnd19:7.2_0"
+    },
+    {
+        "source_sentence": "So hi bhagavā anuppannassa maggassa uppādetā asañjātassa maggassa sañjanetā anakkhātassa maggassa akkhātā, maggaññū maggavidū maggakovido maggānugā ca pana etarahi sāvakā viharanti pacchā samannāgatā.",
+        "translation": "For the Blessed One has arisen in the unarisen path, gave birth to the unborn path, explained the unexplained path. He was the knower of the path, the discoverer of the path, the expert on the path. And now he was fully explained the path.",
+        "source": "cnd19:7.3_0"
+    },
+    {
+        "source_sentence": "So hi bhagavā jānaṁ jānāti, passaṁ passati, cakkhubhūto ñāṇabhūto dhammabhūto brahmabhūto vattā pavattā atthassa ninnetā amatassa dātā dhammassāmī tathāgato.",
+        "translation": "For the Buddha knows and sees. He is vision, he is knowledge, he is the truth, he is holiness. He is the teacher, the proclaimer, the elucidator of meaning, the bestower of the deathless, the lord of truth, the Realized One.",
+        "source": "cnd19:8.1_0"
+    },
+    {
+        "source_sentence": "Natthi tassa bhagavato aññātaṁ adiṭṭhaṁ aviditaṁ asacchikataṁ aphassitaṁ paññāya.",
+        "translation": "There is no such thing as knowing and seeing the Buddha has not known, seen, understood, realized, and experienced this with wisdom.",
+        "source": "cnd19:8.2_0"
+    },
+    {
+        "source_sentence": "Atītaṁ anāgataṁ paccuppannaṁ upādāya sabbe dhammā sabbākārena buddhassa bhagavato ñāṇamukhe āpāthaṁ āgacchanti.",
+        "translation": "In the past, future, and present are present. All of the Buddhas come from in front to truly.",
+        "source": "cnd19:8.3_0"
+    },
+    {
+        "source_sentence": "Yaṁ kiñci neyyaṁ nāma atthi jānitabbaṁ attattho vā parattho vā ubhayattho vā diṭṭhadhammiko vā attho samparāyiko vā attho uttāno vā attho gambhīro vā attho gūḷho vā attho paṭicchanno vā attho neyyo vā attho nīto vā attho anavajjo vā attho nikkileso vā attho vodāno vā attho paramattho vā attho, sabbaṁ taṁ anto buddhañāṇe parivattati.",
+        "translation": "Whatever I know—whether pleasant, painful, or neutral—that is the meaning—orruptions there is. What is beneficial or what is harmful, bordering on both sides—the meaning is beneficial or has been discovered. The meaning is beneficial or repulsion is beneficial.",
+        "source": "cnd19:8.4_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ kāyakammaṁ buddhassa bhagavato ñāṇānuparivatti, sabbaṁ vacīkammaṁ ñāṇānuparivatti, sabbaṁ manokammaṁ ñāṇānuparivatti.",
+        "translation": "all the deeds done by way of body, speech, and mind do not return to the Buddha, the urgency of deeds.",
+        "source": "cnd19:9.1_0"
+    },
+    {
+        "source_sentence": "Atīte buddhassa bhagavato appaṭihataṁ ñāṇaṁ, anāgate appaṭihataṁ ñāṇaṁ, paccuppanne appaṭihataṁ ñāṇaṁ, yāvatakaṁ neyyaṁ tāvatakaṁ ñāṇaṁ, yāvatakaṁ ñāṇaṁ tāvatakaṁ neyyaṁ.",
+        "translation": "regarding the Buddha’s knowledge of the past, the future, and the present is knowledge of the present.",
+        "source": "cnd19:9.2_0"
+    },
+    {
+        "source_sentence": "Neyyapariyantikaṁ ñāṇaṁ, ñāṇapariyantikaṁ neyyaṁ, neyyaṁ atikkamitvā ñāṇaṁ nappavattati, ñāṇaṁ atikkamitvā neyyapatho natthi.",
+        "translation": "knowledge of the decision: from the time period has a limited knowledge, but only then passes beyond, not by overcoming the rule.",
+        "source": "cnd19:9.3_0"
+    },
+    {
+        "source_sentence": "Aññamaññapariyantaṭṭhāyino te dhammā.",
+        "translation": "Thoughts that are limitless",
+        "source": "cnd19:9.4_0"
+    },
+    {
+        "source_sentence": "Yathā dvinnaṁ samuggapaṭalānaṁ sammāphusitānaṁ heṭṭhimaṁ samuggapaṭalaṁ uparimaṁ nātivattati, uparimaṁ samuggapaṭalaṁ heṭṭhimaṁ nātivattati, aññamaññapariyantaṭṭhāyino;",
+        "translation": "As the sun (works) at the tops of the two, the upper rope does not smooth on the above ground.",
+        "source": "cnd19:9.5_0"
+    },
+    {
+        "source_sentence": "evameva buddhassa bhagavato neyyañca ñāṇañca aññamaññapariyantaṭṭhāyino.",
+        "translation": "so too the Buddha’s knowledge, and the number of knowledges were totally destroyed,",
+        "source": "cnd19:9.6_0"
+    },
+    {
+        "source_sentence": "Yāvatakaṁ neyyaṁ tāvatakaṁ ñāṇaṁ, yāvatakaṁ ñāṇaṁ tāvatakaṁ neyyaṁ, neyyapariyantikaṁ ñāṇaṁ, ñāṇapariyantikaṁ neyyaṁ.",
+        "translation": "each time just as far as the last careful knowledge.",
+        "source": "cnd19:9.7_0"
+    },
+    {
+        "source_sentence": "Neyyaṁ atikkamitvā ñāṇaṁ nappavattati, ñāṇaṁ atikkamitvā neyyapatho natthi.",
+        "translation": "If I don’t know it or reach the end of the robe, and then passes beyond, there’s no composed.",
+        "source": "cnd19:9.8_0"
+    },
+    {
+        "source_sentence": "Aññamaññapariyantaṭṭhāyino te dhammā.",
+        "translation": "Thoughts that are limitless",
+        "source": "cnd19:9.9_0"
+    },
+    {
+        "source_sentence": "Sabbadhammesu buddhassa bhagavato ñāṇaṁ pavattati.",
+        "translation": "Knowledge of the Buddha’s knowledge,",
+        "source": "cnd19:10.1_0"
+    },
+    {
+        "source_sentence": "Sabbe dhammā buddhassa bhagavato āvajjanapaṭibaddhā ākaṅkhapaṭibaddhā manasikārapaṭibaddhā cittuppādapaṭibaddhā.",
+        "translation": "All things are clear in reference to the Buddha’s doctrines, applying to the dependent origination of the Buddha.",
+        "source": "cnd19:10.2_0"
+    },
+    {
+        "source_sentence": "Sabbasattesu buddhassa bhagavato ñāṇaṁ pavattati.",
+        "translation": "with the Buddha’s knowledge of all,",
+        "source": "cnd19:10.3_0"
+    },
+    {
+        "source_sentence": "Sabbesañca sattānaṁ bhagavā āsayaṁ jānāti, anusayaṁ jānāti, caritaṁ jānāti, adhimuttiṁ jānāti, apparajakkhe mahārajakkhe tikkhindriye mudindriye svākāre dvākāre suviññāpaye duviññāpaye bhabbābhabbe satte jānāti.",
+        "translation": "And he knows all sentient beings’ habits, knows their inherent tendencies, knows their bents, knows them as with little dust on their eyes and with much dust on their eyes, with keen faculties and with dull faculties, with good behaviour and with bad behaviour, easy to teach and hard to teach, capable and incapable of achieving wisdom.",
+        "source": "cnd19:10.4_0"
+    },
+    {
+        "source_sentence": "Sadevako loko samārako sabrahmako sassamaṇabrāhmaṇī pajā sadevamanussā antobuddhañāṇe parivattati.",
+        "translation": "The world with its gods, Māras and Brahmās, this population with its ascetics and brahmins, gods and humans, the Buddhas swells towards the Buddha.",
+        "source": "cnd19:10.5_0"
+    },
+    {
+        "source_sentence": "Yathā ye keci macchakacchapā antamaso timitimiṅgalaṁ upādāya antomahāsamudde parivattanti, evameva sadevako loko samārako loko sabrahmako loko sassamaṇabrāhmaṇī pajā sadevamanussā antobuddhañāṇe parivattati.",
+        "translation": "Whatever is made up of the finger-snap, even just as the world does, so too, this world—with its gods, Māras and Brahmās, this population with its ascetics and brahmins, gods and humans—the world sweept away by the Buddha.",
+        "source": "cnd19:11.1_0"
+    },
+    {
+        "source_sentence": "Yathā ye keci pakkhī antamaso garuḷaṁ venateyyaṁ upādāya ākāsassa padese parivattanti, evameva yepi te sāriputtasamā paññāya samannāgatā tepi buddhañāṇassa padese parivattanti;",
+        "translation": "Those who know birds that include in the space so too will return, even the stirred by the Buddha.",
+        "source": "cnd19:12.1_0"
+    },
+    {
+        "source_sentence": "buddhañāṇaṁ devamanussānaṁ paññaṁ pharitvā abhibhavitvā tiṭṭhati.",
+        "translation": "Knowledge of the Buddha, Knowledge, (thinking):",
+        "source": "cnd19:12.2_0"
+    },
+    {
+        "source_sentence": "Yepi te khattiyapaṇḍitā brāhmaṇapaṇḍitā gahapatipaṇḍitā samaṇapaṇḍitā nipuṇā kataparappavādā vālavedhirūpā vobhindantā maññe caranti paññāgatena diṭṭhigatāni, te pañhe abhisaṅkharitvā abhisaṅkharitvā tathāgataṁ upasaṅkamitvā pucchanti gūḷhāni ca paṭicchannāni.",
+        "translation": "Even those aristocrats, brahmins, householders, or ascetics who clever householders—they’ve already planned, planted out their doctrines—broad, collapse up the answers to their questions.",
+        "source": "cnd19:13.1_0"
+    },
+    {
+        "source_sentence": "Kathitā visajjitā ca te pañhā bhagavatā honti niddiṭṭhakāraṇā.",
+        "translation": "When the Buddha has clearly seen them, they are blameless, but have not seen them.",
+        "source": "cnd19:13.2_0"
+    },
+    {
+        "source_sentence": "Upakkhittakā ca te bhagavato sampajjanti.",
+        "translation": "and they were unable to penetrate it.",
+        "source": "cnd19:13.3_0"
+    },
+    {
+        "source_sentence": "Atha kho bhagavāva tattha atirocati—",
+        "translation": "But the Buddha cry like this:",
+        "source": "cnd19:13.4_0"
+    },
+    {
+        "source_sentence": "yadidaṁ paññāyāti.",
+        "translation": "is with wisdom.",
+        "source": "cnd19:13.5_0"
+    },
+    {
+        "source_sentence": "Evaṁ bhagavā paññācakkhunāpi cakkhumā.",
+        "translation": "The Fortunate One has clearly seen (him) with the eye of wisdom",
+        "source": "cnd19:13.6_0"
+    },
+    {
+        "source_sentence": "Kathaṁ bhagavā buddhacakkhunāpi cakkhumā?",
+        "translation": "How did the Fortunate One seer?",
+        "source": "cnd19:14.1_0"
+    },
+    {
+        "source_sentence": "Bhagavā buddhacakkhunā lokaṁ volokento addasa satte apparajakkhe mahārajakkhe tikkhindriye mudindriye svākāre dvākāre suviññāpaye duviññāpaye appekacce paralokavajjabhayadassāvino viharante.",
+        "translation": "And the Buddha saw sentient beings with little dust in their eyes, and some with much dust in their eyes; with keen faculties and with weak faculties, with good qualities and with bad qualities, easy to teach and hard to teach. And some of them lived seeing the danger in the fault to do with the next world, while others did not.",
+        "source": "cnd19:14.2_0"
+    },
+    {
+        "source_sentence": "Seyyathāpi nāma uppaliniyaṁ vā paduminiyaṁ vā puṇḍarīkiniyaṁ vā appekaccāni uppalāni vā padumāni vā puṇḍarīkāni vā udake jātāni udake saṁvaḍḍhāni udakānuggatāni antonimuggaposīni, appekaccāni uppalāni vā padumāni vā puṇḍarīkāni vā udake jātāni udake saṁvaḍḍhāni samodakaṁ ṭhitāni, appekaccāni uppalāni vā padumāni vā puṇḍarīkāni vā udake jātāni udake saṁvaḍḍhāni udakā accuggamma tiṭṭhanti anupalittāni udakena;",
+        "translation": "It’s like a pool with blue water lilies, or pink or white lotuses.",
+        "source": "cnd19:14.3_0"
+    },
+    {
+        "source_sentence": "evamevaṁ bhagavā buddhacakkhunā lokaṁ volokento addasa satte apparajakkhe mahārajakkhe tikkhindriye mudindriye svākāre dvākāre suviññāpaye duviññāpaye appekacce paralokavajjabhayadassāvino viharante.",
+        "translation": "In the same way, the Buddha saw sentient beings with little dust in their eyes, and some with much dust in their eyes.",
+        "source": "cnd19:14.4_0"
+    },
+    {
+        "source_sentence": "Jānāti bhagavā—",
+        "translation": "The Buddha knows that",
+        "source": "cnd19:14.5_0"
+    },
+    {
+        "source_sentence": "“ayaṁ puggalo rāgacarito, ayaṁ dosacarito, ayaṁ mohacarito, ayaṁ vitakkacarito, ayaṁ saddhācarito, ayaṁ ñāṇacarito”ti.",
+        "translation": "“This person is of greedy temperament, one of hating temperament, one of deluded temperament, one of speculative temperament, and one of faithful temperament.”",
+        "source": "cnd19:14.6_0"
+    },
+    {
+        "source_sentence": "Rāgacaritassa bhagavā puggalassa asubhakathaṁ katheti;",
+        "translation": "For one of greedy temperament talks about people.",
+        "source": "cnd19:14.7_0"
+    },
+    {
+        "source_sentence": "dosacaritassa bhagavā puggalassa mettābhāvanaṁ ācikkhati;",
+        "translation": "In one of hating temperament the Blessed One tells about loving-kindness to another person.",
+        "source": "cnd19:14.8_0"
+    },
+    {
+        "source_sentence": "mohacaritassa bhagavā puggalassa uddese paripucchāya kālena dhammassavane kālena dhammasākacchāya garusaṁvāse niveseti;",
+        "translation": "In one of deluded temperament, the Buddha questions at the right time without asking permission.",
+        "source": "cnd19:14.9_0"
+    },
+    {
+        "source_sentence": "vitakkacaritassa bhagavā puggalassa ānāpānassatiṁ ācikkhati;",
+        "translation": "Mindfulness of breathing explains the Buddha.",
+        "source": "cnd19:14.10_0"
+    },
+    {
+        "source_sentence": "saddhācaritassa bhagavā puggalassa pasādanīyaṁ nimittaṁ ācikkhati buddhasubodhiṁ dhammasudhammataṁ saṅghasuppaṭipattiṁ sīlāni ca;",
+        "translation": "And that is how the Buddha explains a certain person’s confidence, etc., as expounders of the Teaching, the Saṅgha, and the ethics, generosity, and wisdom.",
+        "source": "cnd19:14.11_0"
+    },
+    {
+        "source_sentence": "attano ñāṇacaritassa bhagavā puggalassa vipassanānimittaṁ ācikkhati aniccākāraṁ dukkhākāraṁ anattākāraṁ.",
+        "translation": "In one of his own knowledge, the Blessed One tells about, who has discerned knowledge, the meditation that is impermanent, suffering, and perishable.",
+        "source": "cnd19:14.12_0"
+    },
+    {
+        "source_sentence": "“Sele yathā pabbatamuddhaniṭṭhito,",
+        "translation": "“Standing high on a rocky mountain,",
+        "source": "cnd19:15.1_0"
+    },
+    {
+        "source_sentence": "Yathāpi passe janataṁ samantato;",
+        "translation": "you can see the people all around.",
+        "source": "cnd19:15.2_0"
+    },
+    {
+        "source_sentence": "Tathūpamaṁ dhammamayaṁ sumedha,",
+        "translation": "In just the same way, all-seer, wise one,",
+        "source": "cnd19:15.3_0"
+    },
+    {
+        "source_sentence": "Pāsādamāruyha samantacakkhu;",
+        "translation": "having ascended the Temple of Truth,",
+        "source": "cnd19:15.4_0"
+    },
+    {
+        "source_sentence": "Sokāvatiṇṇaṁ janatamapetasoko,",
+        "translation": "Being rid of sorrow, look upon the people,",
+        "source": "cnd19:15.5_0"
+    },
+    {
+        "source_sentence": "Avekkhassu jātijarābhibhūtan”ti.",
+        "translation": "swamped with sorrow, oppressed by rebirth and old age.”",
+        "source": "cnd19:15.6_0"
+    },
+    {
+        "source_sentence": "Evaṁ bhagavā buddhacakkhunāpi cakkhumā.",
+        "translation": "Thus the Fortunate One, too, the Fortunate One,",
+        "source": "cnd19:16.1_0"
+    },
+    {
+        "source_sentence": "Kathaṁ bhagavā samantacakkhunāpi cakkhumā?",
+        "translation": "How should the Fortunate One, Visionary,",
+        "source": "cnd19:17.1_0"
+    },
+    {
+        "source_sentence": "**Samantacakkhu** vuccati sabbaññutañāṇaṁ.",
+        "translation": "All-Seing Visionary is what is meant.",
+        "source": "cnd19:17.2_0"
+    },
+    {
+        "source_sentence": "Bhagavā sabbaññutañāṇena upeto samupeto upāgato samupāgato upapanno samupapanno samannāgato.",
+        "translation": "All-Conquering, quite clear, equal, endowed with all good qualities,",
+        "source": "cnd19:17.3_0"
+    },
+    {
+        "source_sentence": "“Na tassa addiṭṭhamidhatthi kiñci,",
+        "translation": "“There is no place wherever I stood,",
+        "source": "cnd19:18.1_0"
+    },
+    {
+        "source_sentence": "Atho aviññātamajānitabbaṁ;",
+        "translation": "untrue, these things must be done.",
+        "source": "cnd19:18.2_0"
+    },
+    {
+        "source_sentence": "Sabbaṁ abhiññāsi yadatthi neyyaṁ,",
+        "translation": "to have direct knowledge all kinds of direct knowledge.",
+        "source": "cnd19:18.3_0"
+    },
+    {
+        "source_sentence": "Tathāgato tena samantacakkhū”ti.",
+        "translation": "from that these two are far-seeing.”",
+        "source": "cnd19:18.4_0"
+    },
+    {
+        "source_sentence": "Evaṁ bhagavā samantacakkhunāpi cakkhumāti—",
+        "translation": "The Buddha has eyes all around.",
+        "source": "cnd19:19.1_0"
+    },
+    {
+        "source_sentence": "na me byākāsi cakkhumā.",
+        "translation": "The seers of mine:",
+        "source": "cnd19:19.2_0"
+    },
+    {
+        "source_sentence": "**Yāvatatiyañca devīsi, byākarotīti me sutan**ti yāvatatiyaṁ buddho sahadhammikaṁ pañhaṁ puṭṭho byākaroti no saṁsāretīti—",
+        "translation": "and if he answers a question about the teaching; he answers with his answering as far as the Buddha. He answers with a legitimate question of others, not illegitimately.",
+        "source": "cnd19:20.1_0"
+    },
+    {
+        "source_sentence": "evaṁ mayā uggahitaṁ, evaṁ mayā upadhāritaṁ, evaṁ mayā upalakkhitaṁ.",
+        "translation": "So I’ve taught it, and so, (thinking):",
+        "source": "cnd19:20.2_0"
+    },
+    {
+        "source_sentence": "**Devīsī**ti bhagavā ceva isi cāti—",
+        "translation": "Devī, the Buddha at Isipatana,",
+        "source": "cnd19:20.3_0"
+    },
+    {
+        "source_sentence": "devīsi.",
+        "translation": "Queen Māyā",
+        "source": "cnd19:20.4_0"
+    },
+    {
+        "source_sentence": "Yathā rājā pabbajitā vuccanti rājisayo, brāhmaṇā pabbajitā vuccanti brāhmaṇisayo, evameva bhagavā ceva isi cāti—",
+        "translation": "just as the king is called Isidāsīva; the Buddha is called a brahmin, and both.",
+        "source": "cnd19:20.5_0"
+    },
+    {
+        "source_sentence": "devīsi.",
+        "translation": "Queen Māyā",
+        "source": "cnd19:20.6_0"
+    },
+    {
+        "source_sentence": "Atha vā bhagavā pabbajitotipi **isi**.",
+        "translation": "Then the Buddha Seer went forth.",
+        "source": "cnd19:21.1_0"
+    },
+    {
+        "source_sentence": "Mahantaṁ sīlakkhandhaṁ esī gavesī pariyesītipi isi.",
+        "translation": "searching for a great mass of virtue.",
+        "source": "cnd19:21.2_0"
+    },
+    {
+        "source_sentence": "Mahantaṁ samādhikkhandhaṁ …pe…",
+        "translation": "immersion ...",
+        "source": "cnd19:21.3_0"
+    },
+    {
+        "source_sentence": "mahantaṁ paññākkhandhaṁ …",
+        "translation": "the great mass of wisdom ...",
+        "source": "cnd19:21.4_0"
+    },
+    {
+        "source_sentence": "mahantaṁ vimuttikkhandhaṁ …",
+        "translation": "the great mass of freedom ...",
+        "source": "cnd19:21.5_0"
+    },
+    {
+        "source_sentence": "mahantaṁ vimuttiñāṇadassanakkhandhaṁ esī gavesī pariyesītipi isi.",
+        "translation": "searching for the great knowledge and vision of freedom, and searching for a long time.",
+        "source": "cnd19:21.6_0"
+    },
+    {
+        "source_sentence": "Mahato tamokāyassa padālanaṁ esī gavesī pariyesītipi isi.",
+        "translation": "searching for a great mass of darkness, and seeking for eighty years.",
+        "source": "cnd19:21.7_0"
+    },
+    {
+        "source_sentence": "Mahato vipallāsassa pabhedanaṁ esī gavesī pariyesītipi isi.",
+        "translation": "searching for a great lion, and searching for the breaking out of the bloom.",
+        "source": "cnd19:21.8_0"
+    },
+    {
+        "source_sentence": "Mahato taṇhāsallassa abbahanaṁ …",
+        "translation": "that is a great dart of craving,",
+        "source": "cnd19:21.9_0"
+    },
+    {
+        "source_sentence": "mahato diṭṭhisaṅghāṭassa viniveṭhanaṁ …",
+        "translation": "to the wrong view,",
+        "source": "cnd19:21.10_0"
+    },
+    {
+        "source_sentence": "mahato mānadhajassa papātanaṁ …",
+        "translation": "with a large banner’s crest ...",
+        "source": "cnd19:21.11_0"
+    },
+    {
+        "source_sentence": "mahato abhisaṅkhārassa vūpasamaṁ …",
+        "translation": "with great effort ...",
+        "source": "cnd19:21.12_0"
+    },
+    {
+        "source_sentence": "mahato oghassa nittharaṇaṁ …",
+        "translation": "a large following ...",
+        "source": "cnd19:21.13_0"
+    },
+    {
+        "source_sentence": "mahato bhārassa nikkhepanaṁ …",
+        "translation": "throwing out a great load ...",
+        "source": "cnd19:21.14_0"
+    },
+    {
+        "source_sentence": "mahato saṁsāravaṭṭassa upacchedaṁ …",
+        "translation": "moisture ...",
+        "source": "cnd19:21.15_0"
+    },
+    {
+        "source_sentence": "mahato santāpassa nibbāpanaṁ …",
+        "translation": "mortifies,",
+        "source": "cnd19:21.16_0"
+    },
+    {
+        "source_sentence": "mahato pariḷāhassa paṭippassaddhiṁ …",
+        "translation": "moves away ...",
+        "source": "cnd19:21.17_0"
+    },
+    {
+        "source_sentence": "mahato dhammadhajassa ussāpanaṁ esī gavesī pariyesītipi isi.",
+        "translation": "searched for a great banner, and seeking for the benefit of the Dhamma.",
+        "source": "cnd19:21.18_0"
+    },
+    {
+        "source_sentence": "Mahante satipaṭṭhāne …",
+        "translation": "the Saṅgha ...",
+        "source": "cnd19:21.19_0"
+    },
+    {
+        "source_sentence": "mahante sammappadhāne …",
+        "translation": "exertion ...",
+        "source": "cnd19:21.20_0"
+    },
+    {
+        "source_sentence": "mahantāni indriyāni …",
+        "translation": "exertion ...",
+        "source": "cnd19:21.21_0"
+    },
+    {
+        "source_sentence": "mahantāni balāni …",
+        "translation": "the great power ...",
+        "source": "cnd19:21.22_0"
+    },
+    {
+        "source_sentence": "mahante bojjhaṅge …",
+        "translation": "shoots ...",
+        "source": "cnd19:21.23_0"
+    },
+    {
+        "source_sentence": "mahantaṁ ariyaṁ aṭṭhaṅgikaṁ maggaṁ …",
+        "translation": "... the noble eightfold path ...",
+        "source": "cnd19:21.24_0"
+    },
+    {
+        "source_sentence": "mahantaṁ paramatthaṁ amataṁ nibbānaṁ esī gavesī pariyesītipi isi.",
+        "translation": "searching for the deathless, the supreme, emancipation.",
+        "source": "cnd19:21.25_0"
+    },
+    {
+        "source_sentence": "Mahesakkhehi vā sattehi esito gavesito pariyesito—",
+        "translation": "searches for the hundred being looked for searches,",
+        "source": "cnd19:21.26_0"
+    },
+    {
+        "source_sentence": "“kahaṁ buddho, kahaṁ bhagavā, kahaṁ devadevo, kahaṁ narāsabho”tipi isīti—",
+        "translation": "“God-King, where is the Buddha? Where are you, sir?”",
+        "source": "cnd19:21.27_0"
+    },
+    {
+        "source_sentence": "yāvatatiyañca devīsi byākarotīti me sutaṁ.",
+        "translation": "if (asked) up to a third time the Divine Seer answers, I have heard.",
+        "source": "cnd19:21.28_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "Hence that brahmin thought,",
+        "source": "cnd19:21.29_0"
+    },
+    {
+        "source_sentence": "“Dvāhaṁ sakkaṁ apucchissaṁ,",
+        "translation": "“I wasn’t able to ask",
+        "source": "cnd19:22.1_0"
+    },
+    {
+        "source_sentence": "(iccāyasmā mogharājā)",
+        "translation": "and Mogharāja.",
+        "source": "cnd19:22.2_0"
+    },
+    {
+        "source_sentence": "Na me byākāsi cakkhumā;",
+        "translation": "The seers of mine:",
+        "source": "cnd19:22.3_0"
+    },
+    {
+        "source_sentence": "Yāvatatiyañca devīsi,",
+        "translation": "and the Queen Māyāsi for the third time.",
+        "source": "cnd19:22.4_0"
+    },
+    {
+        "source_sentence": "Byākarotīti me sutan”ti.",
+        "translation": "declares I have heard.”",
+        "source": "cnd19:22.5_0"
+    },
+    {
+        "source_sentence": "**Ayaṁ loko paro loko,**",
+        "translation": "This world,",
+        "source": "cnd19:23.1_0"
+    },
+    {
+        "source_sentence": "**brahmaloko sadevako;**",
+        "translation": "the Brahmā realm with its gods.",
+        "source": "cnd19:23.2_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhiṁ te nābhijānāti,**",
+        "translation": "you don’t understand",
+        "source": "cnd19:23.3_0"
+    },
+    {
+        "source_sentence": "**gotamassa yasassino. **",
+        "translation": "of the renowned Gotama",
+        "source": "cnd19:23.4_0"
+    },
+    {
+        "source_sentence": "**Ayaṁ loko paro loko**ti.",
+        "translation": "This world is the other world.",
+        "source": "cnd19:24.1_0"
+    },
+    {
+        "source_sentence": "**Ayaṁ loko**ti manussaloko.",
+        "translation": "This world is a human being.",
+        "source": "cnd19:24.2_0"
+    },
+    {
+        "source_sentence": "**Paro loko**ti manussalokaṁ ṭhapetvā sabbo paro lokoti—",
+        "translation": "The whole world, except if there is another world,",
+        "source": "cnd19:24.3_0"
+    },
+    {
+        "source_sentence": "ayaṁ loko paro loko.",
+        "translation": "This world,",
+        "source": "cnd19:24.4_0"
+    },
+    {
+        "source_sentence": "**Brahmaloko sadevako**ti sadevako loko samārako sabrahmako sassamaṇabrāhmaṇī pajā sadevamanussāti—",
+        "translation": "The world with its gods, Māras, and Brahmās, this population with its ascetics and brahmins, its gods and humans—",
+        "source": "cnd19:25.1_0"
+    },
+    {
+        "source_sentence": "brahmaloko sadevako.",
+        "translation": "the Brahmā realm with its gods.",
+        "source": "cnd19:25.2_0"
+    },
+    {
+        "source_sentence": "**Diṭṭhiṁ te nābhijānātī**ti tuyhaṁ diṭṭhiṁ khantiṁ ruciṁ laddhiṁ ajjhāsayaṁ adhippāyaṁ loko na jānāti—",
+        "translation": "Don’t know that your view is the same, preference, oral tradition, reasoned contemplation, or acceptance of a view after consideration.",
+        "source": "cnd19:26.1_0"
+    },
+    {
+        "source_sentence": "“ayaṁ evaṁdiṭṭhiko evaṅkhantiko evaṁruciko evaṁladdhiko evaṁajjhāsayo evaṁadhippāyo”ti na jānāti na passati na dakkhati nādhigacchati na vindati na paṭilabhatīti—",
+        "translation": "“This is the view that they don’t know or see in such a way.”",
+        "source": "cnd19:26.2_0"
+    },
+    {
+        "source_sentence": "diṭṭhiṁ te nābhijānāti.",
+        "translation": "you don’t understand",
+        "source": "cnd19:26.3_0"
+    },
+    {
+        "source_sentence": "**Gotamassa yasassino**ti bhagavā yasappattoti yasassī.",
+        "translation": "The Fortunate One has arrived at Yasa, who has arrived at (him),",
+        "source": "cnd19:27.1_0"
+    },
+    {
+        "source_sentence": "Atha vā bhagavā sakkato garukato mānito pūjito apacito lābhī cīvarapiṇḍapātasenāsanagilānapaccayabhesajjaparikkhārānantipi yasassīti—",
+        "translation": "Or the Buddha is honored, respected, revered, venerated, and esteemed. And he receives robes, alms-food, lodgings, and medicines and supplies for the sick.",
+        "source": "cnd19:27.2_0"
+    },
+    {
+        "source_sentence": "gotamassa yasassino.",
+        "translation": "of the renowned Gotama",
+        "source": "cnd19:27.3_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "Hence that brahmin thought,",
+        "source": "cnd19:27.4_0"
+    },
+    {
+        "source_sentence": "“Ayaṁ loko paro loko,",
+        "translation": "“This world and the other world",
+        "source": "cnd19:28.1_0"
+    },
+    {
+        "source_sentence": "brahmaloko sadevako;",
+        "translation": "the Brahmā realm with its gods.",
+        "source": "cnd19:28.2_0"
+    },
+    {
+        "source_sentence": "Diṭṭhiṁ te nābhijānāti,",
+        "translation": "you don’t understand",
+        "source": "cnd19:28.3_0"
+    },
+    {
+        "source_sentence": "gotamassa yasassino”ti.",
+        "translation": "of the renowned Gotama.”",
+        "source": "cnd19:28.4_0"
+    },
+    {
+        "source_sentence": "**Evaṁ abhikkantadassāviṁ,**",
+        "translation": "so unattached, seeing the arrowless state,",
+        "source": "cnd19:29.1_0"
+    },
+    {
+        "source_sentence": "**atthi pañhena āgamaṁ;**",
+        "translation": "I have come with a question,",
+        "source": "cnd19:29.2_0"
+    },
+    {
+        "source_sentence": "**Kathaṁ lokaṁ avekkhantaṁ,**",
+        "translation": "How do you see the world?",
+        "source": "cnd19:29.3_0"
+    },
+    {
+        "source_sentence": "**maccurājā na passati. **",
+        "translation": "then the King of Death won’t see you.",
+        "source": "cnd19:29.4_0"
+    },
+    {
+        "source_sentence": "**Evaṁ abhikkantadassāvin**ti evaṁ abhikkantadassāviṁ aggadassāviṁ seṭṭhadassāviṁ viseṭṭhadassāviṁ pāmokkhadassāviṁ uttamadassāviṁ paramadassāvinti—",
+        "translation": "When I considered the foremost, best, chief, highest, and finest of the highest.",
+        "source": "cnd19:30.1_0"
+    },
+    {
+        "source_sentence": "evaṁ abhikkantadassāviṁ.",
+        "translation": "so unattached, seeing the arrowless state,",
+        "source": "cnd19:30.2_0"
+    },
+    {
+        "source_sentence": "**Atthi pañhena āgaman**ti pañhena atthiko āgatomhi …pe…",
+        "translation": "There are some who come from questions. ...",
+        "source": "cnd19:31.1_0"
+    },
+    {
+        "source_sentence": "vahassetaṁ bhāranti, evampi atthi pañhena āgamaṁ.",
+        "translation": "There are close by him who come up and ask him a question.",
+        "source": "cnd19:31.2_0"
+    },
+    {
+        "source_sentence": "**Kathaṁ lokaṁ avekkhantan**ti kathaṁ lokaṁ avekkhantaṁ paccavekkhantaṁ tulayantaṁ tīrayantaṁ vibhāvayantaṁ vibhūtaṁ karontanti—",
+        "translation": "How do they reply?",
+        "source": "cnd19:32.1_0"
+    },
+    {
+        "source_sentence": "kathaṁ lokaṁ avekkhantaṁ.",
+        "translation": "How do you see the world?",
+        "source": "cnd19:32.2_0"
+    },
+    {
+        "source_sentence": "**Maccurājā na passatī**ti maccurājā na passati na dakkhati nādhigacchati na vindati na paṭilabhatīti—",
+        "translation": "Then the king of Death won’t see (one), he doesn’t see least in his mind.",
+        "source": "cnd19:33.1_0"
+    },
+    {
+        "source_sentence": "maccurājā na passati.",
+        "translation": "then the King of Death won’t see you.",
+        "source": "cnd19:33.2_0"
+    },
+    {
+        "source_sentence": "Tenāha so brāhmaṇo—",
+        "translation": "Hence that brahmin thought,",
+        "source": "cnd19:33.3_0"
+    },
+    {
+        "source_sentence": "“Evaṁ abhikkantadassāviṁ,",
+        "translation": "“Yes, I have come forth.",
+        "source": "cnd19:34.1_0"
+    },
+    {
+        "source_sentence": "atthi pañhena āgamaṁ;",
+        "translation": "I have come with a question,",
+        "source": "cnd19:34.2_0"
+    },
+    {
+        "source_sentence": "Kathaṁ lokaṁ avekkhantaṁ,",
+        "translation": "How do you see the world?",
+        "source": "cnd19:34.3_0"
+    },
+    {
+        "source_sentence": "maccurājā na passatī”ti.",
+        "translation": "king of Death won’t see you.”",
+        "source": "cnd19:34.4_0"
+    },
+    {
+        "source_sentence": "**Suññato lokaṁ avekkhassu,**",
+        "translation": "empty,",
+        "source": "cnd19:35.1_0"
+    },
+    {
+        "source_sentence": "**mogharāja sadā sato;**",
+        "translation": "King Mogharāja, he’s mindful,",
+        "source": "cnd19:35.2_0"
+    },
+    {
+        "source_sentence": "**Attānudiṭṭhiṁ ūhacca,**",
+        "translation": "Having removed (wrong) view of self,",
+        "source": "cnd19:35.3_0"
+    },
+    {
+        "source_sentence": "**evaṁ maccutaro siyā;**",
+        "translation": "so it will cross over Death.",
+        "source": "cnd19:35.4_0"
+    },
+    {
+        "source_sentence": "**Evaṁ lokaṁ avekkhantaṁ,**",
+        "translation": "who shows the world beyond,",
+        "source": "cnd19:35.5_0"
+    },
+    {
+        "source_sentence": "**maccurājā na passati. **",
+        "translation": "then the King of Death won’t see you.",
+        "source": "cnd19:35.6_0"
+    },
+    {
+        "source_sentence": "**Suññato lokaṁ avekkhassū**ti.",
+        "translation": "discerning the world,",
+        "source": "cnd19:36.1_0"
+    },
+    {
+        "source_sentence": "**Loko**ti nirayaloko tiracchānaloko pettivisayaloko manussaloko devaloko khandhaloko dhātuloko āyatanaloko ayaṁ loko paro loko brahmaloko sadevako.",
+        "translation": "The world of hell, the animal realm, the ghost realm, the human world, the world of the gods, and the world of the gods.",
+        "source": "cnd19:36.2_0"
+    },
+    {
+        "source_sentence": "Aññataro bhikkhu bhagavantaṁ etadavoca—",
+        "translation": "A second monk said to the Buddha,",
+        "source": "cnd19:36.3_0"
+    },
+    {
+        "source_sentence": "“loko lokoti, bhante, vuccati.",
+        "translation": "“Sir, they speak of this thing called ‘the world’.",
+        "source": "cnd19:36.4_0"
+    },
+    {
+        "source_sentence": "Kittāvatā nu kho, bhante, lokoti vuccatī”ti?",
+        "translation": "How is the world defined?”",
+        "source": "cnd19:36.5_0"
+    },
+    {
+        "source_sentence": "“Lujjatīti kho, bhikkhu, tasmā lokoti vuccati.",
+        "translation": "“It wears away, mendicant, that’s why it’s called ‘the world’.",
+        "source": "cnd19:36.6_0"
+    },
+    {
+        "source_sentence": "Kiñca lujjati?",
+        "translation": "And what is the reason why?",
+        "source": "cnd19:36.7_0"
+    },
+    {
+        "source_sentence": "Cakkhu kho bhikkhu lujjati, rūpā lujjanti, cakkhuviññāṇaṁ lujjati, cakkhusamphasso lujjati, yampidaṁ cakkhusamphassapaccayā uppajjati vedayitaṁ sukhaṁ vā dukkhaṁ vā adukkhamasukhaṁ vā tampi lujjati;",
+        "translation": "The eye ... ear ... nose ... tongue ... body ...",
+        "source": "cnd19:36.8_0"
+    },
+    {
+        "source_sentence": "sotaṁ lujjati,",
+        "translation": "The stream of the ear ...",
+        "source": "cnd19:36.9_0"
+    },
+    {
+        "source_sentence": "gandhā lujjanti …pe…",
+        "translation": "Smelling smells ...",
+        "source": "cnd19:36.10_0"
+    },
+    {
+        "source_sentence": "kāyo lujjati, phoṭṭhabbā lujjanti;",
+        "translation": "The body feels disagreeable.",
+        "source": "cnd19:36.11_0"
+    },
+    {
+        "source_sentence": "mano lujjati, dhammā lujjanti, manoviññāṇaṁ lujjati, manosamphasso lujjati;",
+        "translation": "mind consciousness ...",
+        "source": "cnd19:36.12_0"
+    },
+    {
+        "source_sentence": "yampidaṁ manosamphassapaccayā uppajjati vedayitaṁ sukhaṁ vā dukkhaṁ vā adukkhamasukhaṁ vā tampi lujjati.",
+        "translation": "The pleasant, painful, or neutral feeling that arises conditioned by mind contact is also wearing away.",
+        "source": "cnd19:36.12_1"
+    },
+    {
+        "source_sentence": "Lujjatīti kho, bhikkhu, tasmā lokoti vuccati”.",
+        "translation": "It wears away, that’s why it’s called ‘the world’.”",
+        "source": "cnd19:36.13_0"
+    },
+    {
+        "source_sentence": "**Suññato lokaṁ avekkhassū**ti dvīhi kāraṇehi suññato lokaṁ avekkhati—",
+        "translation": "Emptiness worldly conditions:",
+        "source": "cnd19:37.1_0"
+    },
+    {
+        "source_sentence": "avasiyapavattasallakkhaṇavasena vā tucchasaṅkhārasamanupassanāvasena vā.",
+        "translation": "It is the characteristic of stiffenedness or torpor that is free from the kasiṇa and mode of insight, and so on.",
+        "source": "cnd19:37.2_0"
+    },
+    {
+        "source_sentence": "Kathaṁ avasiyapavattasallakkhaṇavasena suññato lokaṁ avekkhati?",
+        "translation": "How does he endure the characteristic of foulness by steps?",
+        "source": "cnd19:37.3_0"
+    },
+    {
+        "source_sentence": "Rūpe vaso na labbhati, vedanāya vaso na labbhati, saññāya vaso na labbhati, saṅkhāresu vaso na labbhati, viññāṇe vaso na labbhati.",
+        "translation": "they don’t experience form, feeling, perception, choices, and consciousness.",
+        "source": "cnd19:37.4_0"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "cnd19:37.5_0"
+    },
+    {
+        "source_sentence": "“rūpaṁ, bhikkhave, anattā.",
+        "translation": "“Form is not your essence.",
+        "source": "cnd19:37.6_0"
+    },
+    {
+        "source_sentence": "Rūpañca hidaṁ, bhikkhave, attā abhavissa, nayidaṁ rūpaṁ ābādhāya saṁvatteyya, labbhetha ca rūpe—",
+        "translation": "For if form were your essence, it would not lead to suffering, and you could make it",
+        "source": "cnd19:37.7_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me rūpaṁ hotu, evaṁ me rūpaṁ mā ahosī’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:37.8_0"
+    },
+    {
+        "source_sentence": "Yasmā ca kho, bhikkhave, rūpaṁ anattā, tasmā rūpaṁ ābādhāya saṁvattati na ca labbhati rūpe—",
+        "translation": "But because form is not your essence, it leads to suffering, and you can’t make them",
+        "source": "cnd19:37.9_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me rūpaṁ hotu, evaṁ me rūpaṁ mā ahosī’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:37.10_0"
+    },
+    {
+        "source_sentence": "Vedanā anattā.",
+        "translation": "Feeling is not-self ...",
+        "source": "cnd19:38.1_0"
+    },
+    {
+        "source_sentence": "Vedanā ca hidaṁ, bhikkhave, attā abhavissa, nayidaṁ vedanā ābādhāya saṁvatteyya, labbhetha ca vedanāya—",
+        "translation": "For if feelings were your essence, they would not lead to suffering, and you could make them",
+        "source": "cnd19:38.2_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me vedanā hotu, evaṁ me vedanā mā ahosī’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:38.3_0"
+    },
+    {
+        "source_sentence": "Yasmā ca kho, bhikkhave, vedanā anattā, tasmā vedanā ābādhāya saṁvattati, na ca labbhati vedanāya—",
+        "translation": "But because feelings are not your essence, they lead to suffering, and you can’t make them",
+        "source": "cnd19:38.4_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me vedanā hotu, evaṁ me vedanā mā ahosī’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:38.5_0"
+    },
+    {
+        "source_sentence": "Saññā anattā.",
+        "translation": "Perception is not Self,",
+        "source": "cnd19:39.1_0"
+    },
+    {
+        "source_sentence": "Saññā ca hidaṁ, bhikkhave, attā abhavissa, nayidaṁ saññā ābādhāya saṁvatteyya, labbhetha ca saññāya—",
+        "translation": "For if perceptions were your essence, they would not lead to suffering, and you could make them",
+        "source": "cnd19:39.2_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me saññā hotu, evaṁ me saññā mā ahosī’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:39.3_0"
+    },
+    {
+        "source_sentence": "Yasmā ca kho, bhikkhave, saññā anattā, tasmā saññā ābādhāya saṁvattati, na ca labbhati saññāya—",
+        "translation": "But because perceptions are not your essence, they lead to suffering, and you can’t make them",
+        "source": "cnd19:39.4_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me saññā hotu, evaṁ me saññā mā ahosī’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:39.5_0"
+    },
+    {
+        "source_sentence": "Saṅkhārā anattā.",
+        "translation": "(Mental) processes",
+        "source": "cnd19:40.1_0"
+    },
+    {
+        "source_sentence": "Saṅkhārā ca hidaṁ, bhikkhave, attā abhavissaṁsu, nayidaṁ saṅkhārā ābādhāya saṁvatteyyuṁ, labbhetha ca saṅkhāresu—",
+        "translation": "For if intentional activities were your essence, they would not lead to suffering, and you could make them",
+        "source": "cnd19:40.2_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me saṅkhārā hontu, evaṁ me saṅkhārā mā ahesun’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:40.3_0"
+    },
+    {
+        "source_sentence": "Yasmā ca kho, bhikkhave, saṅkhārā anattā, tasmā saṅkhārā ābādhāya saṁvattanti, na ca labbhati saṅkhāresu—",
+        "translation": "But because intentional activities are not your essence, they lead to suffering, and you can’t make them",
+        "source": "cnd19:40.4_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me saṅkhārā hontu, evaṁ me saṅkhārā mā ahesun’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:40.5_0"
+    },
+    {
+        "source_sentence": "Viññāṇaṁ anattā.",
+        "translation": "Consciousness is not-self.",
+        "source": "cnd19:41.1_0"
+    },
+    {
+        "source_sentence": "Viññāṇañca hidaṁ, bhikkhave, attā abhavissa, nayidaṁ viññāṇaṁ ābādhāya saṁvatteyya, labbhetha ca viññāṇe—",
+        "translation": "For if consciousness were your essence, it would not lead to suffering, and you could make it",
+        "source": "cnd19:41.2_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me viññāṇaṁ hotu, evaṁ me viññāṇaṁ mā ahosī’ti.",
+        "translation": "be like this and not be like that.",
+        "source": "cnd19:41.3_0"
+    },
+    {
+        "source_sentence": "Yasmā ca kho, bhikkhave, viññāṇaṁ anattā, tasmā viññāṇaṁ ābādhāya saṁvattati, na ca labbhati viññāṇe—",
+        "translation": "But because consciousness is not your essence, it leads to suffering, and you can’t make it",
+        "source": "cnd19:41.4_0"
+    },
+    {
+        "source_sentence": "‘evaṁ me viññāṇaṁ hotu, evaṁ me viññāṇaṁ mā ahosī’”ti.",
+        "translation": "be like this and not be like that.”",
+        "source": "cnd19:41.5_0"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "cnd19:42.1_0"
+    },
+    {
+        "source_sentence": "“nāyaṁ, bhikkhave, kāyo tumhākaṁ, napi aññesaṁ.",
+        "translation": "“Mendicants, this body doesn’t belong to you or to anyone else.",
+        "source": "cnd19:42.2_0"
+    },
+    {
+        "source_sentence": "Purāṇamidaṁ, bhikkhave, kammaṁ abhisaṅkhataṁ abhisañcetayitaṁ vedaniyaṁ daṭṭhabbaṁ.",
+        "translation": "It’s old deeds, and should be seen as produced by choices and intentions, as something to be felt.",
+        "source": "cnd19:42.3_0"
+    },
+    {
+        "source_sentence": "Tatra kho, bhikkhave, sutavā ariyasāvako paṭiccasamuppādaṁyeva sādhukaṁ yoniso manasi karoti—",
+        "translation": "In this case, a learned noble disciple carefully and properly attends to dependent origination itself:",
+        "source": "cnd19:42.4_0"
+    },
+    {
+        "source_sentence": "‘iti imasmiṁ sati idaṁ hoti, imassuppādā idaṁ uppajjati;",
+        "translation": "‘When this exists, that is; due to the arising of this, that arises.",
+        "source": "cnd19:42.5_0"
+    },
+    {
+        "source_sentence": "imasmiṁ asati idaṁ na hoti, imassa nirodhā idaṁ nirujjhati, yadidaṁ—",
+        "translation": "When this doesn’t exist, that is not; due to the cessation of this, that ceases. That is:",
+        "source": "cnd19:42.6_0"
+    },
+    {
+        "source_sentence": "avijjāpaccayā saṅkhārā, saṅkhārapaccayā viññāṇaṁ, viññāṇapaccayā nāmarūpaṁ, nāmarūpapaccayā saḷāyatanaṁ, saḷāyatanapaccayā phasso, phassapaccayā vedanā, vedanāpaccayā taṇhā, taṇhāpaccayā upādānaṁ, upādānapaccayā bhavo, bhavapaccayā jāti, jātipaccayā jarāmaraṇaṁ sokaparidevadukkhadomanassupāyāsā sambhavanti—",
+        "translation": "Choices are a condition for consciousness. Consciousness is a condition for consciousness. Name and form are conditions for the six sense fields. The six sense fields are conditions for contact. Contact is a condition for feeling. Feeling is a condition for craving. Craving is a condition for grasping. Grasping is a condition for continued existence. Continued existence is a condition for rebirth. Rebirth is a condition for old age and death, sorrow, lamentation, pain, sadness, and distress to come to be.",
+        "source": "cnd19:42.7_0"
+    },
+    {
+        "source_sentence": "evametassa kevalassa dukkhakkhandhassa samudayo hoti’.",
+        "translation": "That is how this entire mass of suffering originates.’",
+        "source": "cnd19:42.8_0"
+    },
+    {
+        "source_sentence": "Avijjāya tveva asesavirāganirodhā saṅkhāranirodho, saṅkhāranirodhā viññāṇanirodho …pe…",
+        "translation": "When ignorance fades away and ceases with nothing left over, choices cease. When consciousness ceases, consciousness ceases. When consciousness ceases, name and form cease. When name and form cease, consciousness ceases. When name and form cease, name and form cease. When name and form cease, consciousness ceases. When name and form cease, the six sense fields cease. When the six sense fields cease, consciousness ceases. When contact ceases, feeling ceases. When feeling ceases, craving ceases. When craving ceases, grasping ceases.",
+        "source": "cnd19:43.1_0"
+    },
+    {
+        "source_sentence": "jātinirodhā jarāmaraṇaṁ sokaparidevadukkhadomanassupāyāsā nirujjhanti, evametassa kevalassa dukkhakkhandhassa nirodho hotī”ti.",
+        "translation": "When rebirth ceases, old age and death, sorrow, lamentation, pain, sadness, and distress cease.”",
+        "source": "cnd19:43.2_0"
+    },
+    {
+        "source_sentence": "Evaṁ avasiyapavattasallakkhaṇavasena suññato lokaṁ avekkhati.",
+        "translation": "Thus the characteristics which are held together by the steps and cognized in one’s mark.",
+        "source": "cnd19:43.3_0"
+    },
+    {
+        "source_sentence": "Kathaṁ tucchasaṅkhārasamanupassanāvasena suññato lokaṁ avekkhati?",
+        "translation": "How does one know about these (only) realisations, who does not see the world with its gods?",
+        "source": "cnd19:44.1_0"
+    },
+    {
+        "source_sentence": "Rūpe sāro na labbhati, vedanāya sāro na labbhati, saññāya sāro na labbhati, saṅkhāresu sāro na labbhati, viññāṇe sāro na labbhati;",
+        "translation": "Form is not found in form, feeling is not found. It is not possible essential or as inessential.",
+        "source": "cnd19:44.2_0"
+    },
+    {
+        "source_sentence": "rūpaṁ assāraṁ nissāraṁ sārāpagataṁ niccasārasārena vā sukhasārasārena vā attasārasārena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā.",
+        "translation": "form, wishing for self-control, for motion, and self-control, wishing for self or as long as he wishing, wishing for:",
+        "source": "cnd19:44.3_0"
+    },
+    {
+        "source_sentence": "Vedanā assārā nissārā sārāpagatā …pe…",
+        "translation": "Feeling, without infatuating, there is having heartwood, celebrated misconduct,",
+        "source": "cnd19:44.4_0"
+    },
+    {
+        "source_sentence": "saññā assārā nissārā sārāpagatā …",
+        "translation": "perception ...",
+        "source": "cnd19:44.5_0"
+    },
+    {
+        "source_sentence": "saṅkhārā assārā nissārā sārāpagatā …",
+        "translation": "choices, unsuitable, shocked out,",
+        "source": "cnd19:44.6_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ assāraṁ nissāraṁ sārāpagataṁ niccasārasārena vā sukhasārasārena vā attasārasārena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā.",
+        "translation": "consciousness, wishing for self-control, wishing for is permanent, everlasting, eternal, or imperishable.",
+        "source": "cnd19:44.7_0"
+    },
+    {
+        "source_sentence": "Yathā naḷo assāro nissāro sārāpagato, yathā ca eraṇḍo …pe…",
+        "translation": "Suppose there was a Assakaḷa. But just as a strong man would trabulate him with the rod and the sword rod.",
+        "source": "cnd19:45.1_0"
+    },
+    {
+        "source_sentence": "yathā ca udumbaro assāro nissāro sārāpagato, yathā ca setakaccho assāro nissāro sārāpagato, yathā ca pālibhaddako assāro nissāro sārāpagato, yathā ca pheṇapiṇḍo assāro nissāro sārāpagato, yathā ca udakapubbuḷaṁ assāraṁ nissāraṁ sārāpagataṁ, yathā ca marīci assārā nissārā sārāpagatā, yathā kadalikkhandho assāro nissāro sārāpagato, yathā māyā assārā nissārā sārāpagatā—",
+        "translation": "And just as a goad Udumbara has fallen into debt and is defeated, as happens when a tiger in the tabulated, having gone to the essential, and Māra cannot find a vulnerability without a water, just as the essential couches, and untongue of essential, as a crooked heavy and unattached.",
+        "source": "cnd19:45.2_0"
+    },
+    {
+        "source_sentence": "evameva rūpaṁ assāraṁ nissāraṁ sārāpagataṁ niccasārasārena vā sukhasārasārena vā attasārasārena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā.",
+        "translation": "In the same way, when there is no essence, wishing for self-control, wishing for self or motion; and when needing back, held together or wish:",
+        "source": "cnd19:45.3_0"
+    },
+    {
+        "source_sentence": "Vedanā assārā nissārā sārāpagatā …pe…",
+        "translation": "Feeling, without infatuating, there is having heartwood, celebrated misconduct,",
+        "source": "cnd19:45.4_0"
+    },
+    {
+        "source_sentence": "saññā assārā nissārā sārāpagatā …",
+        "translation": "perception ...",
+        "source": "cnd19:45.5_0"
+    },
+    {
+        "source_sentence": "saṅkhārā assārā nissārā sārāpagatā …",
+        "translation": "choices, unsuitable, shocked out,",
+        "source": "cnd19:45.6_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ assāraṁ nissāraṁ sārāpagataṁ niccasārasārena vā sukhasārasārena vā attasārasārena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā.",
+        "translation": "consciousness, wishing for self-control, wishing for is permanent, everlasting, eternal, or imperishable.",
+        "source": "cnd19:45.7_0"
+    },
+    {
+        "source_sentence": "Evaṁ tucchasaṅkhārasamanupassanāvasena suññato lokaṁ avekkhati.",
+        "translation": "Thus the incomparable, realised to intelligence, and took the world.",
+        "source": "cnd19:45.8_0"
+    },
+    {
+        "source_sentence": "Imehi dvīhi kāraṇehi suññato lokaṁ avekkhati.",
+        "translation": "With these two reasons he surely will protect the world.",
+        "source": "cnd19:45.9_0"
+    },
+    {
+        "source_sentence": "Api ca chahākārehi suññato lokaṁ avekkhati.",
+        "translation": "Beginning the six ways in which the world is empty,",
+        "source": "cnd19:46.1_0"
+    },
+    {
+        "source_sentence": "Cakkhu suññaṁ attena vā attaniyena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā,",
+        "translation": "eye consciousness ...",
+        "source": "cnd19:46.2_0"
+    },
+    {
+        "source_sentence": "sotaṁ suññaṁ …pe…",
+        "translation": "When the ear ...",
+        "source": "cnd19:46.3_0"
+    },
+    {
+        "source_sentence": "ghānaṁ suññaṁ …",
+        "translation": "the nose ...",
+        "source": "cnd19:46.4_0"
+    },
+    {
+        "source_sentence": "jivhā suññā …",
+        "translation": "The ear ... nose ... tongue ... body ...",
+        "source": "cnd19:46.5_0"
+    },
+    {
+        "source_sentence": "kāyo suñño …",
+        "translation": "the body ...",
+        "source": "cnd19:46.6_0"
+    },
+    {
+        "source_sentence": "mano suñño attena vā attaniyena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā.",
+        "translation": "mind, thoughts, or what’s permanent, everlasting, eternal, or imperishable.",
+        "source": "cnd19:46.7_0"
+    },
+    {
+        "source_sentence": "Rūpā suññā …pe…",
+        "translation": "sights ...",
+        "source": "cnd19:46.8_0"
+    },
+    {
+        "source_sentence": "saddā suññā …",
+        "translation": "sounds ...",
+        "source": "cnd19:46.9_0"
+    },
+    {
+        "source_sentence": "gandhā suññā …",
+        "translation": "smells ...",
+        "source": "cnd19:46.10_0"
+    },
+    {
+        "source_sentence": "rasā suññā …",
+        "translation": "... tastes ...",
+        "source": "cnd19:46.11_0"
+    },
+    {
+        "source_sentence": "phoṭṭhabbā suññā …",
+        "translation": "touches ...",
+        "source": "cnd19:46.12_0"
+    },
+    {
+        "source_sentence": "dhammā suññā attena vā attaniyena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā.",
+        "translation": "thoughts permanent or impermanent?",
+        "source": "cnd19:46.13_0"
+    },
+    {
+        "source_sentence": "Cakkhuviññāṇaṁ suññaṁ …pe…",
+        "translation": "eye consciousness ...",
+        "source": "cnd19:46.14_0"
+    },
+    {
+        "source_sentence": "manoviññāṇaṁ suññaṁ …",
+        "translation": "mind consciousness ...",
+        "source": "cnd19:46.15_0"
+    },
+    {
+        "source_sentence": "cakkhusamphasso suñño …",
+        "translation": "eye contact ...",
+        "source": "cnd19:46.16_0"
+    },
+    {
+        "source_sentence": "manosamphasso suñño …",
+        "translation": "mind contact ...",
+        "source": "cnd19:46.17_0"
+    },
+    {
+        "source_sentence": "cakkhusamphassajā vedanā suññā …",
+        "translation": "feeling born of eye contact ...",
+        "source": "cnd19:46.18_0"
+    },
+    {
+        "source_sentence": "manosamphassajā vedanā suññā …",
+        "translation": "feeling born of mind contact ...",
+        "source": "cnd19:46.19_0"
+    },
+    {
+        "source_sentence": "rūpasaññā suññā …",
+        "translation": "Perception of sights ...",
+        "source": "cnd19:46.20_0"
+    },
+    {
+        "source_sentence": "dhammasaññā suññā …",
+        "translation": "perception of thoughts ...",
+        "source": "cnd19:46.21_0"
+    },
+    {
+        "source_sentence": "rūpasañcetanā suññā …",
+        "translation": "intention regarding sights ...",
+        "source": "cnd19:46.22_0"
+    },
+    {
+        "source_sentence": "dhammasañcetanā suññā …",
+        "translation": "intention regarding thoughts ...”",
+        "source": "cnd19:46.23_0"
+    },
+    {
+        "source_sentence": "rūpataṇhā suññā …",
+        "translation": "craving for sights ...",
+        "source": "cnd19:46.24_0"
+    },
+    {
+        "source_sentence": "rūpavitakko suñño …",
+        "translation": "Perception ...",
+        "source": "cnd19:46.25_0"
+    },
+    {
+        "source_sentence": "rūpavicāro suñño …",
+        "translation": "Considerations regarding sights ...",
+        "source": "cnd19:46.26_0"
+    },
+    {
+        "source_sentence": "dhammavicāro suñño attena vā attaniyena vā niccena vā dhuvena vā sassatena vā avipariṇāmadhammena vā.",
+        "translation": "considerations regarding the teachings ...",
+        "source": "cnd19:46.27_0"
+    },
+    {
+        "source_sentence": "Evaṁ chahākārehi suññato lokaṁ avekkhati.",
+        "translation": "Thus he thus discerns the six ways only manages the world,",
+        "source": "cnd19:46.28_0"
+    },
+    {
+        "source_sentence": "Api ca dasahākārehi suññato lokaṁ avekkhati.",
+        "translation": "Still, knowing the ten ways in ten ways,",
+        "source": "cnd19:47.1_0"
+    },
+    {
+        "source_sentence": "Rūpaṁ rittato tucchato suññato anattato asārakato vadhakato vibhavato aghamūlato sāsavato saṅkhatato;",
+        "translation": "Form is empty, hollow, and insubstantial.",
+        "source": "cnd19:47.2_0"
+    },
+    {
+        "source_sentence": "vedanaṁ …pe…",
+        "translation": "They regard feeling ...",
+        "source": "cnd19:47.3_0"
+    },
+    {
+        "source_sentence": "saññaṁ …",
+        "translation": "perception ...",
+        "source": "cnd19:47.4_0"
+    },
+    {
+        "source_sentence": "saṅkhāre …",
+        "translation": "They don’t completely understand choices,",
+        "source": "cnd19:47.5_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ …",
+        "translation": "consciousness ...",
+        "source": "cnd19:47.6_0"
+    },
+    {
+        "source_sentence": "cutiṁ …",
+        "translation": "passing away ...",
+        "source": "cnd19:47.7_0"
+    },
+    {
+        "source_sentence": "upapattiṁ …",
+        "translation": "rebirth ...",
+        "source": "cnd19:47.8_0"
+    },
+    {
+        "source_sentence": "paṭisandhiṁ …",
+        "translation": "If you are lustful ...",
+        "source": "cnd19:47.9_0"
+    },
+    {
+        "source_sentence": "bhavaṁ …",
+        "translation": "continued existence ...",
+        "source": "cnd19:47.10_0"
+    },
+    {
+        "source_sentence": "saṁsāravaṭṭaṁ rittato tucchato suññato anattato asārakato vadhakato vibhavato aghamūlato sāsavato saṅkhatato.",
+        "translation": "roaming and transmigration, as well as ongoing to the root, none of these things.",
+        "source": "cnd19:47.11_0"
+    },
+    {
+        "source_sentence": "Evaṁ dasahākārehi suññato lokaṁ avekkhati.",
+        "translation": "Thus he thus knows the ten ways in ten ways,",
+        "source": "cnd19:47.12_0"
+    },
+    {
+        "source_sentence": "Api ca dvādasahākārehi suññato lokaṁ avekkhati.",
+        "translation": "Still, knowing the world in twelve ways he contemplates,",
+        "source": "cnd19:48.1_0"
+    },
+    {
+        "source_sentence": "Rūpaṁ na satto na jīvo na naro na māṇavo na itthī na puriso na attā na attaniyaṁ nāhaṁ na mama na koci na kassaci;",
+        "translation": "Sentient beings are not alive, not a woman or a man, nor does it not belong to me.",
+        "source": "cnd19:48.2_0"
+    },
+    {
+        "source_sentence": "vedanā …pe…",
+        "translation": "Is feeling ...",
+        "source": "cnd19:48.3_0"
+    },
+    {
+        "source_sentence": "saññā …",
+        "translation": "perception ...",
+        "source": "cnd19:48.4_0"
+    },
+    {
+        "source_sentence": "saṅkhārā …",
+        "translation": "“Are choices permanent or impermanent?” ...",
+        "source": "cnd19:48.5_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ na satto na jīvo na naro na māṇavo na itthī na puriso na attā na attaniyaṁ nāhaṁ na mama na koci na kassaci.",
+        "translation": "consciousness, not a woman, not a man, not a woman, nor does it not belong to me.",
+        "source": "cnd19:48.6_0"
+    },
+    {
+        "source_sentence": "Evaṁ dvādasahākārehi suññato lokaṁ avekkhati.",
+        "translation": "So he looks after twelve ways in his world:",
+        "source": "cnd19:48.7_0"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "cnd19:49.1_0"
+    },
+    {
+        "source_sentence": "“yaṁ, bhikkhave, na tumhākaṁ taṁ pajahatha.",
+        "translation": "“Mendicants, give up what isn’t yours.",
+        "source": "cnd19:49.2_0"
+    },
+    {
+        "source_sentence": "Taṁ vo pahīnaṁ dīgharattaṁ hitāya sukhāya bhavissati.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.3_0"
+    },
+    {
+        "source_sentence": "Kiñca, bhikkhave, na tumhākaṁ?",
+        "translation": "And what isn’t yours?",
+        "source": "cnd19:49.4_0"
+    },
+    {
+        "source_sentence": "Rūpaṁ, bhikkhave, na tumhākaṁ, taṁ pajahatha.",
+        "translation": "Form isn’t yours: give it up.",
+        "source": "cnd19:49.5_0"
+    },
+    {
+        "source_sentence": "Taṁ vo pahīnaṁ dīgharattaṁ hitāya sukhāya bhavissati.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.6_0"
+    },
+    {
+        "source_sentence": "Vedanā, bhikkhave, na tumhākaṁ, taṁ pajahatha.",
+        "translation": "feelings ...",
+        "source": "cnd19:49.7_0"
+    },
+    {
+        "source_sentence": "Sā vo pahīnā dīgharattaṁ hitāya sukhāya bhavissati.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.8_0"
+    },
+    {
+        "source_sentence": "Saññā, bhikkhave, na tumhākaṁ, taṁ pajahatha.",
+        "translation": "perception ...",
+        "source": "cnd19:49.9_0"
+    },
+    {
+        "source_sentence": "Sā vo pahīnā dīgharattaṁ hitāya sukhāya bhavissati.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.10_0"
+    },
+    {
+        "source_sentence": "Saṅkhārā, bhikkhave, na tumhākaṁ, te pajahatha.",
+        "translation": "choices aren’t yours: give them up.",
+        "source": "cnd19:49.11_0"
+    },
+    {
+        "source_sentence": "Te vo pahīnā dīgharattaṁ hitāya sukhāya bhavissanti.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.12_0"
+    },
+    {
+        "source_sentence": "Viññāṇaṁ, bhikkhave, na tumhākaṁ, taṁ pajahatha.",
+        "translation": "consciousness isn’t yours: give it up.",
+        "source": "cnd19:49.13_0"
+    },
+    {
+        "source_sentence": "Taṁ vo pahīnaṁ dīgharattaṁ hitāya sukhāya bhavissati.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.14_0"
+    },
+    {
+        "source_sentence": "Seyyathāpi, bhikkhave, yaṁ imasmiṁ jetavane tiṇakaṭṭhasākhāpalāsaṁ taṁ jano hareyya vā ḍaheyya vā yathāpaccayaṁ vā kareyya.",
+        "translation": "Suppose a person was to carry off the grass, sticks, branches, and leaves in this Jeta’s Grove, or burn them, or do what they want with them.",
+        "source": "cnd19:49.15_0"
+    },
+    {
+        "source_sentence": "Api nu tumhākaṁ evamassa—",
+        "translation": "Would you think,",
+        "source": "cnd19:49.16_0"
+    },
+    {
+        "source_sentence": "‘amhe jano harati vā ḍahati vā yathāpaccayaṁ vā karotī’”ti?",
+        "translation": "‘This person is carrying us off, burning us, or doing what they want with us?’”",
+        "source": "cnd19:49.17_0"
+    },
+    {
+        "source_sentence": "“No hetaṁ, bhante”.",
+        "translation": "“No, Sir.”",
+        "source": "cnd19:49.18_0"
+    },
+    {
+        "source_sentence": "“Taṁ kissa hetu”?",
+        "translation": "“Why is that?”",
+        "source": "cnd19:49.19_0"
+    },
+    {
+        "source_sentence": "“Na hi no etaṁ, bhante, attā vā attaniyaṁ” vāti.",
+        "translation": "“But, Sir, isn’t that self or self?”",
+        "source": "cnd19:49.20_0"
+    },
+    {
+        "source_sentence": "“Evameva kho, bhikkhave, yaṁ na tumhākaṁ taṁ pajahatha;",
+        "translation": "“In the same way, mendicants, give up what isn't yours.",
+        "source": "cnd19:49.21_0"
+    },
+    {
+        "source_sentence": "taṁ vo pahīnaṁ dīgharattaṁ hitāya sukhāya bhavissati.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.22_0"
+    },
+    {
+        "source_sentence": "Kiñca, bhikkhave, na tumhākaṁ?",
+        "translation": "And what isn’t yours?",
+        "source": "cnd19:49.23_0"
+    },
+    {
+        "source_sentence": "Rūpaṁ, bhikkhave, na tumhākaṁ, taṁ pajahatha.",
+        "translation": "Form isn’t yours: give it up.",
+        "source": "cnd19:49.24_0"
+    },
+    {
+        "source_sentence": "Taṁ vo pahīnaṁ dīgharattaṁ hitāya sukhāya bhavissati.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.",
+        "source": "cnd19:49.25_0"
+    },
+    {
+        "source_sentence": "Vedanā …pe…",
+        "translation": "Is feeling ...",
+        "source": "cnd19:49.26_0"
+    },
+    {
+        "source_sentence": "saññā …",
+        "translation": "perception ...",
+        "source": "cnd19:49.27_0"
+    },
+    {
+        "source_sentence": "saṅkhārā …",
+        "translation": "“Are choices permanent or impermanent?” ...",
+        "source": "cnd19:49.28_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ, bhikkhave, na tumhākaṁ, taṁ pajahatha.",
+        "translation": "consciousness isn’t yours: give it up.",
+        "source": "cnd19:49.29_0"
+    },
+    {
+        "source_sentence": "Taṁ vo pahīnaṁ dīgharattaṁ hitāya sukhāya bhavissatī”ti.",
+        "translation": "Giving it up will be for your lasting welfare and happiness.”",
+        "source": "cnd19:49.30_0"
+    },
+    {
+        "source_sentence": "Evampi suññato lokaṁ avekkhati.",
+        "translation": "Thus he looks upon the world without emptiness.",
+        "source": "cnd19:49.31_0"
+    },
+    {
+        "source_sentence": "Āyasmā ānando bhagavantaṁ etadavoca—",
+        "translation": "Venerable Ānanda said to the Buddha,",
+        "source": "cnd19:50.1_0"
+    },
+    {
+        "source_sentence": "“‘suñño loko, suñño loko’ti, bhante, vuccati.",
+        "translation": "“Sir, they say that ‘the world is empty’.",
+        "source": "cnd19:50.2_0"
+    },
+    {
+        "source_sentence": "Kittāvatā nu kho, bhante, suñño lokoti vuccatī”ti?",
+        "translation": "What does the saying ‘the world is empty’ refer to?”",
+        "source": "cnd19:50.3_0"
+    },
+    {
+        "source_sentence": "“Yasmā ca kho, ānanda, suññaṁ attena vā attaniyena vā, tasmā suñño lokoti vuccati.",
+        "translation": "“Ānanda, they say that ‘the world is empty’ because it’s empty of self or what belongs to self.",
+        "source": "cnd19:50.4_0"
+    },
+    {
+        "source_sentence": "Kiñcānanda, suññaṁ attena vā attaniyena vā?",
+        "translation": "And what is empty of self or what belongs to self?",
+        "source": "cnd19:50.5_0"
+    },
+    {
+        "source_sentence": "Cakkhu kho, ānanda, suññaṁ attena vā attaniyena vā.",
+        "translation": "The eye is empty or self or what belongs to self.",
+        "source": "cnd19:50.6_0"
+    },
+    {
+        "source_sentence": "Rūpā suññā …pe…",
+        "translation": "sights ...",
+        "source": "cnd19:50.7_0"
+    },
+    {
+        "source_sentence": "cakkhuviññāṇaṁ suññaṁ …",
+        "translation": "eye consciousness ...",
+        "source": "cnd19:50.8_0"
+    },
+    {
+        "source_sentence": "cakkhusamphasso suñño …",
+        "translation": "eye contact ...",
+        "source": "cnd19:50.9_0"
+    },
+    {
+        "source_sentence": "yampidaṁ cakkhusamphassapaccayā uppajjati vedayitaṁ sukhaṁ vā dukkhaṁ vā adukkhamasukhaṁ vā tampi suññaṁ attena vā attaniyena vā.",
+        "translation": "The pleasant, painful, or neutral feeling that arises conditioned by eye contact is also empty of self or what belongs to self.",
+        "source": "cnd19:50.10_0"
+    },
+    {
+        "source_sentence": "Sotaṁ suññaṁ …",
+        "translation": "the ear ...",
+        "source": "cnd19:50.11_0"
+    },
+    {
+        "source_sentence": "saddā suññā …",
+        "translation": "sounds ...",
+        "source": "cnd19:50.12_0"
+    },
+    {
+        "source_sentence": "ghānaṁ suññaṁ …",
+        "translation": "the nose ...",
+        "source": "cnd19:50.13_0"
+    },
+    {
+        "source_sentence": "gandhā suññā …",
+        "translation": "smells ...",
+        "source": "cnd19:50.14_0"
+    },
+    {
+        "source_sentence": "jivhā suññā …",
+        "translation": "The ear ... nose ... tongue ... body ...",
+        "source": "cnd19:50.15_0"
+    },
+    {
+        "source_sentence": "rasā suññā …",
+        "translation": "... tastes ...",
+        "source": "cnd19:50.16_0"
+    },
+    {
+        "source_sentence": "kāyo suñño …",
+        "translation": "the body ...",
+        "source": "cnd19:50.17_0"
+    },
+    {
+        "source_sentence": "phoṭṭhabbā suññā …",
+        "translation": "touches ...",
+        "source": "cnd19:50.18_0"
+    },
+    {
+        "source_sentence": "mano suñño …",
+        "translation": "mind, thoughts,",
+        "source": "cnd19:50.19_0"
+    },
+    {
+        "source_sentence": "dhammā suññā …",
+        "translation": "thoughts ...",
+        "source": "cnd19:50.20_0"
+    },
+    {
+        "source_sentence": "manoviññāṇaṁ suññaṁ …",
+        "translation": "mind consciousness ...",
+        "source": "cnd19:50.21_0"
+    },
+    {
+        "source_sentence": "manosamphasso suñño …",
+        "translation": "mind contact ...",
+        "source": "cnd19:50.22_0"
+    },
+    {
+        "source_sentence": "yampidaṁ suññaṁ manosamphassapaccayā uppajjati vedayitaṁ sukhaṁ vā dukkhaṁ vā adukkhamasukhaṁ vā tampi suññaṁ attena vā attaniyena vā.",
+        "translation": "The pleasant, painful, or neutral feeling that arises conditioned by mind contact is also empty of self or what belongs to self.",
+        "source": "cnd19:50.23_0"
+    },
+    {
+        "source_sentence": "Yasmā ca kho, ānanda, suññaṁ attena vā attaniyena vā, tasmā suñño lokoti vuccatī”ti.",
+        "translation": "They say that ‘the world is empty’ because it’s empty of self or what belongs to self.”",
+        "source": "cnd19:50.24_0"
+    },
+    {
+        "source_sentence": "Evampi suññato lokaṁ avekkhati.",
+        "translation": "Thus he looks upon the world without emptiness.",
+        "source": "cnd19:50.25_0"
+    },
+    {
+        "source_sentence": "“Suddhaṁ dhammasamuppādaṁ,",
+        "translation": "“There is a way of taking up practices,",
+        "source": "cnd19:51.1_0"
+    },
+    {
+        "source_sentence": "Suddhasaṅkhārasantatiṁ;",
+        "translation": "you use only the baskets,",
+        "source": "cnd19:51.2_0"
+    },
+    {
+        "source_sentence": "Passantassa yathābhūtaṁ,",
+        "translation": "and the bare process of conditions,",
+        "source": "cnd19:51.3_0"
+    },
+    {
+        "source_sentence": "Na bhayaṁ hoti gāmaṇi.",
+        "translation": "it doesn’t occur to them.",
+        "source": "cnd19:51.4_0"
+    },
+    {
+        "source_sentence": "Tiṇakaṭṭhasamaṁ lokaṁ,",
+        "translation": "The world is like grass and sticks:",
+        "source": "cnd19:52.1_0"
+    },
+    {
+        "source_sentence": "yadā paññāya passati;",
+        "translation": "when this is seen with wisdom",
+        "source": "cnd19:52.2_0"
+    },
+    {
+        "source_sentence": "Nāññaṁ patthayate kiñci,",
+        "translation": "you should certainly do not think,",
+        "source": "cnd19:52.3_0"
+    },
+    {
+        "source_sentence": "aññatrappaṭisandhiyā”ti.",
+        "translation": "Except if it is no trouble.”",
+        "source": "cnd19:52.4_0"
+    },
+    {
+        "source_sentence": "Evampi suññato lokaṁ avekkhati.",
+        "translation": "Thus he looks upon the world without emptiness.",
+        "source": "cnd19:53.1_0"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "cnd19:54.1_0"
+    },
+    {
+        "source_sentence": "“evameva kho, bhikkhave, bhikkhu rūpaṁ samannesati yāvatā rūpassa gati,",
+        "translation": "“In the same way, a mendicant searches for form, until the reckoning of form is found.",
+        "source": "cnd19:54.2_0"
+    },
+    {
+        "source_sentence": "vedanaṁ samannesati yāvatā vedanāya gati,",
+        "translation": "when there is pleasant feeling ...",
+        "source": "cnd19:54.3_0"
+    },
+    {
+        "source_sentence": "saññaṁ samannesati yāvatā saññāya gati,",
+        "translation": "perception ...",
+        "source": "cnd19:54.4_0"
+    },
+    {
+        "source_sentence": "saṅkhāre samannesati yāvatā saṅkhārānaṁ gati,",
+        "translation": "Conditions occurring as far as the set of choices.",
+        "source": "cnd19:54.5_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ samannesati yāvatā viññāṇassa gati.",
+        "translation": "consciousness extends it is condemned as far as consciousness.",
+        "source": "cnd19:54.6_0"
+    },
+    {
+        "source_sentence": "Tassa rūpaṁ samannesato yāvatā rūpassa gati,",
+        "translation": "As they search in this way,",
+        "source": "cnd19:54.7_0"
+    },
+    {
+        "source_sentence": "vedanaṁ …pe…",
+        "translation": "They regard feeling ...",
+        "source": "cnd19:54.8_0"
+    },
+    {
+        "source_sentence": "saññaṁ …",
+        "translation": "perception ...",
+        "source": "cnd19:54.9_0"
+    },
+    {
+        "source_sentence": "saṅkhāre …",
+        "translation": "They don’t completely understand choices,",
+        "source": "cnd19:54.10_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ samannesato yāvatā viññāṇassa gati, yampissa taṁ hoti ahanti vā mamanti vā asmīti vā, tampi tassa na hotī”ti.",
+        "translation": "consciousness as far as they remain, and as there is no place of consciousness.”",
+        "source": "cnd19:54.11_0"
+    },
+    {
+        "source_sentence": "Evampi suññato lokaṁ avekkhati.",
+        "translation": "Thus he looks upon the world without emptiness.",
+        "source": "cnd19:54.12_0"
+    },
+    {
+        "source_sentence": "**Suññato lokaṁ avekkhassū**ti suññato lokaṁ avekkhassu paccavekkhassu dakkhassu tulehi tīrehi vibhāvehi vibhūtaṁ karohīti—",
+        "translation": "Did the world belief system that is empty and cognized in the world, no longer starting with the idleness of.",
+        "source": "cnd19:55.1_0"
+    },
+    {
+        "source_sentence": "suññato lokaṁ avekkhassu.",
+        "translation": "empty,",
+        "source": "cnd19:55.2_0"
+    },
+    {
+        "source_sentence": "**Mogharāja sadā sato**ti.",
+        "translation": "Mogharāja, King, he always mindful.",
+        "source": "cnd19:56.1_0"
+    },
+    {
+        "source_sentence": "**Mogharājā**ti bhagavā taṁ brāhmaṇaṁ nāmena ālapati.",
+        "translation": "said the Buddha,",
+        "source": "cnd19:56.2_0"
+    },
+    {
+        "source_sentence": "**Sadā**ti sabbakālaṁ …pe…",
+        "translation": "Satisfied ...",
+        "source": "cnd19:56.3_0"
+    },
+    {
+        "source_sentence": "pacchime vayokhandhe.",
+        "translation": "in the last watch of the night,",
+        "source": "cnd19:56.4_0"
+    },
+    {
+        "source_sentence": "**Sato**ti catūhi kāraṇehi sato—",
+        "translation": "Sentient beings are four reasons:",
+        "source": "cnd19:56.5_0"
+    },
+    {
+        "source_sentence": "kāye kāyānupassanāsatipaṭṭhānaṁ bhāvento sato …pe…",
+        "translation": "Mindfulness of the body ...",
+        "source": "cnd19:56.6_0"
+    },
+    {
+        "source_sentence": "so vuccati satoti—",
+        "translation": "they’re called a sentient being.",
+        "source": "cnd19:56.7_0"
+    },
+    {
+        "source_sentence": "mogharāja sadā sato.",
+        "translation": "King Mogharāja, he’s mindful,",
+        "source": "cnd19:56.8_0"
+    },
+    {
+        "source_sentence": "**Attānudiṭṭhiṁ ūhaccā**ti attānudiṭṭhi vuccati vīsativatthukā sakkāyadiṭṭhi.",
+        "translation": "Having a view of self, the self is called identity view.",
+        "source": "cnd19:57.1_0"
+    },
+    {
+        "source_sentence": "Idha assutavā puthujjano ariyānaṁ adassāvī ariyadhammassa akovido ariyadhamme avinīto sappurisānaṁ adassāvī sappurisadhammassa akovido sappurisadhamme avinīto rūpaṁ attato samanupassati rūpavantaṁ vā attānaṁ attani vā rūpaṁ rūpasmiṁ vā attānaṁ,",
+        "translation": "Take an uneducated ordinary person who has not seen the noble ones, and is neither skilled nor trained in the teaching of the noble ones. They’ve not seen good persons, and are neither skilled nor trained in the teaching of the good persons.",
+        "source": "cnd19:57.2_0"
+    },
+    {
+        "source_sentence": "vedanaṁ …pe…",
+        "translation": "They regard feeling ...",
+        "source": "cnd19:57.3_0"
+    },
+    {
+        "source_sentence": "saññaṁ …",
+        "translation": "perception ...",
+        "source": "cnd19:57.4_0"
+    },
+    {
+        "source_sentence": "saṅkhāre …",
+        "translation": "They don’t completely understand choices,",
+        "source": "cnd19:57.5_0"
+    },
+    {
+        "source_sentence": "viññāṇaṁ attato samanupassati viññāṇavantaṁ vā attānaṁ attani vā viññāṇaṁ viññāṇasmiṁ vā attānaṁ.",
+        "translation": "consciousness as self, self as having consciousness, consciousness in self, or self in consciousness.",
+        "source": "cnd19:57.6_0"
+    },
+    {
+        "source_sentence": "Yā evarūpā diṭṭhi diṭṭhigataṁ diṭṭhigahanaṁ diṭṭhikantāro diṭṭhivisūkāyikaṁ diṭṭhivipphanditaṁ diṭṭhisaṁyojanaṁ gāho paṭiggāho abhiniveso parāmāso kummaggo micchāpatho micchattaṁ titthāyatanaṁ vipariyesaggāho viparītaggāho vipallāsaggāho micchāgāho ayāthāvakasmiṁ yāthāvakanti gāho yāvatā dvāsaṭṭhi diṭṭhigatāni, ayaṁ attānudiṭṭhi.",
+        "translation": "the recipients of such a view, the recipient, the Full of views, the holding tight, and the recipients of views. Their view is attached to being fettered, not explored by views is the wrong way.",
+        "source": "cnd19:57.7_0"
+    },
+    {
+        "source_sentence": "**Attānudiṭṭhiṁ ūhaccā**ti attānudiṭṭhiṁ ūhacca samūhacca uddharitvā samuddharitvā uppāṭayitvā samuppāṭayitvā pajahitvā vinodetvā byantīkaritvā anabhāvaṁ gametvāti—",
+        "translation": "Having removed (wrong) view, he carefully removed it by himself, put it away, lifted it up onto the ocean, and gave it up, get rid of it, eliminate it, and obliterated it.",
+        "source": "cnd19:57.8_0"
+    },
+    {
+        "source_sentence": "attānudiṭṭhiṁ ūhacca.",
+        "translation": "Having removed (wrong) view of self,",
+        "source": "cnd19:57.9_0"
+    },
+    {
+        "source_sentence": "**Evaṁ maccutaro siyā**ti evaṁ maccupi tareyyāsi, jarāpi tareyyāsi, maraṇampi tareyyāsi uttareyyāsi patareyyāsi samatikkameyyāsi vītivatteyyāsīti—",
+        "translation": "Mortality might strike and fall off old age. Father, suppose old age, and death were to go beyond the shackle of death, and you should develop the transgress.",
+        "source": "cnd19:58.1_0"
+    },
+    {
+        "source_sentence": "evaṁ maccutaro siyā.",
+        "translation": "so it will cross over Death.",
+        "source": "cnd19:58.2_0"
+    },
+    {
+        "source_sentence": "**Evaṁ lokaṁ avekkhantan**ti evaṁ lokaṁ avekkhantaṁ paccavekkhantaṁ tulayantaṁ tīrayantaṁ vibhāvayantaṁ vibhūtaṁ karontanti—",
+        "translation": "When they survey the world in this way, and discern the next world as he surveys it.",
+        "source": "cnd19:59.1_0"
+    },
+    {
+        "source_sentence": "evaṁ lokaṁ avekkhantaṁ.",
+        "translation": "who shows the world beyond,",
+        "source": "cnd19:59.2_0"
+    },
+    {
+        "source_sentence": "**Maccurājā na passatī**ti maccupi maccurājā, māropi maccurājā, maraṇampi maccurājā.",
+        "translation": "Kings, Death’s Death’s Got in Death’s death, and the King of Death,",
+        "source": "cnd19:60.1_0"
+    },
+    {
+        "source_sentence": "**Na passatī**ti maccurājā na passati na dakkhati nādhigacchati na vindati na paṭilabhati.",
+        "translation": "One cannot see (it). But one does not see, the king of Death doesn’t find happiness.",
+        "source": "cnd19:60.2_0"
+    },
+    {
+        "source_sentence": "Vuttañhetaṁ bhagavatā—",
+        "translation": "for this is said by the Buddha,",
+        "source": "cnd19:60.3_0"
+    },
+    {
+        "source_sentence": "“seyyathāpi, bhikkhave, āraññiko migo araññe pavane caramāno vissattho gacchati vissattho tiṭṭhati vissattho nisīdati vissattho seyyaṁ kappeti.",
+        "translation": "“Mendicants, suppose a wilderness region walks in a forest grove. When wandering in a forest, they walk, thinking:",
+        "source": "cnd19:60.4_0"
+    },
+    {
+        "source_sentence": "Taṁ kissa hetu?",
+        "translation": "Why is that?",
+        "source": "cnd19:60.5_0"
+    },
+    {
+        "source_sentence": "Anāpāthagato, bhikkhave, luddassa.",
+        "translation": "He is not, monks, within the range of a hunter.",
+        "source": "cnd19:60.6_0"
+    },
+    {
+        "source_sentence": "Evameva kho, bhikkhave, bhikkhu vivicceva kāmehi vivicca akusalehi dhammehi savitakkaṁ savicāraṁ vivekajaṁ pītisukhaṁ paṭhamaṁ jhānaṁ upasampajja viharati.",
+        "translation": "In the same way, a mendicant, quite secluded from sensual pleasures, secluded from unskillful qualities, enters and remains in the first absorption, which has the rapture and bliss born of seclusion, while placing the mind and keeping it connected.",
+        "source": "cnd19:60.7_0"
+    },
+    {
+        "source_sentence": "Ayaṁ vuccati, bhikkhave, ‘bhikkhu andhamakāsi māraṁ, apadaṁ vadhitvā māracakkhuṁ adassanaṁ gato pāpimato’.",
+        "translation": "At such a time they are called a mendicant who has blinded Māra, put out his eyes without a trace, and gone where the Wicked One cannot see.",
+        "source": "cnd19:60.8_0"
+    },
+    {
+        "source_sentence": "Puna caparaṁ, bhikkhave, bhikkhu vitakkavicārānaṁ vūpasamā ajjhattaṁ sampasādanaṁ cetaso ekodibhāvaṁ avitakkaṁ avicāraṁ samādhijaṁ pītisukhaṁ dutiyaṁ jhānaṁ …pe…",
+        "translation": "Furthermore, as the placing of the mind and keeping it connected are stilled, a mendicant enters and remains in the second absorption ...",
+        "source": "cnd19:61.1_0"
+    },
+    {
+        "source_sentence": "tatiyaṁ jhānaṁ …",
+        "translation": "... the third absorption,” ...",
+        "source": "cnd19:61.2_0"
+    },
+    {
+        "source_sentence": "catutthaṁ jhānaṁ upasampajja viharati.",
+        "translation": "dwells having attained the fourth absorption.",
+        "source": "cnd19:61.3_0"
+    },
+    {
+        "source_sentence": "Ayaṁ vuccati, bhikkhave, ‘bhikkhu andhamakāsi māraṁ, apadaṁ vadhitvā māracakkhuṁ adassanaṁ gato pāpimato’.",
+        "translation": "At such a time they are called a mendicant who has blinded Māra, put out his eyes without a trace, and gone where the Wicked One cannot see.",
+        "source": "cnd19:61.4_0"
+    },
+    {
+        "source_sentence": "Puna caparaṁ, bhikkhave, bhikkhu sabbaso rūpasaññānaṁ samatikkamā, paṭighasaññānaṁ atthaṅgamā, nānattasaññānaṁ amanasikārā, ananto ākāsoti ākāsānañcāyatanaṁ upasampajja viharati.",
+        "translation": "Furthermore, a mendicant, going totally beyond perceptions of form, with the ending of perceptions of impingement, not focusing on perceptions of diversity, aware that ‘space is infinite’, enters and remains in the dimension of infinite space.",
+        "source": "cnd19:62.1_0"
+    },
+    {
+        "source_sentence": "Ayaṁ vuccati, bhikkhave, ‘bhikkhu andhamakāsi māraṁ, apadaṁ vadhitvā māracakkhuṁ adassanaṁ gato pāpimato’.",
+        "translation": "At such a time they are called a mendicant who has blinded Māra, put out his eyes without a trace, and gone where the Wicked One cannot see.",
+        "source": "cnd19:62.2_0"
+    },
+    {
+        "source_sentence": "Puna caparaṁ, bhikkhave, bhikkhu sabbaso ākāsānañcāyatanaṁ samatikkamma anantaṁ viññāṇanti viññāṇañcāyatanaṁ upasampajja viharati …pe….",
+        "translation": "Furthermore, a mendicant, going totally beyond the dimension of infinite space, aware that ‘consciousness is infinite’, enters and remains in the dimension of infinite consciousness ...",
+        "source": "cnd19:63.1_0"
+    },
+    {
+        "source_sentence": "Puna caparaṁ, bhikkhave, sabbaso viññāṇañcāyatanaṁ samatikkamma natthi kiñcīti ākiñcaññāyatanaṁ upasampajja viharati …pe….",
+        "translation": "Furthermore, going totally beyond the dimension of infinite consciousness, aware that ‘there is nothing at all’, they enter and remain in the dimension of nothingness ...",
+        "source": "cnd19:64.1_0"
+    },
+    {
+        "source_sentence": "Puna caparaṁ, bhikkhave, sabbaso ākiñcaññāyatanaṁ samatikkamma nevasaññānāsaññāyatanaṁ upasampajja viharati …pe….",
+        "translation": "Furthermore, going totally beyond the dimension of nothingness, they enter and remain in the dimension of neither perception nor non-perception ...",
+        "source": "cnd19:65.1_0"
+    },
+    {
+        "source_sentence": "Puna caparaṁ, bhikkhave, sabbaso nevasaññānāsaññāyatanaṁ samatikkamma saññāvedayitanirodhaṁ upasampajja viharati;",
+        "translation": "Furthermore, going totally beyond the dimension of neither perception nor non-perception, they enter and remain in the cessation of perception and feeling.",
+        "source": "cnd19:66.1_0"
+    },
+    {
+        "source_sentence": "paññāya cassa disvā āsavā parikkhīṇā honti.",
+        "translation": "And, having seen with wisdom, their defilements come to an end.",
+        "source": "cnd19:66.2_0"
+    },
+    {
+        "source_sentence": "Ayaṁ vuccati, bhikkhave, ‘bhikkhu andhamakāsi māraṁ, apadaṁ vadhitvā māracakkhuṁ adassanaṁ gato pāpimato, tiṇṇo loke visattikan’ti.",
+        "translation": "At such a time they are called a mendicant who has blinded Māra, put out his eyes without a trace, and gone where the Wicked One cannot see.",
+        "source": "cnd19:66.3_0"
+    },
+    {
+        "source_sentence": "So vissattho gacchati vissattho tiṭṭhati vissattho nisīdati vissattho seyyaṁ kappeti.",
+        "translation": "he walks confidently, he stands confidently, he stands confidently, he stands confidently,",
+        "source": "cnd19:66.4_0"
+    },
+    {
+        "source_sentence": "Taṁ kissa hetu?",
+        "translation": "Why is that?",
+        "source": "cnd19:66.5_0"
+    },
+    {
+        "source_sentence": "Anāpāthagato bhikkhu pāpimato”ti—",
+        "translation": "Because they’re out of the Wicked One’s range.”",
+        "source": "cnd19:66.6_0"
+    },
+    {
+        "source_sentence": "maccurājā na passati.",
+        "translation": "then the King of Death won’t see you.",
+        "source": "cnd19:66.7_0"
+    },
+    {
+        "source_sentence": "Tenāha bhagavā—",
+        "translation": "The Buddha replied,",
+        "source": "cnd19:66.8_0"
+    },
+    {
+        "source_sentence": "“Suññato lokaṁ avekkhassu,",
+        "translation": "“Learned in the world,",
+        "source": "cnd19:67.1_0"
+    },
+    {
+        "source_sentence": "mogharāja sadā sato;",
+        "translation": "King Mogharāja, he’s mindful,",
+        "source": "cnd19:67.2_0"
+    },
+    {
+        "source_sentence": "Attānudiṭṭhiṁ ūhacca,",
+        "translation": "Having removed (wrong) view of self,",
+        "source": "cnd19:67.3_0"
+    },
+    {
+        "source_sentence": "evaṁ maccutaro siyā;",
+        "translation": "so it will cross over Death.",
+        "source": "cnd19:67.4_0"
+    },
+    {
+        "source_sentence": "Evaṁ lokaṁ avekkhantaṁ,",
+        "translation": "who shows the world beyond,",
+        "source": "cnd19:67.5_0"
+    },
+    {
+        "source_sentence": "maccurājā na passatī”ti.",
+        "translation": "king of Death won’t see you.”",
+        "source": "cnd19:67.6_0"
+    },
+    {
+        "source_sentence": "Saha gāthāpariyosānā …pe…",
+        "translation": "spoke with verses ...",
+        "source": "cnd19:68.1_0"
+    },
+    {
+        "source_sentence": "satthā me, bhante bhagavā, sāvakohamasmīti.",
+        "translation": "you’re my teacher, I’m your disciple.",
+        "source": "cnd19:68.2_0"
+    },
+    {
+        "source_sentence": "Mogharājamāṇavapucchāniddeso pannarasamo.",
+        "translation": "Questioning in the Mogharāja",
+        "source": "cnd19:68.3_0"
+    }
+]

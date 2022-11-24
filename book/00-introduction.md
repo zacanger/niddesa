@@ -95,7 +95,10 @@ by A. P. de Zoyza and hosted by [Sutta
 Central](https://github.com/suttacentral/sc-data/tree/5c060c479f4cb17a0891011d57d4933c81918ead/html_text/si/pli/sutta/kn).
 Two Romanizations of the Pāli were used, one from [Sutta
 Central](https://github.com/suttacentral/legacy-suttacentral-data/tree/384ab0b63a521946cddb343319ac6c325dd2fb27/text/pi/su/kn)
-and one from [Tipitaka.org](https://tipitaka.org/).
+and one from [Tipitaka.org](https://tipitaka.org/). Segmented machine
+translations from [Buddha Nexus/Linguae
+Dharmae](https://github.com/Linguae-Dharmae/pli-machine-translations) were
+useful for reformatting my text to better match the Pāli.
 
 In addition, the translations of the Sutta Nipāta by Viggo Fausböll and Bhikkhu
 Bodhi have been valuable references (if I had known about Bhikkhu Bodhi's
