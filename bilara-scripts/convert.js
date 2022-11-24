@@ -7,8 +7,13 @@ const bookPath = path.resolve(__dirname, '..', 'book')
 const cndPath = path.resolve(bookPath, 'cnd')
 const mndPath = path.resolve(bookPath, 'mnd')
 
+const exceptTitlePage = (files) =>
+  files.filter((f) => !f.endsWith('00.md'))
+
 const filesPer = (where) =>
-  fs.readdirSync(where).map((p) => path.resolve(where, p))
+  exceptTitlePage(
+    fs.readdirSync(where).map((p) => path.resolve(where, p))
+  )
 
 const pathToBookAndChapter = (fullPath) => {
   const parts = fullPath.split('/')
