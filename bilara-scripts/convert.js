@@ -58,6 +58,8 @@ const contentsToJson = (textContent, pathInfo) => {
         .replace(/^#+/, '')
         .replace('&middot;', ':')
         .replace('  ', ' ')
+        .replace('<!--', '')
+        .replace('-->', '')
         .trim()
 
       prev[key] = line

@@ -9,3 +9,4 @@ fi
 
 docker build -t niddesa .
 docker run --rm --volume "$(pwd):/data" --entrypoint "make" niddesa
+node ./bilara-scripts/convert.js

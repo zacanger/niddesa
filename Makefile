@@ -8,21 +8,20 @@ TOC = --toc --toc-depth 4
 METADATA_ARGS = --metadata-file $(METADATA)
 TEMPLATES = $(shell find templates/ -type f)
 PAGEBREAK = -L templates/pagebreak.lua
-# COVER_IMAGE = cover.jpg
 
 # Chapters content
 CONTENT = awk 'FNR==1 && NR!=1 {print "\n\n"}{print}' $(CHAPTERS)
 
-# Debugging
-# DEBUG_ARGS = --verbose
+# Strip comments
+COMMENT_ARGS = --strip-comments
 
 # Combined arguments
-ARGS = $(PAGEBREAK) $(TOC) $(METADATA_ARGS) $(DEBUG_ARGS)
+ARGS = $(PAGEBREAK) $(TOC) $(METADATA_ARGS) $(COMMENT_ARGS)
 
 PANDOC_COMMAND = pandoc
 
 # Per-format options
-EPUB_ARGS = --template templates/epub.html # --epub-cover-image $(COVER_IMAGE)
+EPUB_ARGS = --template templates/epub.html
 HTML_ARGS = --template templates/html.html --standalone --to html5
 PDF_ARGS = --template templates/pdf.latex --pdf-engine xelatex -V geometry:margin=1.5in --variable urlcolor=teal
 
@@ -44,9 +43,6 @@ clean:
 
 site:
 	pandoc -f gfm README.md -s -t html5 --template=templates/index.html -o index.html
-
-bilara:
-	node bilara-scripts/convert.js
 
 # Builders
 .PHONY: epub
