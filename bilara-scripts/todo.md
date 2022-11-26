@@ -1,3 +1,5 @@
+* CND: missing 02, 03, 04 -- these are different in the Canon than the Agamas,
+    apparently
 * Strip inline comments
 * Expand omitted sections
 * Get everything organized according to the contents of smushed/*
