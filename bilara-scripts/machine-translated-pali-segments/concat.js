@@ -14,12 +14,15 @@ const padChaps = (n) => String(n).padStart(2, '0')
 const mndChaps = range(1, 16).map(padChaps)
 const cndChaps = range(1, 23).map(padChaps)
 
-const pluckTrans = ({ translation }) => translation
+const pluck = (key) => (obj) => obj[key]
+const pluckTrans = pluck('translation')
+const pluckNum = pluck('source')
+const pluckBoth = (obj) => ({ line: pluckTrans(obj), num: pluckNum(obj) })
 const getFilePath = (bookPath, chapterNumber) =>
   path.resolve(__dirname, `${bookPath}/${chapterNumber}.json`)
 
 const resultDir = path.resolve(__dirname, 'smushed')
-const versesFrom = (chapter) => chapter.map(pluckTrans)
+const versesFrom = (chapter) => chapter.map(pluckBoth)
 
 const buildStrings = (chapterList, betterPath, backupPath) =>
   chapterList.reduce((prev, curr) => {
@@ -27,9 +30,10 @@ const buildStrings = (chapterList, betterPath, backupPath) =>
     const backupVersion = versesFrom(require(getFilePath(backupPath, curr)))
 
     let innerLines = ''
-    betterVersion.forEach((line, idx) => {
+    betterVersion.forEach(({ line, num }, idx) => {
+      innerLines += num + '\n'
       innerLines += line + '\n'
-      const backupLine = backupVersion[idx]
+      const backupLine = backupVersion[idx].line
       if (backupLine !== line) {
         innerLines += backupLine + '\n'
       }

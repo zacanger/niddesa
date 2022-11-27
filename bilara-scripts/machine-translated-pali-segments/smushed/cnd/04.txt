@@ -1,221 +1,304 @@
+cnd4:0.1_0
 Cūḷaniddesa
 
+cnd4:0.2_0
 Pārāyanavaggagāthā
 
+cnd4:0.3_0
 4. Pārāyanānugītigāthā
 
+cnd4:1.1_0
 “I’ll recite the verses
 “I’ll get a verse
 
+cnd4:1.2_0
 Piṅgiya,
 said venerable Piṅgiya,
 
+cnd4:1.3_0
 When the Teaching is finished,
 how the Teacher explained it.
 
+cnd4:1.4_0
 with Vimala, stainless,
 Poised, stainless,
 
+cnd4:1.5_0
 the giant is free from sense desire,
 the giant, free of joy,
 
+cnd4:1.6_0
 Why is that?
 Why is that a delicious thing?
 
+cnd4:2.1_0
 Giving up the stain of immorality,
 have given up the stain of immorality.
 
+cnd4:2.2_0
 Having given up conceit, they say:
 they’ve given up conceit, they say.
 
+cnd4:2.3_0
 come now, I’ll extol them.
 Well now, I’ll extol them.
 
+cnd4:2.4_0
 with beauty,
 for your beautiful complexion,
 
+cnd4:3.1_0
 The Buddha, the darkness-dispeller, the All-Seeing Visionary,
 
+cnd4:3.2_0
 Who has gone beyond all states of existence:
 Who has gone beyond all states of existence.
 
+cnd4:3.3_0
 given up all suffering, the one pollutant-free,
 
+cnd4:3.4_0
 whose very name is truth - O brahmin, (you are) worshipped by me.
 
+cnd4:4.1_0
 Just as a bird who has given up a barren woodland,
 
+cnd4:4.2_0
 might live in a forest which has much fruit,
 
+cnd4:4.3_0
 Thus after giving up those of little wisdom,
 so those who have given up those of little wisdom,
 
+cnd4:4.4_0
 like a swan who has arrived at the great sea.
 
+cnd4:5.1_0
 Those who explained previously
 Those who, in regard to their past lives,
 
+cnd4:5.2_0
 Gotama’s intention, Gotama.
 Gotama’s intention.
 
+cnd4:5.3_0
 thinking, “There will be so.”
 there will be for one like that,
 
+cnd4:5.4_0
 it is all of this.
 it is all that was just hearing.
 
+cnd4:5.5_0
 all that just increased my thoughts.
 
+cnd4:6.1_0
 one dispels darkness.
 one dispelled darkness.
 
+cnd4:6.2_0
 shines a light.
 you shine a light free woman.
 
+cnd4:6.3_0
 Gotama of Great Knowledge, Gotama of Great Wisdom,
 Gotama is the Great Knowledge.
 
+cnd4:6.4_0
 Gotama of Great Intelligence.
 
+cnd4:7.1_0
 who taught me the Dhamma
 He who taught me the Dhamma
 
+cnd4:7.2_0
 it is visible, not subject to time,
 
+cnd4:7.3_0
 calmed the end of craving,
 settling the ending of craving.
 
+cnd4:7.4_0
 at all.
 the man who does nothing.”
 
+cnd4:8.1_0
 “Why don’t you clearly?
 “Why do you avoid them?
 
+cnd4:8.2_0
 even for a moment, Piṅgiya,
 even for a moment,
 
+cnd4:8.3_0
 from Gotama of Great Knowledge,
 
+cnd4:8.4_0
 from Gotama of Great Intelligence,
 Gotama of Great Intelligence,
 
+cnd4:9.1_0
 he who taught the Dhamma
 he who taught the Teaching to you,
 
+cnd4:9.2_0
 it is visible, not subject to time,
 
+cnd4:9.3_0
 calmed the end of craving,
 settling the ending of craving.
 
+cnd4:9.4_0
 at all.
 the man who does nothing.”
 
+cnd4:10.1_0
 I don’t stay apart from that,
 “I don’t understand that
 
+cnd4:10.2_0
 of the supreme person.
 a moment, brahmin,
 
+cnd4:10.3_0
 from Gotama of Great Knowledge,
 
+cnd4:10.4_0
 from Gotama of Great Intelligence,
 Gotama of Great Intelligence,
 
+cnd4:11.1_0
 who taught me the Dhamma
 He who taught me the Dhamma
 
+cnd4:11.2_0
 it is visible, not subject to time,
 
+cnd4:11.3_0
 calmed the end of craving,
 settling the ending of craving.
 
+cnd4:11.4_0
 For whomever has nothing,
 One who lives likes nothing,
 
+cnd4:12.1_0
 I see him in my mind as though with the eye,
 
+cnd4:12.2_0
 (as I dwell) heedful night and day, brahmin.
 
+cnd4:12.3_0
 revering him I make the night pass by,
 
+cnd4:12.4_0
 I think there is no (real) dwelling apart.
 and so I thought I wouldn’t stay opportunity.
 
+cnd4:13.1_0
 faith, mindfulness, and mind.
 
+cnd4:13.2_0
 they do not depart from Gotama’s teaching,
 
+cnd4:13.3_0
 whatever direction the One of Great Wisdom goes to
 
+cnd4:13.4_0
 That’s why I don’t like that.
 That’s why I am not reborn there.
 
+cnd4:14.1_0
 I am old, without strength and feeble,
 
+cnd4:14.2_0
 For that body doesn’t get too close
 And so the body doesn’t get close to it.
 
+cnd4:14.3_0
 I’m always born in those
 I’m always sympathy about a person.
 
+cnd4:14.4_0
 for my mind, Brahmin, is joined to him.
 
+cnd4:15.1_0
 while lying down on a lotus flower,
 like a drunk on a fle.
 
+cnd4:15.2_0
 Upavattana,
 Upavattana, hurtful,
 
+cnd4:15.3_0
 Then I saw the Buddha
 Then I saw the Buddha,
 
+cnd4:15.4_0
 like a flood-crosser.”
 like the flood swelling the leaves.”
 
+cnd4:16.1_0
 [The Buddha:] “Just as Vakkali released his confidence -
 
+cnd4:16.2_0
 Bhadrāvudha and Uttara,
 Bhadrāvudha, Kāḷigodhā
 
+cnd4:16.3_0
 so too you must release your faith,
 so too you must release your confidence,
 
+cnd4:16.4_0
 and you will go on, Piṅgiya.”
 you will go from afar, Piṅgiya.”
 
+cnd4:17.1_0
 “My confidence grew
 
+cnd4:17.2_0
 hearing the sage’s word,
 When you hear a sage’s word,
 
+cnd4:17.3_0
 the Sambuddha, who is awakened,
 the Awakened One, the Sambuddha,
 
+cnd4:17.4_0
 kind, eloquent,
 
+cnd4:18.1_0
 Disciple,
 who, knowing the King of the Disciple,
 
+cnd4:18.2_0
 they know nothing
 all the other is the confirmation.
 
+cnd4:18.3_0
 the Teacher who makes an end to questions,
 The Teacher, making them recite,
 
+cnd4:18.4_0
 admitted to being doubt
 admitted to being whipped,
 
+cnd4:19.1_0
 Unfaltering, unshakable,
 Knowing this, foster it—
 
+cnd4:19.2_0
 For whomever has nothing,
 One who lives likes nothing,
 
+cnd4:19.3_0
 Surely I will go there,
 Surely I will go about this,
 
+cnd4:19.4_0
 thus bear me in mind as one whose heart is intent (on Nibbāna).”
 
+cnd4:19.5_0
 The verses on the far shore is finished.
 The account of the far shore is finished.
 
