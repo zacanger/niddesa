@@ -3,6 +3,7 @@
 [Read Online](https://zacanger.com/niddesa/assets/niddesa.html) &middot;
 [PDF](https://zacanger.com/niddesa/assets/niddesa.pdf) &middot;
 [EPUB](https://zacanger.com/niddesa/assets/niddesa.epub) &middot;
+[Donate](https://ko-fi.com/zacanger) &middot;
 [Repository](https://github.com/zacanger/niddesa)
 
 I recommend downloading the PDF or EPUB files, as the HTML is quite large and
